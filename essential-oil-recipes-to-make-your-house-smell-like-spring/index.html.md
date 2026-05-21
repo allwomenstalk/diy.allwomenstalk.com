@@ -3,7 +3,7 @@ title: "15 Essential Oil Diffuser Recipes to Make Your Home Smell like Spring ..
 description: "Spring Flowers; Spring Breeze; Morning Sunshine; Sunny Day; Spring Sunset; More ..."
 url: "https://diy.allwomenstalk.com/essential-oil-recipes-to-make-your-house-smell-like-spring/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 15 Essential Oil Diffuser Recipes to Make Your Home Smell like Spring ...
@@ -109,16 +109,16 @@ Have you tried out any spring themed essential oil recipes? Let us know!
 
 ## Related Posts
 
-- [How to Wear Perfume like a French Woman ...](https://perfumes.allwomenstalk.com/how-to-wear-perfume-like-a-french-woman/)
 - [Best Essential Oils to Detox Your Life ...](https://health.allwomenstalk.com/best-essential-oils-to-detox-your-life/)
+- [How to Make Your Own Perfume ...](https://perfumes.allwomenstalk.com/how-to-make-your-own-perfume/)
 - [good fall perfumes](https://perfumes.allwomenstalk.com/best-fragrances-for-fall/)
 - [how to pick fragrance](https://perfumes.allwomenstalk.com/choosing-perfect-fragrance/)
-- [essential oil companies](https://vityle.com/best-essential-oil-brands/)
-- [How to Make Your Own Perfume ...](https://perfumes.allwomenstalk.com/how-to-make-your-own-perfume/)
-- [10 Fabulous Unisex Perfumes on the Market ...](https://perfumes.allwomenstalk.com/fabulous-unisex-perfumes-on-the-market/)
+- [15 Most Notorious French Perfume Houses to Dazzle ...](https://perfumes.allwomenstalk.com/notorious-french-perfume-houses/)
+- [How to Wear Perfume like a French Woman ...](https://perfumes.allwomenstalk.com/how-to-wear-perfume-like-a-french-woman/)
 - [How to Make Your Own Body Mist ...](https://perfumes.allwomenstalk.com/easy-make-your-own-body-mist/)
 - [Perfume Tips to Make Your Scent Work Harder ...](https://perfumes.allwomenstalk.com/perfume-tips-to-make-your-scent-work-harder/)
-- [15 Most Notorious French Perfume Houses to Dazzle ...](https://perfumes.allwomenstalk.com/notorious-french-perfume-houses/)
+- [essential oil companies](https://vityle.com/best-essential-oil-brands/)
+- [10 Fabulous Unisex Perfumes on the Market ...](https://perfumes.allwomenstalk.com/fabulous-unisex-perfumes-on-the-market/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [7 Deliciously Scented Candles ...](https://allwomenstalk.com/7-deliciously-scented-candles/)
 

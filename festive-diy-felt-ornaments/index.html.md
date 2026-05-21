@@ -3,7 +3,7 @@ title: "12 Festive DIY Felt Ornaments ..."
 description: "Toadstool in an Egg; Ogee; Birdie; Owl; Dala Horse; More ..."
 url: "https://diy.allwomenstalk.com/festive-diy-felt-ornaments/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 12 Festive DIY Felt Ornaments ...
@@ -110,16 +110,16 @@ Hope you will be able to create some cute things from this list of **DIY felt or
 
 ## Related Posts
 
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
 - [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

@@ -3,7 +3,7 @@ title: "7 DIYs with Newspaper Youre Going to Love ..."
 description: "Wordy Lampshade; Newspaper Nails; Old Newspaper Stool; Newspaper Trivet; Newspaper Wall Art; More ..."
 url: "https://diy.allwomenstalk.com/diys-with-newspaper-youre-going-to-love/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 DIYs with Newspaper Youre Going to Love ...

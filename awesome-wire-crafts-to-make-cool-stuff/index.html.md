@@ -3,7 +3,7 @@ title: "33 Awesome Wire Crafts to Make Cool Stuff ..."
 description: "DIY Fruit and Hummingbird Feeders; Giacometti Figures Made from Wire; Rock Photo Holders; Wire Tea Light Holders; Magazine Hangers; More ..."
 url: "https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 33 Awesome Wire Crafts to Make Cool Stuff ...
@@ -198,16 +198,16 @@ Via [creativecapitalb.com](https://www.xn--forbrukslnnorge-plb.com/)
 
 ## Related Posts
 
-- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
-- [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
-- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
-- [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
-- [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
-- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
+- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
 - [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
 - [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
+- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
+- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
+- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
+- [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
 - [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
-- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
+- [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
+- [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

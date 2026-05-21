@@ -3,7 +3,7 @@ title: "7 Cool Ways to Organize Your Craft Supplies ..."
 description: "Jars; Stack-on Drawer Cabinet; Pegboard; Shower Caddy; Shoe Cubby; More ..."
 url: "https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Cool Ways to Organize Your Craft Supplies ...
@@ -56,16 +56,16 @@ How do you plan to organize your craft supplies this year? Have you used any of 
 
 ## Related Posts
 
-- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
-- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
-- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
-- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
-- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
-- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
 - [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
+- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
+- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
 - [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
+- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
+- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
 - [7 Ways to Organize Your Childs Toys ...](https://parenting.allwomenstalk.com/7-ways-to-organize-your-childs-toys/)
 - [10 Things for Your Kids Craft Bin ...](https://allwomenstalk.com/10-things-for-your-kids-craft-bin/)
 

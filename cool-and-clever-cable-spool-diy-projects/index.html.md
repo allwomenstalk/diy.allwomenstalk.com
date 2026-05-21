@@ -3,7 +3,7 @@ title: "8 Cool and Clever Cable Spool DIY Projects ..."
 description: "Stool; Mobile Bookcase; Patio Table; Mosaic Garden Table; Giant Clock; More ..."
 url: "https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Cool and Clever Cable Spool DIY Projects ...
@@ -70,15 +70,15 @@ How badly do you want to **craft with cable spools** now? I hope that these gave
 
 ## Related Posts
 
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
+- [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
 - [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
 - [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
-- [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
 - [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
-- [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
 - [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
+- [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 - [12 Clever Milk Jug DIY Projects ...](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)

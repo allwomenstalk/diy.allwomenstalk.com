@@ -3,7 +3,7 @@ title: "7 Amazing Game of Thrones Craft Projects ..."
 description: "Westeros Cork Map; Dragon Easter Egg; Resin Dragon Eggs; Direwolf Pup Costume; Winter is Coming Scarf; More ..."
 url: "https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Amazing Game of Thrones Craft Projects ...
@@ -67,15 +67,15 @@ Aren't these **Game of Thrones DIY** projects fun? If you've made some things in
 ## Related Posts
 
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
-- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
-- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
-- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
 - [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
-- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
+- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
+- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

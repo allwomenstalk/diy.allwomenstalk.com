@@ -3,7 +3,7 @@ title: "35 Ribbon Crafts from Lengths and Scraps ..."
 description: "Ribbon Bookmark; Ribbon Christmas Trees; Beaded Ribbon Bookmarks; DIY No Sew Pastel Ribbon Tie Tutu; Stick and Ribbon Tree; More ..."
 url: "https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 35 Ribbon Crafts from Lengths and Scraps ...
@@ -286,16 +286,16 @@ Did you know there were such great ways to use ribbons? Do you have a stash just
 
 ## Related Posts
 
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
 - [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
 - [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [10 Funky Yarns for Crafters ...](https://allwomenstalk.com/10-funky-yarns-for-crafters/)
 

@@ -3,7 +3,7 @@ title: "DIY Ideas to Help You Throw a Great Gatsby Themed Party ..."
 description: "Gold-dipped Feathers; Photo or Dessert Buffet Backdrop; Metallic Bottle Vases; Glitter Candles; Glitter Tea Light Candle Holder; More ..."
 url: "https://diy.allwomenstalk.com/diy-ideas-to-help-you-throw-a-great-gatsby-themed-party/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # DIY Ideas to Help You Throw a Great Gatsby Themed Party ...
@@ -72,16 +72,16 @@ That was an overwhelming list of glitz and glamour! I love that most of them are
 
 ## Related Posts
 
-- [favorite holidays](https://lifestyle.allwomenstalk.com/infographics-thatll-teach-you-about-your-favorite-holidays/)
-- [what to do after hoco](https://love.allwomenstalk.com/group-date-ideas-for-after-prom/)
+- [bucket list to do with your boyfriend](https://love.allwomenstalk.com/flirty-things-to-put-on-your-bucket-list/)
 - [different things to do in bed](https://love.allwomenstalk.com/fun-things-you-and-your-man-can-do-without-leaving-the-bed/)
 - [board games for couples](https://love.allwomenstalk.com/classic-board-games-for-couples-to-play-on-rainy-days/)
-- [what places do birthday rewards](https://money.allwomenstalk.com/websites-thatll-give-you-free-gifts-on-your-birthday/)
-- [game for people](https://lifestyle.allwomenstalk.com/fun-games-to-play-while-people-watching/)
-- [rainy day girl](https://lifestyle.allwomenstalk.com/quiet-activities-indoor-girls-will-love-to-do-on-rainy-days/)
 - [places to visit when bored](https://inspiration.allwomenstalk.com/great-websites-to-go-on-when-youre-bored/)
-- [bucket list to do with your boyfriend](https://love.allwomenstalk.com/flirty-things-to-put-on-your-bucket-list/)
+- [favorite holidays](https://lifestyle.allwomenstalk.com/infographics-thatll-teach-you-about-your-favorite-holidays/)
+- [game for people](https://lifestyle.allwomenstalk.com/fun-games-to-play-while-people-watching/)
 - [spring staycation ideas](https://lifestyle.allwomenstalk.com/what-to-do-if-spring-break-will-be-a-staycation/)
+- [what to do after hoco](https://love.allwomenstalk.com/group-date-ideas-for-after-prom/)
+- [what places do birthday rewards](https://money.allwomenstalk.com/websites-thatll-give-you-free-gifts-on-your-birthday/)
+- [rainy day girl](https://lifestyle.allwomenstalk.com/quiet-activities-indoor-girls-will-love-to-do-on-rainy-days/)
 - [4 Easy Ways to Jazz up Your Next Outdoor Party...](https://lifestyle.allwomenstalk.com/easy-ways-to-jazz-up-your-next-outdoor-party/)
 - [10 Ways to Decorate Your Garden Parties ...](https://allwomenstalk.com/10-ways-to-decorate-your-garden-parties/)
 

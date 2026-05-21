@@ -3,7 +3,7 @@ title: "9 Wonderfully Cheap and Fun West Elm Knock-offs You Can Make ..."
 description: "Dipped Side Table; Hoop Orbs; Herringbone Mirror; Tripod Lamp; Metallic Glasses; More ..."
 url: "https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Wonderfully Cheap and Fun West Elm Knock\-offs You Can Make ...
@@ -84,16 +84,16 @@ Have you ever made something inspired by a West Elm product? Tell us about it!
 
 ## Related Posts
 
+- [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
+- [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
 - [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
 - [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
-- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
 - [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
 - [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
-- [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
+- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Ways to Make Cheap Gifts Look Chic ...](https://allwomenstalk.com/7-ways-to-make-cheap-gifts-look-chic/)
 

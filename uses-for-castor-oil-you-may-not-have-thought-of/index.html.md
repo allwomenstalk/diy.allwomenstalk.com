@@ -3,7 +3,7 @@ title: "11 Uses for Castor Oil You May Not Have Thought of ..."
 description: "Get Healthy Nails; Soothe Your Eyes; Lubricate Your Scissors; Keep Moles Away; Bring Ferns Back to Life; More ..."
 url: "https://diy.allwomenstalk.com/uses-for-castor-oil-you-may-not-have-thought-of/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 11 Uses for Castor Oil You May Not Have Thought of ...
@@ -58,16 +58,16 @@ Have you got a bottle of castor oil in your cupboard? No? Why not?
 
 ## Related Posts
 
-- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
-- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
 - [dogestive enzymes](https://health.allwomenstalk.com/reasons-coconut-water-should-be-your-drink-of-choice/)
-- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
-- [carrot juice acne](https://food.allwomenstalk.com/health-tips-the-awesome-benefits-of-drinking-carrot-juice/)
 - [recipes with green tea](https://food.allwomenstalk.com/recipes-to-make-the-most-of-green-teas-health-giving-properties/)
-- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
-- [kohl rabbi](https://food.allwomenstalk.com/benefits-of-kohl-rabi/)
+- [carrot juice acne](https://food.allwomenstalk.com/health-tips-the-awesome-benefits-of-drinking-carrot-juice/)
+- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
 - [is himalayan salt radioactive](https://health.allwomenstalk.com/heres-why-you-should-buy-himalayan-pink-salt-this-week/)
+- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
+- [kohl rabbi](https://food.allwomenstalk.com/benefits-of-kohl-rabi/)
 - [one glass a day keeps the doctor away](https://health.allwomenstalk.com/why-a-glass-of-wine-a-day-keeps-the-doctor-away/)
+- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
+- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
 - [7 Uses for Baby Oil ...](https://allwomenstalk.com/7-uses-for-baby-oil/)
 - [7 Ways to Use Essential Oils](https://allwomenstalk.com/ways-to-use-essential-oils/)
 

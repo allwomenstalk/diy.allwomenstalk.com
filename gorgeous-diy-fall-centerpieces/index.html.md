@@ -3,7 +3,7 @@ title: "12 Gorgeous DIY Fall Centerpieces ..."
 description: "Lantern; Owl; Foam Cones; Green; Jars; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 12 Gorgeous DIY Fall Centerpieces ...
@@ -110,16 +110,16 @@ Hope you fine craft inspiration from this list of** DIY fall centerpieces**! Tel
 
 ## Related Posts
 
-- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
 - [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
 - [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 - [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Decorating Ideas for Fall ...](https://lifestyle.allwomenstalk.com/decorating-ideas-for-fall/)
 

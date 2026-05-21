@@ -3,7 +3,7 @@ title: "7 Simple DIY Wedding Centerpieces ..."
 description: "Photo Bouquet; Fruit Filled Vase; Floating Flora; Ornamental Beauty; Pumpkin Patch; More ..."
 url: "https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Simple DIY Wedding Centerpieces ...
@@ -56,15 +56,15 @@ All of these DIY wedding centerpieces are designed to be easy to make and relati
 
 ## Related Posts
 
-- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
-- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
 - [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
 - [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
 - [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
 - [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [5 Unique Vases for Your Wedding Centerpieces ...](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [4 DIY Wedding Card Ideas ...](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)

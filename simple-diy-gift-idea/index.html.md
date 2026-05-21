@@ -3,7 +3,7 @@ title: "Simple DIY Gift Idea Thats Cheap but Cute ..."
 description: "Cup; Cellophane; Candy of Choice; Wired Ribbon (bow); Curly Ribbon; More ..."
 url: "https://diy.allwomenstalk.com/simple-diy-gift-idea/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Simple DIY Gift Idea Thats Cheap but Cute ...
@@ -47,16 +47,16 @@ Although the video could have gone along a little faster, I give it a thumbs-up.
 
 ## Related Posts
 
-- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
-- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
-- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
-- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
-- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
 - [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
+- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
+- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
+- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
+- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
+- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [10 Delightful DIY Gift Boxes ...](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 - [Save Your Cash This Christmas with These DIY Gifts...](https://diy.allwomenstalk.com/save-your-cash-this-christmas-with-these-diy-gifts/)
 

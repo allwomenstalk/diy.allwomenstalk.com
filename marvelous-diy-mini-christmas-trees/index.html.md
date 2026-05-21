@@ -3,7 +3,7 @@ title: "17 Marvelous DIY Mini Christmas Trees ..."
 description: "Spools; Rosette; Wine Cork; Glittery Magazine; Fabric; More ..."
 url: "https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 Marvelous DIY Mini Christmas Trees ...
@@ -142,16 +142,16 @@ This post was written in collaboration with editor Heather Jensen.
 
 ## Related Posts
 
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
 - [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [www.katescreativespace.com](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [www.katescreativespace.com](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [12 Top Tips on Decorating Christmas Trees ...](https://allwomenstalk.com/12-top-tips-on-decorating-christmas-trees/)
 

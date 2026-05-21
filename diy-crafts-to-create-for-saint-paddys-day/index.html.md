@@ -3,7 +3,7 @@ title: "17 DIY Crafts to Create for Saint Paddys Day ..."
 description: "Shamrock Garland; Leprechaun Trap; Treat Bags; Leprechaun Candy Hugger; Photo Booth Props; More ..."
 url: "https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 DIY Crafts to Create for Saint Paddys Day ...
@@ -114,15 +114,15 @@ Oh my gosh, how pretty to wear on St. Patrick's Day!
 
 ## Related Posts
 
-- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
-- [valentines day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
-- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
-- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
-- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
 - [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
-- [Video Guide for How to Make a DIY Pamper Me Jar .....](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-jar/)
-- [How to Make a Designer Bouquet for under 30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
 - [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
+- [Video Guide for How to Make a DIY Pamper Me Jar .....](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-jar/)
+- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
+- [How to Make a Designer Bouquet for under 30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
+- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
+- [valentines day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
+- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
+- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
 - [Video Guide to DIY Cookies in a Jar ...](https://diy.allwomenstalk.com/cookies-in-a-jar-recipes/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)

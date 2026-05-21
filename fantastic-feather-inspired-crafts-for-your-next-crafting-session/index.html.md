@@ -3,7 +3,7 @@ title: "31 Fantastic Feather Inspired Crafts for Your Next Crafting Session ..."
 description: "Fancy Turkey Fur Sticks; Polymer Clay Feather Necklace; Vintage Arrow Valentine; Glitter Dipped Feather Garland; Leaves and Feather Mobile; More ..."
 url: "https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 31 Fantastic Feather Inspired Crafts for Your Next Crafting Session ...
@@ -215,16 +215,16 @@ With all these awesome ways to use feathers, you'll never look at feathers the s
 
 ## Related Posts
 
-- [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
+- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
 - [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
 - [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
 - [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
-- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
+- [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

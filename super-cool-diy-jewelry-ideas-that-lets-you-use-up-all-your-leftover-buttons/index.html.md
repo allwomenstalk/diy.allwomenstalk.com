@@ -3,7 +3,7 @@ title: "38 Super Cool Diy Jewelry Ideas That Lets You Use up All Your Leftover B
 description: "Tiny Bicycle Pins; Make Wire Wrapped Pendants from Buttons; Little Button and Yarn Snowman; Lovely Little Post Earrings; Beachy Button Bracelets; More ..."
 url: "https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/"
 category: "diy"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 38 Super Cool Diy Jewelry Ideas That Lets You Use up All Your Leftover Buttons ...
@@ -273,16 +273,16 @@ Are you planning to make one of these button creations? Which one? Let me know h
 
 ## Related Posts
 
-- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
-- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
-- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
-- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
-- [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
-- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
 - [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
 - [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
+- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
 - [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
+- [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
+- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
+- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
 - [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
+- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 

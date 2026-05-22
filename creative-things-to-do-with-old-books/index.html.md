@@ -3,7 +3,7 @@ title: "7 Creative Things to do with Old Books ..."
 description: "Book-Shelves; Book Boxes; Book Headboard; Book Lamp; Book Planter; More ..."
 url: "https://diy.allwomenstalk.com/creative-things-to-do-with-old-books/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Creative Things to do with Old Books ...
@@ -56,15 +56,15 @@ Sources: [sheknows.com](https://www.sheknows.com/living/articles/959023/diy-book
 
 ## Related Posts
 
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 - [good books for young woman](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
-- [natural beauty booksy](https://books.allwomenstalk.com/great-natural-beauty-books/)
-- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
-- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
-- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
 - [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
 - [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
 - [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
+- [natural beauty booksy](https://books.allwomenstalk.com/great-natural-beauty-books/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
 - [the lost series books](https://books.allwomenstalk.com/book-series-to-get-lost-in-this-summer/)
 - [8 Ways to Pass on Old Books ...](https://allwomenstalk.com/8-ways-to-pass-on-old-books/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)

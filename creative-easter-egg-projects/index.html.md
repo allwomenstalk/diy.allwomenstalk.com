@@ -3,7 +3,7 @@ title: "7 Creative Easter Egg Projects the Artsy Girl Needs to Try ..."
 description: "Game of Thrones Easter Egg; Terrarium Easter Egg; Silk-Dyed Eggs; Papier-Mache Easter Eggs; Faux Robin's Eggs; More ..."
 url: "https://diy.allwomenstalk.com/creative-easter-egg-projects/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Creative Easter Egg Projects the Artsy Girl Needs to Try ...
@@ -63,16 +63,16 @@ There are so many fantastic Easter egg projects out there and all I want is to d
 
 ## Related Posts
 
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
 - [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
-- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
 - [7 DIY Easter Projects That Are Fun and Festive ...](https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/)
-- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
 - [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
 - [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 

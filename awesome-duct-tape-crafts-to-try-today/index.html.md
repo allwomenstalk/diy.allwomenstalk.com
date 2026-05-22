@@ -3,7 +3,7 @@ title: "11 Awesome Duct Tape Crafts to Try Today ..."
 description: "Beads; Rose Pen; Wallet; Braided Bracelet; IPod Case; More ..."
 url: "https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Awesome Duct Tape Crafts to Try Today ...
@@ -58,16 +58,16 @@ Who knew there were so many duct tape craft possibilities?! Well, we knew they w
 
 ## Related Posts
 
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
 - [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
-- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
+- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
 - [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
+- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
 - [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
+- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
 - [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

@@ -3,7 +3,7 @@ title: "7 Original Christmas Gifts You Can Make Yourself ..."
 description: "Snow Day Survival Kit; Your Own Artwork; Cup Sleeves; Snow Globe Necklace; Bath Bombs and Melts; More ..."
 url: "https://diy.allwomenstalk.com/original-christmas-gifts-you-can-make-yourself/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Original Christmas Gifts You Can Make Yourself ...
@@ -56,16 +56,16 @@ What are you making this holiday season? Will you try any of these gifts out?
 
 ## Related Posts
 
-- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
-- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
 - [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
-- [Snag a Great Gift for Your Mom for under 25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
-- [JustGotJingled: Shoppers Give Back to Strangers in...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
-- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
-- [The Nicest Naughty Bits Youll Ever Find in Your St...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
 - [7 Creative Photo Ideas for Holiday Cards ...](https://diy.allwomenstalk.com/creative-photo-ideas-for-holiday-cards/)
+- [The Nicest Naughty Bits Youll Ever Find in Your St...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
+- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
+- [JustGotJingled: Shoppers Give Back to Strangers in...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
 - [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
 - [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
+- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
+- [Snag a Great Gift for Your Mom for under 25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
+- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

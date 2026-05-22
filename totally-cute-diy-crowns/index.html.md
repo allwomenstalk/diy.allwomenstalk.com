@@ -3,7 +3,7 @@ title: "8 Totally Cute DIY Crowns ..."
 description: "Nature; Felt; Medieval; Lace; Fabric; More ..."
 url: "https://diy.allwomenstalk.com/totally-cute-diy-crowns/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Totally Cute DIY Crowns ...
@@ -76,16 +76,16 @@ Hope you end up making something from this list of **handmade crowns**! Go ahead
 
 ## Related Posts
 
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [7 Sparkly Tiaras ...](https://jewelry.allwomenstalk.com/sparkly-tiaras/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

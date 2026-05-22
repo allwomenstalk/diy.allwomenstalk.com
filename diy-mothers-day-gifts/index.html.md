@@ -3,7 +3,7 @@ title: "7 DIY Mothers Day Gifts ..."
 description: "Tea Box; Teacup Candles; Potted Plant Necklace; Photo Tube Vase; Erasable Glass Calendar; More ..."
 url: "https://diy.allwomenstalk.com/diy-mothers-day-gifts/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 DIY Mothers Day Gifts ...
@@ -186,14 +186,14 @@ designsponge.com_
 
 ## Related Posts
 
-- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
-- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [Mothers Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)

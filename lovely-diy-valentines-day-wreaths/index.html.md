@@ -3,7 +3,7 @@ title: "23 Lovely DIY Valentines Day Wreaths ..."
 description: "Mini Heart Banner and Yarn; Burlap and Felt Roses; Argyle; Pom Poms and Yarn Balls; Stenciled Wooden Hearts; More ..."
 url: "https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 23 Lovely DIY Valentines Day Wreaths ...
@@ -181,16 +181,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
-- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
 - [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

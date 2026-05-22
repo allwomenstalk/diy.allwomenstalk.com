@@ -3,7 +3,7 @@ title: "The Unexpected Joys of Linen Quill Yarn..."
 description: "A Burst of Color and Texture; Why Knitters Adore Linen Quill; Experience the Versatility; Start Your Journey with Linen Quill; More ..."
 url: "https://diy.allwomenstalk.com/purl-soho-linen-quill-yarn/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # The Unexpected Joys of Linen Quill Yarn...

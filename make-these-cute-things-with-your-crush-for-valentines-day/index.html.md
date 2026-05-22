@@ -3,7 +3,7 @@ title: "23 Adorable Things to Make for Your Crush This Valentines Day ..."
 description: "Metallic Paper Camellias; Valentine Pop-up Card; Pallet Wood Letter; Glitter Love Banners in Gold and Ombre; heart photo display pinterest.com; More ..."
 url: "https://diy.allwomenstalk.com/make-these-cute-things-with-your-crush-for-valentines-day/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 23 Adorable Things to Make for Your Crush This Valentines Day ...
@@ -118,16 +118,16 @@ Make these in red and pink. Swoon!
 
 ## Related Posts
 
+- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
+- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
+- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
+- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
+- [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
+- [valentines e card funny](https://funny.allwomenstalk.com/the-funniest-valentines-day-ecards/)
+- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
+- [valentine day pick up lines](https://love.allwomenstalk.com/the-best-pick-up-lines-to-use-on-valentines-day/)
 - [burn notice valentine](https://fitness.allwomenstalk.com/fun-ways-to-burn-calories-on-valentines-day/)
 - [valentines seafood dinner](https://food.allwomenstalk.com/valentines-day-dinners-to-make-for-your-man/)
-- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
-- [valentine day pick up lines](https://love.allwomenstalk.com/the-best-pick-up-lines-to-use-on-valentines-day/)
-- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
-- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
-- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
-- [valentines e card funny](https://funny.allwomenstalk.com/the-funniest-valentines-day-ecards/)
-- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
-- [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

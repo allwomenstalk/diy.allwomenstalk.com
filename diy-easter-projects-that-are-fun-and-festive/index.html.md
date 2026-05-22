@@ -3,7 +3,7 @@ title: "7 DIY Easter Projects That Are Fun and Festive ..."
 description: "Glitter Eggs; Chocolate Covered Strawberries- Easter Style; Salt Dough Easter Eggs; Chocolate Covered Oreo Bunnies; Peeps Kabobs; More ..."
 url: "https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 DIY Easter Projects That Are Fun and Festive ...
@@ -61,16 +61,16 @@ What are you making this Easter? I think I’m going to try out my glitter eggs 
 
 ## Related Posts
 
-- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
-- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
-- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
 - [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
-- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
+- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
 - [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
+- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
+- [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
+- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

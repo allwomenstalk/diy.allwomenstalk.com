@@ -3,7 +3,7 @@ title: "DIY Sleep Masks for Crafty Girls Wanting More Shut Eye ..."
 description: "Basic Sleep Mask; DIY Aromatherapy 'Cat Nap' Eye Pillows; Breakfast at Tiffany's Eye Mask; Cat Eye Mask; Eyes Eye Mask; More ..."
 url: "https://diy.allwomenstalk.com/need-more-shut-eye-diy-a-cute-sleep-mask/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # DIY Sleep Masks for Crafty Girls Wanting More Shut Eye ...
@@ -151,16 +151,16 @@ This is so cute I could be inspired to take up crochet.
 
 ## Related Posts
 
-- [always late gif](https://lifestyle.allwomenstalk.com/if-you-are-always-late-heres-how-to-deal-with-this-bad-habit/)
-- [early riser companion](https://lifestyle.allwomenstalk.com/only-early-risers-can-relate-to-these-pesky-problems/)
-- [going to bed alone](https://health.allwomenstalk.com/tips-for-better-sleep/)
-- [do you burn more calories when you sleep](https://weightloss.allwomenstalk.com/this-is-how-you-burn-more-calories-while-you-sleep/)
-- [does exercise help you sleep better](https://fitness.allwomenstalk.com/youll-get-better-sleep-after-doing-these-exercises/)
-- [color le stylo amber rush](https://beauty.allwomenstalk.com/how-to-get-the-beauty-sleep/)
 - [all nighter challenges](https://lifestyle.allwomenstalk.com/problems-that-all-night-owls-have-experienced-at-some-point/)
 - [sweetheart blazer](https://sleep.allwomenstalk.com/all-the-ways-your-sweetheart-is-destroying-your-sleep/)
-- [how to pull an all nighter by yourself](https://beauty.allwomenstalk.com/heres-how-girls-who-pulled-an-all-nighter-dont-let-it-show/)
+- [color le stylo amber rush](https://beauty.allwomenstalk.com/how-to-get-the-beauty-sleep/)
 - [what should i do on a sunday](https://lifestyle.allwomenstalk.com/do-these-things-on-sunday-night-to-make-monday-morning-easier/)
+- [do you burn more calories when you sleep](https://weightloss.allwomenstalk.com/this-is-how-you-burn-more-calories-while-you-sleep/)
+- [early riser companion](https://lifestyle.allwomenstalk.com/only-early-risers-can-relate-to-these-pesky-problems/)
+- [always late gif](https://lifestyle.allwomenstalk.com/if-you-are-always-late-heres-how-to-deal-with-this-bad-habit/)
+- [does exercise help you sleep better](https://fitness.allwomenstalk.com/youll-get-better-sleep-after-doing-these-exercises/)
+- [how to pull an all nighter by yourself](https://beauty.allwomenstalk.com/heres-how-girls-who-pulled-an-all-nighter-dont-let-it-show/)
+- [going to bed alone](https://health.allwomenstalk.com/tips-for-better-sleep/)
 - [7 Homemade Revitalizing Masks ...](https://skincare.allwomenstalk.com/homemade-revitalizing-masks/)
 - [8 Great DIY Masks for Pampered Hands and Feet ...](https://skincare.allwomenstalk.com/great-diy-masks-for-pampered-hands-and-feet/)
 

@@ -3,7 +3,7 @@ title: "53 Ideas for DIY Journals Diaries Smash Books and All the Extras ..."
 description: "One Line per Day; Travel Album/Journal; Vintage Envelopes Journal; Rolodex Scrapbook; DIY Envelope Book; More ..."
 url: "https://diy.allwomenstalk.com/ideas-for-diy-journals-diaries-smash-books-and-all-the-extras/"
 category: "diy"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 53 Ideas for DIY Journals Diaries Smash Books and All the Extras ...
@@ -346,16 +346,16 @@ The only limit to DIY journals is your imagination – oh, and maybe your crafti
 
 ## Related Posts
 
-- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
-- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
-- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
-- [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
 - [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
+- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
+- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
+- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
+- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
 - [7 Essential Scrapbooking Tools ...](https://allwomenstalk.com/essential-scrapbooking-tools/)
 - [12 Fun Crafty Projects Using Newspapers and Magazi...](https://lifestyle.allwomenstalk.com/fun-crafty-projects-using-newspapers-and-magazines/)
 

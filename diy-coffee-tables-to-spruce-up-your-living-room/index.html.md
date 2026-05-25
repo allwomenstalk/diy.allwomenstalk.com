@@ -3,7 +3,7 @@ title: "38 DIY Coffee Tables to Spruce up Your Place ..."
 description: "Metal Tub Coffee Table; How to Make a Coffee Table from Four Modular Crates; Paint Job; Pallet Coffee Table; Painted Folding out Coffee Table; More ..."
 url: "https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 38 DIY Coffee Tables to Spruce up Your Place ...
@@ -270,16 +270,16 @@ I'm wondering now whether any of these have tempted you to add carpentry to your
 
 ## Related Posts
 
-- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
-- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
-- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
-- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
 - [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
+- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
 - [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
 - [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
+- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
+- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
 - [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
-- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
 - [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
+- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)
 - [7 Fabulous Coffee Tables by Anthropologie ...](https://allwomenstalk.com/7-fabulous-coffee-tables-by-anthropologie/)
 

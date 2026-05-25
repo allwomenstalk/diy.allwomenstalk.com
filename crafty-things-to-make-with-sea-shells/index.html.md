@@ -3,7 +3,7 @@ title: "7 Crafty Things to Make with Sea Shells ..."
 description: "Candles; Light; Pillows; Soap Dish; Jewelry; More ..."
 url: "https://diy.allwomenstalk.com/crafty-things-to-make-with-sea-shells/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Crafty Things to Make with Sea Shells ...

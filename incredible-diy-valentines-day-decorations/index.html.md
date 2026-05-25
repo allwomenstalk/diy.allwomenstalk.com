@@ -3,7 +3,7 @@ title: "9 Incredible DIY Valentines Day Crafts You Can Make in under an Hour ...
 description: "Heart Shaped Wall Art; Cork Heart Decor; Candy Flower Vase; Painted Mason Jars; Lovers in a Tree Wall Art ‌; More ..."
 url: "https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Incredible DIY Valentines Day Crafts You Can Make in under an Hour ...
@@ -21,7 +21,7 @@ Tutorial: [tatertotsandjello.com](https://tatertotsandjello.com/2015/01/easy-10-
 
 ![finger food, snack, flavor,](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ze/dt/k4nc5m0q5a68ec7b03c1f342604419_600x900.jpg)
 
-If you have a bunch of wine corks lying around, use them to create this wonderful [table decor](https://diy.allwomenstalk.com/coffee-table-decor-ideas-that-dont-require-a-home-stylist/). Combined with some flowers and candles and you have a setting that is romantic and attractive.
+If you have a bunch of wine corks lying around, use them to create this wonderful table decor. Combined with some flowers and candles and you have a setting that is romantic and attractive.
 Tutorial: [sandandsisal.com](https://www.sandandsisal.com/2014/01/valentines-cork-heart.html)
 
 ## 3. Candy Flower Vase
@@ -80,16 +80,16 @@ This article was written in collaboration with editor Eliza Martinez
 
 ## Related Posts
 
+- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
+- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
+- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
+- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
 - [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
-- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
-- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
-- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
-- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 

@@ -3,7 +3,7 @@ title: "10 Cute and Creative Confetti Crafts ..."
 description: "Earrings; Plates; Cards; Tumblers; Linen Napkins; More ..."
 url: "https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Cute and Creative Confetti Crafts ...
@@ -91,14 +91,14 @@ Hope you found this list of **DIY confetti crafts** useful! For your next party,
 ## Related Posts
 
 - [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
-- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
-- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
 - [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
 - [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
+- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
+- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
 - [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)

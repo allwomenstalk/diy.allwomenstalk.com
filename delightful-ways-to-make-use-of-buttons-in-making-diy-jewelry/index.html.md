@@ -3,7 +3,7 @@ title: "8 Delightful Ways to Make Use of Buttons in Making DIY Jewelry ..."
 description: "Turn Metal Buttons into Earrings; Fashion a Layered Necklace; Make a Vintage-inspired Pendant; Stack Buttons into a Necklace; Go with a Floral Design; More ..."
 url: "https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Delightful Ways to Make Use of Buttons in Making DIY Jewelry ...
@@ -72,16 +72,16 @@ Have you ever made jewelry using buttons? We'd love to hear more unique DIY idea
 
 ## Related Posts
 
-- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
-- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
-- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
 - [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
-- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
-- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
-- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
-- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
 - [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
+- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
+- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
+- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
+- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
+- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
+- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [7 Tutorials on Making Your Own Super Stylish DIY A...](https://fashion.allwomenstalk.com/tutorials-on-making-your-own-super-stylish-diy-accessories/)
 

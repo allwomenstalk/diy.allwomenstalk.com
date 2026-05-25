@@ -3,7 +3,7 @@ title: "18 Christmas DIY Projects That Will Have You Singing Deck the Halls ..."
 description: "Cinnamon Stick Coaster; Flamingo Stockings; Cupcake Liner Christmas Trees; Rhinestone Ornaments; Robot Advent Calendar; More ..."
 url: "https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 18 Christmas DIY Projects That Will Have You Singing Deck the Halls ...
@@ -40,7 +40,7 @@ Needing to fill some void on your Christmas tree this year? Enlist in some sweet
 
 ![Robot Advent Calendar](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2012/12/5_robot-advent-calendar_600x409.jpg)
 
-Growing up, my [fondest memories](https://allwomenstalk.com/7-of-my-fondest-memories/) of the holidays were those mornings I woke and opened up a surprise from my Advent Calendar. My mother made ours every single year and I can't thank her enough for making the countdown to the big day so exciting. This Robot Advent Calendar will be sure to please the little man in your lives. One of those perfect Christmas DIY projects that will be useful for years and years to come.
+Growing up, my fondest memories of the holidays were those mornings I woke and opened up a surprise from my Advent Calendar. My mother made ours every single year and I can't thank her enough for making the countdown to the big day so exciting. This Robot Advent Calendar will be sure to please the little man in your lives. One of those perfect Christmas DIY projects that will be useful for years and years to come.
 **Tutorial:** [nexttonicx.com](https://nexttonicx.com/)
 
 ## 6. Candycane Necklace
@@ -134,16 +134,16 @@ Top Image Source: _theberry.com_
 
 ## Related Posts
 
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
 - [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
 - [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
+- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

@@ -3,7 +3,7 @@ title: "10 Beautiful DIY Votive Candle Holders ..."
 description: "Laced Cement; Glitter; Glass Pebble; Apples; Film Negative; More ..."
 url: "https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Beautiful DIY Votive Candle Holders ...
@@ -86,16 +86,16 @@ Got other ideas for making cute **DIY votive candle holders**? We'd love to hear
 
 ## Related Posts
 
-- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
-- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
-- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
-- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
 - [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 - [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
+- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
 - [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
 - [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
+- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

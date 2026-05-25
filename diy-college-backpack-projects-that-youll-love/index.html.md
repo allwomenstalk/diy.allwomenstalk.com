@@ -3,7 +3,7 @@ title: "7 DIY College Backpack Projects That Youll Love ..."
 description: "BEDAZZLE!!; Add That Bow; Patchy Artwork; Bubble Paint... Bubble Paint!; Decoupage; More ..."
 url: "https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 DIY College Backpack Projects That Youll Love ...
@@ -56,16 +56,16 @@ You should just have fun with this project. Let you inhibitions go and really ge
 
 ## Related Posts
 
-- [new years eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
+- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
 - [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
 - [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
-- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
 - [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
 - [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
-- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
-- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
 - [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
+- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
+- [new years eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
 - [7 Cute Bags for Back to School ...](https://allwomenstalk.com/7-cute-bags-for-back-to-school/)
 - [7 Great Back to School Bags ...](https://allwomenstalk.com/7-great-back-to-school-bags/)
 

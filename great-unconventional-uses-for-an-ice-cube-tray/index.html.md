@@ -3,7 +3,7 @@ title: "7 Great Unconventional Uses for an Ice Cube Tray ..."
 description: "Frozen Herbs; Jelly Shots; Wine Cubes; Jewellery Organisation; Seed Bombs; More ..."
 url: "https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Great Unconventional Uses for an Ice Cube Tray ...
@@ -20,7 +20,7 @@ Love growing your own herbs but hate not having them during the winter? This is 
 
 ![Jelly Shots](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/t4/i5/t7gnyo9t_600x450.jpg)
 
-If you love experimenting with different shots at parties, then [ice cube trays](https://food.allwomenstalk.com/is-this-the-ultimate-in-portion-control-ice-cube-tray-food/) are the perfect mold when making jelly shots! Just add gelatine or jelly mixture, your favourite cocktail recipe and some fresh, seasonal fruit, refrigerate and simply pop your shots out when you’re ready to serve them. Easy peasy!
+If you love experimenting with different shots at parties, then ice cube trays are the perfect mold when making jelly shots! Just add gelatine or jelly mixture, your favourite cocktail recipe and some fresh, seasonal fruit, refrigerate and simply pop your shots out when you’re ready to serve them. Easy peasy!
 
 ## 3. Wine Cubes
 
@@ -57,14 +57,14 @@ Who knew ice cube trays were so versatile!? If you think outside the box, there 
 ## Related Posts
 
 - [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
 - [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
-- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
 - [9 Silly Ornaments to Decorate Your Tree with ...](https://funny.allwomenstalk.com/silly-ornaments-to-decorate-your-tree-with/)
 - [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
-- [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
 - [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
 - [45 How to Make Tutorials for All Kinds of Stuff .....](https://diy.allwomenstalk.com/how-to-make-tutorials-for-all-kinds-of-stuff/)
+- [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
+- [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
 - [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [7 Tips for Great Home-Made Ice Cream ...](https://thecrepescafe.com/tips-for-great-home-made-ice-cream/)
 - [7 Ways to Use Milk Cartons ...](https://allwomenstalk.com/7-ways-to-use-milk-cartons/)

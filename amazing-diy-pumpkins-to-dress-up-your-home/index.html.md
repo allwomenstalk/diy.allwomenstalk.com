@@ -3,7 +3,7 @@ title: "33 Amazing DIY Pumpkins to Dress up Your Home ..."
 description: "All Wrapped up; No-Carve Pumpkin Ideas; Painted Pumpkins; DIY Sharpie Owl Pumpkins; Football Pumpkin; More ..."
 url: "https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 33 Amazing DIY Pumpkins to Dress up Your Home ...
@@ -239,16 +239,16 @@ I don't know about you, but now I'm in the decorating mood! Remember, pumpkins a
 
 ## Related Posts
 
-- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
-- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
-- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
 - [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
-- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
-- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
+- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
+- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
+- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
+- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [7 Fun and Creative Pumpkin Carving Ideas ...](https://lifestyle.allwomenstalk.com/fun-and-creative-pumpkin-carving-ideas/)
 

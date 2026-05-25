@@ -3,7 +3,7 @@ title: "34 DIY Dorm Room Decor Projects to Spice up Your Room ..."
 description: "Organizer; DIY Picture Display; DIY Decorative Cork Board; Cheese Grater Earring Holder; DIY Mirror Decorations; More ..."
 url: "https://diy.allwomenstalk.com/diy-dorm-room-decor-projects-to-spice-up-your-room/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 34 DIY Dorm Room Decor Projects to Spice up Your Room ...
@@ -238,16 +238,16 @@ No matter what your dorm room looks likes, hopefully you got some ideas on how t
 
 ## Related Posts
 
-- [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
-- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
 - [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
-- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
-- [funky painted bookshelves](https://books.allwomenstalk.com/bookshelves-to-stun-and-amaze-you/)
+- [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
 - [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
+- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
+- [funky painted bookshelves](https://books.allwomenstalk.com/bookshelves-to-stun-and-amaze-you/)
+- [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
+- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
+- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
 - [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
 - [diy kitchen tiles](https://diy.allwomenstalk.com/examples-of-kitchen-tile-that-you-can-do-yourself/)
-- [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
-- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
 - [12 Cute Craft Room Decor Ideas ...](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
 - [7 Ways to Decorate Your Dorm Room for Christmas .....](https://diy.allwomenstalk.com/ways-to-decorate-your-dorm-room-for-christmas/)
 

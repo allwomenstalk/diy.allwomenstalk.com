@@ -3,7 +3,7 @@ title: "10 Gorgeous DIY Table Runners ..."
 description: "Tiled; Tape Measure; Faux Leaves; Woven Jute; Rustic Rosettes; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-diy-table-runners/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Gorgeous DIY Table Runners ...
@@ -38,7 +38,7 @@ This is reminiscent of the felt leaf trivet I have linked to in [this post](http
 
 ![Woven Jute](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2012/10/417_451x321.jpg)
 
-This is a **DIY table runner** that will cost you only around $10 and also give you a rustic chic [table decor](https://diy.allwomenstalk.com/coffee-table-decor-ideas-that-dont-require-a-home-stylist/). The materials needed for this craft project are jute webbing cut into strips, hot glue, and sewing machine.
+This is a **DIY table runner** that will cost you only around $10 and also give you a rustic chic table decor. The materials needed for this craft project are jute webbing cut into strips, hot glue, and sewing machine.
 
 [Tutorial](https://goo.gl/1iBsqE)
 
@@ -92,16 +92,16 @@ I am aware that there are probably a gazillion ways to make **DIY table runners*
 
 ## Related Posts
 
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
 - [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
 - [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Ideas for Table Centerpieces ...](https://lifestyle.allwomenstalk.com/ideas-for-table-centerpieces/)
 

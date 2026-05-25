@@ -3,7 +3,7 @@ title: "7 Things to do with Candy Corn ..."
 description: "Gift It; Make a Cute Craft; Use It as a Fall Centerpiece; Decorate Cupcakes with It; Make a Fun Fall Garland; More ..."
 url: "https://diy.allwomenstalk.com/things-to-do-with-candy-corn/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things to do with Candy Corn ...

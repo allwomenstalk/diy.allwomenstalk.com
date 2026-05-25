@@ -3,7 +3,7 @@ title: "10 Fun Crafts Using Autumn Leaves ..."
 description: "Leaves Garland; Metallic on Canvas; Trivet; Pressed Art; Leaf Spirits; More ..."
 url: "https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Fun Crafts Using Autumn Leaves ...
@@ -86,15 +86,15 @@ I hope you enjoyed this list of **crafts using autumn leaves**. I'm sure you hav
 
 ## Related Posts
 
-- [loreal color riche eye shadow smoldering](https://diy.allwomenstalk.com/easy-diy-home-decorations/)
-- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
-- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
-- [9 Wonderful Bath DIYs ...](https://diy.allwomenstalk.com/wonderful-bath-diys/)
-- [bunny crafts](https://diy.allwomenstalk.com/adorable-bunny-crafts/)
 - [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
-- [10 Stylish and Sweet DIY Spring Accessories ...](https://diy.allwomenstalk.com/stylish-and-sweet-diy-spring-accessories/)
 - [8 Projects for a Beautiful DIY Necklace ...](https://diy.allwomenstalk.com/projects-for-a-beautiful-diy-necklace/)
+- [loreal color riche eye shadow smoldering](https://diy.allwomenstalk.com/easy-diy-home-decorations/)
+- [9 Wonderful Bath DIYs ...](https://diy.allwomenstalk.com/wonderful-bath-diys/)
+- [10 Stylish and Sweet DIY Spring Accessories ...](https://diy.allwomenstalk.com/stylish-and-sweet-diy-spring-accessories/)
+- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
+- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
 - [9 Pretty DIY Wreaths You Can Easily Make Yourself ...](https://diy.allwomenstalk.com/pretty-diy-wreaths-you-can-easily-make-yourself/)
+- [bunny crafts](https://diy.allwomenstalk.com/adorable-bunny-crafts/)
 - [9 Cute Ways to Upcycle around Your House ...](https://diy.allwomenstalk.com/cute-ways-to-upcycle-around-your-house/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)

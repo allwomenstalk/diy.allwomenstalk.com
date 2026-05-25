@@ -3,7 +3,7 @@ title: "12 Beautifully Creative DIY Bookends ..."
 description: "Baseball; Concrete; Pyrite; Telephone; Animal Toys; More ..."
 url: "https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/"
 category: "diy"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 12 Beautifully Creative DIY Bookends ...
@@ -98,16 +98,16 @@ So there you have creative and clever **DIY bookends**. Which of these tickled y
 
 ## Related Posts
 
-- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)
 

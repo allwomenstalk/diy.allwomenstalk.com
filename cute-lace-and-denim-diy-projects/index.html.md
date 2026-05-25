@@ -62,16 +62,16 @@ I'm sure you can think of more DIY projects using denim and lace. Care to share 
 
 ## Related Posts
 
-- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
-- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
-- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
-- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
-- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
-- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
-- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
 - [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
 - [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
+- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
+- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
+- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
+- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
+- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
 - [5 Fabulous DIY Fashion Ideas...](https://allwomenstalk.com/5-fabulous-diy-fashion-ideas/)
 

@@ -56,16 +56,16 @@ When you are redecorating a room, there are so many different things to consider
 
 ## Related Posts
 
+- [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
 - [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
-- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
 - [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
 - [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
-- [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
+- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
 - [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
-- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
-- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
+- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

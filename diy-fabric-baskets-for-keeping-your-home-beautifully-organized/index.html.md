@@ -82,16 +82,16 @@ I am now itching to try these DIY fabric boxes. The berry basket designs are cal
 
 ## Related Posts
 
-- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
-- [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
-- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
 - [new years eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
-- [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)
 - [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
+- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
 - [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
-- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
+- [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)
 - [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
+- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
+- [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
 - [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [6 Ways to Brighten up Your Home with Fabric ...](https://lifestyle.allwomenstalk.com/ways-to-brighten-up-your-home-with-fabric-2/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

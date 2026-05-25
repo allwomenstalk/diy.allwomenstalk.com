@@ -42,16 +42,16 @@ Do you Pinterest? Yes, I use it as a verb! What are you waiting for? Check it ou
 
 ## Related Posts
 
-- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
-- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
 - [baby easter crafts](https://diy.allwomenstalk.com/simple-easter-crafts-to-do-with-your-kids/)
-- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
 - [7 Creative Ombre Craft Projects to Try ...](https://diy.allwomenstalk.com/creative-ombre-craft-projects-to-try/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
 - [loreal color le stylo eye unforgettable lilac](https://diy.allwomenstalk.com/cool-diy-projects-to-make-with-a-rope/)
+- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
 - [7 Different Stitches You Can Use While Knitting .....](https://diy.allwomenstalk.com/different-stitches-you-can-use-while-knitting/)
 - [7 DIY Easter Projects That Are Fun and Festive ...](https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/)
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
 - [7 Cool Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-cool-paranormal-blogs/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

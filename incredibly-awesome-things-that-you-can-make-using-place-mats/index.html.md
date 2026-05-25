@@ -76,16 +76,16 @@ The next time you see pretty place mats, grab some and use them for some fun DIY
 
 ## Related Posts
 
-- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
-- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
-- [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
-- [cool thing to make at home](https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/)
-- [how to make homemade henna without henna powder or...](https://diy.allwomenstalk.com/love-tattoos-but-dont-want-to-get-inked-try-these-fabulous-diy-temporary-tattoos/)
-- [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
 - [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
+- [cool thing to make at home](https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/)
+- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
+- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
 - [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
+- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
+- [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
+- [how to make homemade henna without henna powder or...](https://diy.allwomenstalk.com/love-tattoos-but-dont-want-to-get-inked-try-these-fabulous-diy-temporary-tattoos/)
 - [8 Wedding Centerpiece Ideas That Look Amazing ...](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
 - [7 Fabulous Ideas to Dress up Your Dinner Table ...](https://cooking.allwomenstalk.com/7-fabulous-ideas-to-dress-up-your-dinner-table/)
 

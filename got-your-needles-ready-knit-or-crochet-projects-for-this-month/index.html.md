@@ -191,16 +191,16 @@ Source: [pinterest.com](https://www.pinterest.com/pin/9499849189645349/)
 
 ## Related Posts
 
-- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
-- [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
-- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
-- [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
+- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
 - [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
+- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
+- [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
+- [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
+- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
+- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
 - [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
 - [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
-- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
-- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
-- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
+- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
 - [10 Funky Yarns for Crafters ...](https://allwomenstalk.com/10-funky-yarns-for-crafters/)
 - [5 Easy Sewing Projects for Beginners ...](https://allwomenstalk.com/5-easy-sewing-projects-for-beginners/)
 

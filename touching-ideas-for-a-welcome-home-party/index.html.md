@@ -52,16 +52,16 @@ Do you have any more ideas for a welcome home surprise?
 
 ## Related Posts
 
-- [dorm mates](https://teen.allwomenstalk.com/quick-ways-to-become-friends-with-your-new-dormmates/)
-- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
-- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
-- [things to consider when emigrating](https://travel.allwomenstalk.com/things-to-consider-when-emigrating/)
-- [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
-- [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
-- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
-- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
 - [learn how to survive alone](https://lifestyle.allwomenstalk.com/important-lessons-you-learn-when-you-live-alone/)
+- [dorm mates](https://teen.allwomenstalk.com/quick-ways-to-become-friends-with-your-new-dormmates/)
+- [moving in with boyfriend quotes](https://love.allwomenstalk.com/great-reasons-to-wait-before-moving-in-with-your-boyfriend/)
+- [roommate houses for rent](https://money.allwomenstalk.com/practical-ways-to-save-on-rent-without-getting-a-roommate/)
 - [what to ask when apartment shopping](https://money.allwomenstalk.com/questions-you-need-to-ask-when-shopping-for-your-first-apartment/)
+- [moving into his house](https://love.allwomenstalk.com/tips-for-moving-into-your-partners-home/)
+- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
+- [things to consider when emigrating](https://travel.allwomenstalk.com/things-to-consider-when-emigrating/)
+- [holiday accommodation](https://travel.allwomenstalk.com/holiday-accommodation-issues-and-how-to-deal-with-them/)
+- [living in small apartment](https://lifestyle.allwomenstalk.com/ways-to-make-living-in-a-small-apartment-work/)
 - [7 Tips on How to Host a Cool Party ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-host-a-cool-party/)
 - [10 Sure Ways to Keep Your Party Guests Happy ...](https://lifestyle.allwomenstalk.com/sure-ways-to-keep-your-party-guests-happy/)
 

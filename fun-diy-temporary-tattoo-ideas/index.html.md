@@ -68,16 +68,16 @@ There are several shops online where you can get the paper for making your own D
 
 ## Related Posts
 
-- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
-- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
-- [plain wooden bangles](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover/)
-- [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
-- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
-- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
 - [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
-- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
-- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
+- [plain wooden bangles](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover/)
+- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
 - [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
+- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
+- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
+- [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
+- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
+- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
+- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Fun and Creative Pumpkin Carving Ideas ...](https://lifestyle.allwomenstalk.com/fun-and-creative-pumpkin-carving-ideas/)
 

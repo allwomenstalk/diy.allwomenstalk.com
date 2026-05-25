@@ -90,16 +90,16 @@ I hope you enjoyed this list of ways to **reuse hula hoops**. Got other fab idea
 
 ## Related Posts
 
-- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
-- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
 - [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [8 Clever Uses for Plastic Bags ...](https://allwomenstalk.com/8-clever-uses-for-plastic-bags/)
 - [10 Cute and Creative Ways to Repurpose Altoid Tins...](https://lifestyle.allwomenstalk.com/cute-and-creative-ways-to-repurpose-altoid-tins/)
 

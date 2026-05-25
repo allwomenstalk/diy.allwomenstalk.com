@@ -74,14 +74,14 @@ I don't know about you but these have inspired me to give our art wall an update
 
 ## Related Posts
 
-- [7 Crafty Things to Make with Sea Shells ...](https://diy.allwomenstalk.com/crafty-things-to-make-with-sea-shells/)
+- [10 DIY Toolkit Essentials ...](https://diy.allwomenstalk.com/diy-toolkit-essentials/)
 - [diy ideas for beginners](https://diy.allwomenstalk.com/simple-diy-projects-for-beginners/)
 - [crochet hydrangeas](https://diy.allwomenstalk.com/pretty-crocheted-flowers-to-add-to-any-project/)
-- [12 Steps to Sewing a Simple Beach Bag Using a Pill...](https://diy.allwomenstalk.com/steps-to-sewing-a-simple-beach-bag-using-a-pillow-case/)
-- [7 Awesome DIY Decorative Accents to Create from Re...](https://diy.allwomenstalk.com/awesome-diy-decorative-accents-to-create-from-recycled-products/)
-- [10 DIY Toolkit Essentials ...](https://diy.allwomenstalk.com/diy-toolkit-essentials/)
-- [cute diy necklaces](https://diy.allwomenstalk.com/fabulous-diy-floral-necklaces/)
+- [7 Crafty Things to Make with Sea Shells ...](https://diy.allwomenstalk.com/crafty-things-to-make-with-sea-shells/)
 - [7 Adorable Yet Inexpensive Crafts That Kids Will L...](https://parenting.allwomenstalk.com/adorable-yet-inexpensive-crafts-that-kids-will-love/)
+- [7 Awesome DIY Decorative Accents to Create from Re...](https://diy.allwomenstalk.com/awesome-diy-decorative-accents-to-create-from-recycled-products/)
+- [cute diy necklaces](https://diy.allwomenstalk.com/fabulous-diy-floral-necklaces/)
+- [12 Steps to Sewing a Simple Beach Bag Using a Pill...](https://diy.allwomenstalk.com/steps-to-sewing-a-simple-beach-bag-using-a-pillow-case/)
 - [brookite flagpole instructions](https://parenting.allwomenstalk.com/summer-kids-crafts/)
 - [facts about fall for preschoolers](https://parenting.allwomenstalk.com/fall-themed-crafts-to-create-with-preschoolers/)
 - [7 Very Colorful Photo Frames ...](https://allwomenstalk.com/7-very-colorful-photo-frames/)

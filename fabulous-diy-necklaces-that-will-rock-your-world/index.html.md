@@ -245,15 +245,15 @@ Are you inspired to make your own jewelry now? Which project are you going to st
 ## Related Posts
 
 - [summer statement necklaces](https://jewelry.allwomenstalk.com/statement-necklaces-to-complete-your-summery-look/)
-- [kaira engagement ring](https://jewelry.allwomenstalk.com/perfect-engagement-ring-inspos-every-girl-will-love/)
-- [neon earrings amazon](https://jewelry.allwomenstalk.com/pairs-of-neon-earrings-that-will-rock-your-world/)
-- [pandora bracelet minnie mouse](https://jewelry.allwomenstalk.com/the-prettiest-pieces-from-pandoras-disney-sweethearts-collection/)
-- [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
-- [buzz lightyear tatoo](https://beauty.allwomenstalk.com/these-3-d-tattoos-are-totally-shocking-you-have-to-see-to-believe/)
-- [laser cut gold jewelry](https://jewelry.allwomenstalk.com/the-loveliest-pieces-of-laser-cut-jewelry/)
-- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
 - [inner helix ear](https://jewelry.allwomenstalk.com/types-of-ear-piercings/)
 - [festival flower headband](https://hair.allwomenstalk.com/fabulous-coachella-inspired-flower-headbands-and-crowns/)
+- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
+- [pandora bracelet minnie mouse](https://jewelry.allwomenstalk.com/the-prettiest-pieces-from-pandoras-disney-sweethearts-collection/)
+- [buzz lightyear tatoo](https://beauty.allwomenstalk.com/these-3-d-tattoos-are-totally-shocking-you-have-to-see-to-believe/)
+- [neon earrings amazon](https://jewelry.allwomenstalk.com/pairs-of-neon-earrings-that-will-rock-your-world/)
+- [laser cut gold jewelry](https://jewelry.allwomenstalk.com/the-loveliest-pieces-of-laser-cut-jewelry/)
+- [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
+- [kaira engagement ring](https://jewelry.allwomenstalk.com/perfect-engagement-ring-inspos-every-girl-will-love/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [8 Gorgeous Layering Necklaces ...](https://jewelry.allwomenstalk.com/gorgeous-layering-necklaces/)
 

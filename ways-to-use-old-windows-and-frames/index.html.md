@@ -223,16 +223,16 @@ I'm so inspired by these projects my house windows are not safe! Nah - don't wor
 
 ## Related Posts
 
-- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
-- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
-- [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
-- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
-- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
-- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
-- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
-- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
-- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
 - [berry decorations](https://diy.allwomenstalk.com/berry-themed-decorations-for-a-seasonal-touch/)
+- [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
+- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
+- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
+- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
+- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
+- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
+- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
+- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
+- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
 - [7 Home Decorating Tips on How to Reuse Old Picture...](https://lifestyle.allwomenstalk.com/home-decorating-tips-on-how-to-reuse-old-picture-frames/)
 - [8 Ideas for Recyling or Reusing Household Trash .....](https://allwomenstalk.com/8-ideas-for-recyling-or-reusing-household-trash/)
 

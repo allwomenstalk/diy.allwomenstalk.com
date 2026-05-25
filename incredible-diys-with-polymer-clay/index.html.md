@@ -72,16 +72,16 @@ Top Image Source: [delightedmomma.com](http://www.delightedmomma.com/2012/03/diy
 
 ## Related Posts
 
-- [10 Stylish and Sweet DIY Spring Accessories ...](https://diy.allwomenstalk.com/stylish-and-sweet-diy-spring-accessories/)
-- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
-- [9 Pretty DIY Wreaths You Can Easily Make Yourself ...](https://diy.allwomenstalk.com/pretty-diy-wreaths-you-can-easily-make-yourself/)
-- [bunny crafts](https://diy.allwomenstalk.com/adorable-bunny-crafts/)
-- [8 Projects for a Beautiful DIY Necklace ...](https://diy.allwomenstalk.com/projects-for-a-beautiful-diy-necklace/)
-- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
-- [7 DIY Wall Art Tutorials ...](https://diy.allwomenstalk.com/diy-wall-art-tutorials/)
-- [loreal color riche eye shadow smoldering](https://diy.allwomenstalk.com/easy-diy-home-decorations/)
-- [9 Cute Ways to Upcycle around Your House ...](https://diy.allwomenstalk.com/cute-ways-to-upcycle-around-your-house/)
 - [9 Wonderful Bath DIYs ...](https://diy.allwomenstalk.com/wonderful-bath-diys/)
+- [7 DIY Wall Art Tutorials ...](https://diy.allwomenstalk.com/diy-wall-art-tutorials/)
+- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
+- [9 Cute Ways to Upcycle around Your House ...](https://diy.allwomenstalk.com/cute-ways-to-upcycle-around-your-house/)
+- [8 Projects for a Beautiful DIY Necklace ...](https://diy.allwomenstalk.com/projects-for-a-beautiful-diy-necklace/)
+- [9 Pretty DIY Wreaths You Can Easily Make Yourself ...](https://diy.allwomenstalk.com/pretty-diy-wreaths-you-can-easily-make-yourself/)
+- [loreal color riche eye shadow smoldering](https://diy.allwomenstalk.com/easy-diy-home-decorations/)
+- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
+- [10 Stylish and Sweet DIY Spring Accessories ...](https://diy.allwomenstalk.com/stylish-and-sweet-diy-spring-accessories/)
+- [bunny crafts](https://diy.allwomenstalk.com/adorable-bunny-crafts/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 

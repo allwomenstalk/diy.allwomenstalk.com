@@ -161,15 +161,15 @@ Are you going to try any of these fab lotion bars at home? Let us know in the co
 
 ## Related Posts
 
-- [luxurious bubble bath](https://beauty.allwomenstalk.com/simple-step-by-step-guide-the-most-luxurious-bubble-bath-of-your-life/)
-- [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
 - [linas body butters](https://skincare.allwomenstalk.com/body-oil-products-for-girls-who-want-the-smoothest-skin-this-winter/)
-- [homemade chemical peels](https://skincare.allwomenstalk.com/latest-penetrating-diy-facial-peels-for-girls-who-want-a-deep-glow/)
-- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
-- [newest korean](https://beauty.allwomenstalk.com/newest-korean-beauty-products-for-girls-who-want-nothing-but-perfect-skin/)
-- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
 - [shiny face skin](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-with-shiny-skin/)
 - [hand exfoliator diy](https://skincare.allwomenstalk.com/diy-scrubs-for-girls-who-want-soft-hands/)
+- [homemade chemical peels](https://skincare.allwomenstalk.com/latest-penetrating-diy-facial-peels-for-girls-who-want-a-deep-glow/)
+- [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
+- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
+- [luxurious bubble bath](https://beauty.allwomenstalk.com/simple-step-by-step-guide-the-most-luxurious-bubble-bath-of-your-life/)
+- [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
+- [newest korean](https://beauty.allwomenstalk.com/newest-korean-beauty-products-for-girls-who-want-nothing-but-perfect-skin/)
 - [exposed acne product](https://skincare.allwomenstalk.com/you-can-now-get-this-popular-acne-medication-over-the-counter-for-the-first-time-ever/)
 - [8 Quickie DIY All-natural Beauty Products ...](https://beauty.allwomenstalk.com/quickie-diy-all-natural-beauty-products/)
 - [21 All-natural DIY Beauty Products Youll Love ...](https://beauty.allwomenstalk.com/all-natural-diy-beauty-products-youll-love/)

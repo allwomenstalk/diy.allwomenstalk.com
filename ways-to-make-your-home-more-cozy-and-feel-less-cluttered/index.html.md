@@ -68,15 +68,15 @@ What’s your favorite tip to make a home more cozy? I’m sure we all have our 
 
 ## Related Posts
 
-- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
-- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
 - [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
-- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
+- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
 - [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
-- [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
-- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
 - [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
+- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
 - [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
+- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
+- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
+- [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
 - [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
 - [9 Home Ideas That Will Solve Your Storage Woes ...](https://allwomenstalk.com/best-home-storage-ideas/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)

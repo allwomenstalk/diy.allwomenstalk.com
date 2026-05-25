@@ -70,16 +70,16 @@ Whew! Those were some of the most colorful DIY projects we have listed here. I a
 
 ## Related Posts
 
-- [home decoration hacks](https://diy.allwomenstalk.com/designer-decor-hacks-you-can-fake-on-a-dime/)
-- [makeovers for girls](https://diy.allwomenstalk.com/ways-to-makeover-your-room-for-girls-looking-for-a-change/)
-- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
-- [office inspo](https://money.allwomenstalk.com/awesome-home-office-inspo-for-people-working-from-home/)
-- [romantic bedroom decorating](https://diy.allwomenstalk.com/bedroom-decor-ideas-for-romantics/)
-- [devi designs t.j. maxx](https://lifestyle.allwomenstalk.com/cutest-affordable-easter-decor-to-get-your-home-instagram-ready/)
-- [chic home decor](https://diy.allwomenstalk.com/shabby-chic-home-decor-ideas-you-should-steal/)
-- [interior design furniture standard dimensions](https://lifestyle.allwomenstalk.com/these-decorating-infographics-will-help-you-create-your-dream-home/)
 - [neutral living room with splash of colour](https://diy.allwomenstalk.com/how-to-add-a-splash-of-color-to-any-and-all-rooms/)
+- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
+- [devi designs t.j. maxx](https://lifestyle.allwomenstalk.com/cutest-affordable-easter-decor-to-get-your-home-instagram-ready/)
+- [interior design furniture standard dimensions](https://lifestyle.allwomenstalk.com/these-decorating-infographics-will-help-you-create-your-dream-home/)
 - [gypsy decorating style](https://diy.allwomenstalk.com/boho-chic-bedroom-deco-tips-for-girls-with-a-gypsy-soul/)
+- [makeovers for girls](https://diy.allwomenstalk.com/ways-to-makeover-your-room-for-girls-looking-for-a-change/)
+- [romantic bedroom decorating](https://diy.allwomenstalk.com/bedroom-decor-ideas-for-romantics/)
+- [chic home decor](https://diy.allwomenstalk.com/shabby-chic-home-decor-ideas-you-should-steal/)
+- [home decoration hacks](https://diy.allwomenstalk.com/designer-decor-hacks-you-can-fake-on-a-dime/)
+- [office inspo](https://money.allwomenstalk.com/awesome-home-office-inspo-for-people-working-from-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

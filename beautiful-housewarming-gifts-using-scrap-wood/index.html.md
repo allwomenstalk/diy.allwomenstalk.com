@@ -68,15 +68,15 @@ And here is some [additional reading](https://thatsweetgift.com/housewarming-gif
 
 ## Related Posts
 
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
 - [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
-- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
 - [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
+- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
 - [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
 - [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
 - [7 Ways to Decorate with Faux Wood ...](https://lifestyle.allwomenstalk.com/ways-to-decorate-with-faux-wood/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)

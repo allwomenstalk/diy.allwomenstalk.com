@@ -90,16 +90,16 @@ Know other fun **St. Patrick's Day crafts**? Share them with us! We'll kiss you 
 
 ## Related Posts
 
+- [cute diy necklaces](https://diy.allwomenstalk.com/fabulous-diy-floral-necklaces/)
+- [diy ideas for beginners](https://diy.allwomenstalk.com/simple-diy-projects-for-beginners/)
+- [7 Easter Craft Ideas ...](https://lifestyle.allwomenstalk.com/easter-craft-ideas/)
 - [7 DIY Projects for Mommies ...](https://diy.allwomenstalk.com/diy-projects-for-mommies/)
 - [7 Recycled Craft Ideas ...](https://diy.allwomenstalk.com/recycled-craft-ideas/)
-- [7 Awesome DIY Decorative Accents to Create from Re...](https://diy.allwomenstalk.com/awesome-diy-decorative-accents-to-create-from-recycled-products/)
-- [cute diy necklaces](https://diy.allwomenstalk.com/fabulous-diy-floral-necklaces/)
-- [7 Easy DIY Jewelry Tutorials Using Common Objects ...](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-using-common-objects/)
-- [diy ideas for beginners](https://diy.allwomenstalk.com/simple-diy-projects-for-beginners/)
 - [7 Adorable Yet Inexpensive Crafts That Kids Will L...](https://parenting.allwomenstalk.com/adorable-yet-inexpensive-crafts-that-kids-will-love/)
+- [7 Awesome DIY Decorative Accents to Create from Re...](https://diy.allwomenstalk.com/awesome-diy-decorative-accents-to-create-from-recycled-products/)
 - [brookite flagpole instructions](https://parenting.allwomenstalk.com/summer-kids-crafts/)
+- [7 Easy DIY Jewelry Tutorials Using Common Objects ...](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-using-common-objects/)
 - [10 Lovely DIY Photo Frames to Make ...](https://diy.allwomenstalk.com/lovely-diy-photo-frames-to-make/)
-- [7 Easter Craft Ideas ...](https://lifestyle.allwomenstalk.com/easter-craft-ideas/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

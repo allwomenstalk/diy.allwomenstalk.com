@@ -58,16 +58,16 @@ There are a lot of things you can do to make your home more welcoming. I just me
 
 ## Related Posts
 
-- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
-- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
 - [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
-- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
-- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
-- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
-- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
-- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
-- [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
 - [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
+- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
+- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
+- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
+- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
+- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
+- [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
+- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)
 - [10 Pretty Details to Add to Your Home ...](https://allwomenstalk.com/10-pretty-details-to-add-to-your-home/)
 

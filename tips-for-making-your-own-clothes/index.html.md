@@ -42,15 +42,15 @@ Sewing your own clothes is not as difficult as you might think. There are thousa
 
 ## Related Posts
 
-- [black bralette under blazer](https://fashion.allwomenstalk.com/everyday-ways-to-own-the-leather-look/)
+- [leapord print pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leopard-print-like-a-wild-cat/)
 - [sparkly denim outfit](https://streetstyle.allwomenstalk.com/wonderful-street-style-ways-to-wear-sequins/)
-- [stylish diy old clothes ideas](https://diy.allwomenstalk.com/easy-ways-to-update-your-old-clothes-with-dye/)
-- [how to dress nice](https://fashion.allwomenstalk.com/easy-ways-to-start-dressing-nicer-rather-than-living-in-sweatpants/)
 - [street makeup look](https://streetstyle.allwomenstalk.com/eye-catching-colourful-street-style-looks-you-can-recreate/)
+- [summer themed clothes](https://fashion.allwomenstalk.com/ways-to-reuse-summer-clothes-during-winter/)
+- [black bralette under blazer](https://fashion.allwomenstalk.com/everyday-ways-to-own-the-leather-look/)
 - [fearne cotton wedding dress copy](https://fashion.allwomenstalk.com/fearne-cotton-looks-that-you-need-to-copy/)
 - [jeans and dr martens](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-boyfriend-jeans/)
-- [summer themed clothes](https://fashion.allwomenstalk.com/ways-to-reuse-summer-clothes-during-winter/)
-- [leapord print pants](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-leopard-print-like-a-wild-cat/)
+- [how to dress nice](https://fashion.allwomenstalk.com/easy-ways-to-start-dressing-nicer-rather-than-living-in-sweatpants/)
+- [stylish diy old clothes ideas](https://diy.allwomenstalk.com/easy-ways-to-update-your-old-clothes-with-dye/)
 - [floral printed handbags](https://fashion.allwomenstalk.com/wonderful-ways-to-wear-floral-print/)
 - [10 Tips on How to Build Your Wardrobe ...](https://fashion.allwomenstalk.com/tips-on-how-to-build-your-wardrobe/)
 - [7 Must Know Fashion Tips ...](https://allwomenstalk.com/7-must-know-fashion-tips/)

@@ -98,16 +98,16 @@ These would make such a sweet gift!
 
 ## Related Posts
 
-- [How to Make a Designer Bouquet for under 30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
-- [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
-- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
-- [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
 - [These 21 Crochet Projects Are Perfect for Beginner...](https://diy.allwomenstalk.com/these-crochet-projects-are-perfect-for-beginners/)
-- [23 Fun  DIY Projects to Keep Photographers Busy fo...](https://diy.allwomenstalk.com/these-diy-projects-will-keep-photographers-busy-for-days/)
-- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
-- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
 - [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
 - [naztazia waffle stitch](https://diy.allwomenstalk.com/crocheting-videos-for-girls-who-want-to-be-creative/)
+- [How to Make a Designer Bouquet for under 30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
+- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
+- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
+- [23 Fun  DIY Projects to Keep Photographers Busy fo...](https://diy.allwomenstalk.com/these-diy-projects-will-keep-photographers-busy-for-days/)
+- [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
+- [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
+- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
 - [5 Facts on the Christmas Tree ...](https://gardening.allwomenstalk.com/5-facts-on-the-christmas-tree/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 

@@ -268,15 +268,15 @@ What do you think? Will you be having a go at any of these DIY carnival games fo
 ## Related Posts
 
 - [host a game night](https://lifestyle.allwomenstalk.com/reasons-to-host-a-game-night-with-your-friends/)
+- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
+- [activities that dont involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
+- [dinner buffet menus](https://food.allwomenstalk.com/fall-party-buffet-menu-ideas/)
 - [world teachers day gifts](https://inspiration.allwomenstalk.com/different-ways-to-celebrate-world-teachers-day/)
+- [fun activities for singles](https://lifestyle.allwomenstalk.com/exciting-things-to-try-while-youre-still-single/)
+- [babysitting activity ideas](https://lifestyle.allwomenstalk.com/fall-activities-to-do-when-babysitting/)
+- [cake made out of watermelon](https://food.allwomenstalk.com/fun-things-to-make-with-a-watermelon/)
 - [free parking hollywood walk of fame](https://travel.allwomenstalk.com/fun-free-things-to-do-in-los-angeles/)
 - [pinktober activities](https://lifestyle.allwomenstalk.com/pink-activities-to-celebrate-breast-cancer-awareness-month/)
-- [babysitting activity ideas](https://lifestyle.allwomenstalk.com/fall-activities-to-do-when-babysitting/)
-- [playroom layouts](https://parenting.allwomenstalk.com/epic-playroom-ideas-your-kids-are-going-to-go-crazy-for/)
-- [cake made out of watermelon](https://food.allwomenstalk.com/fun-things-to-make-with-a-watermelon/)
-- [activities that dont involve food](https://lifestyle.allwomenstalk.com/fun-fall-activities-that-dont-involve-food/)
-- [fun activities for singles](https://lifestyle.allwomenstalk.com/exciting-things-to-try-while-youre-still-single/)
-- [dinner buffet menus](https://food.allwomenstalk.com/fall-party-buffet-menu-ideas/)
 - [5 Awesome Spooky Party Themes ...](https://twilight.allwomenstalk.com/5-awesome-spooky-party-themes/)
 - [7 Halloween Accessories That Rock ...](https://lifestyle.allwomenstalk.com/halloween-accessories-that-rock/)
 

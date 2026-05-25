@@ -88,16 +88,16 @@ So there you have cute **DIY gift boxes**. If you want your gifts to make an imp
 
 ## Related Posts
 
-- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
 - [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
-- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
-- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
 - [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
+- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
+- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

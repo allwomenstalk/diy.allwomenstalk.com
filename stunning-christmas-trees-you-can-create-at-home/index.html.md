@@ -190,16 +190,16 @@ What's your Christmas tree decorating style? I usually let the kids take control
 
 ## Related Posts
 
-- [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
-- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
 - [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
-- [how to make a window pane](https://diy.allwomenstalk.com/ways-to-use-old-windows-and-frames/)
-- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
-- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
-- [big fireplaces](https://lifestyle.allwomenstalk.com/great-fireplaces-to-center-your-entire-home/)
-- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
-- [berry decorations](https://diy.allwomenstalk.com/berry-themed-decorations-for-a-seasonal-touch/)
 - [cute ideas to decorate your room](https://diy.allwomenstalk.com/ways-to-decorate-your-bedroom-for-christmas-under-50/)
+- [berry decorations](https://diy.allwomenstalk.com/berry-themed-decorations-for-a-seasonal-touch/)
+- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
+- [big fireplaces](https://lifestyle.allwomenstalk.com/great-fireplaces-to-center-your-entire-home/)
+- [how to make a window pane](https://diy.allwomenstalk.com/ways-to-use-old-windows-and-frames/)
+- [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
+- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
+- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
+- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
 - [12 Top Tips on Decorating Christmas Trees ...](https://allwomenstalk.com/12-top-tips-on-decorating-christmas-trees/)
 - [10 Christmas Tree Decoration Ideas ...](https://allwomenstalk.com/10-christmas-tree-decoration-ideas/)
 

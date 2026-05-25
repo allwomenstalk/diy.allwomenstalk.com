@@ -45,16 +45,16 @@ For more pictures and details, go to Courtney's blog post for the above video:
 
 ## Related Posts
 
-- [valentine day surprise for husband](https://love.allwomenstalk.com/how-to-surprise-your-husband-on-valentines-day/)
-- [receiving gifts love language examples](https://love.allwomenstalk.com/ways-to-love-those-with-a-receiving-gifts-love-language/)
+- [acts of service in long distance relationship](https://love.allwomenstalk.com/ways-to-love-those-with-an-acts-of-service-love-language/)
+- [v day video](https://love.allwomenstalk.com/valentines-day-date-night-ideas-for-single-girls/)
+- [paris le smoky neon skirt](https://love.allwomenstalk.com/flirting-hacks-for-valentines-day/)
 - [what type of girlfriend are you](https://love.allwomenstalk.com/what-type-of-girlfriend-are-you-on-valentines-day/)
 - [how to show quality time love language](https://love.allwomenstalk.com/ways-to-love-those-with-a-quality-time-love-language/)
 - [physical touch pictures](https://love.allwomenstalk.com/ways-to-love-those-with-a-physical-touch-love-language/)
-- [acts of service in long distance relationship](https://love.allwomenstalk.com/ways-to-love-those-with-an-acts-of-service-love-language/)
-- [v day video](https://love.allwomenstalk.com/valentines-day-date-night-ideas-for-single-girls/)
-- [how to deal with words of affirmation](https://love.allwomenstalk.com/ways-to-love-those-with-a-words-of-affirmation-love-language/)
 - [what is a hopeless romantic guy](https://love.allwomenstalk.com/a-letter-to-the-hopeless-romantic/)
-- [paris le smoky neon skirt](https://love.allwomenstalk.com/flirting-hacks-for-valentines-day/)
+- [how to deal with words of affirmation](https://love.allwomenstalk.com/ways-to-love-those-with-a-words-of-affirmation-love-language/)
+- [valentine day surprise for husband](https://love.allwomenstalk.com/how-to-surprise-your-husband-on-valentines-day/)
+- [receiving gifts love language examples](https://love.allwomenstalk.com/ways-to-love-those-with-a-receiving-gifts-love-language/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [Making Your Partners Day ...](https://allwomenstalk.com/making-your-partners-day/)
 

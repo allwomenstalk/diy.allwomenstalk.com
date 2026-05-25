@@ -718,16 +718,16 @@ Hi! Hi! Hi! We are going strong here At The Picket Fence! We’re working our wa
 
 ## Related Posts
 
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
-- [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
-- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 - [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
 - [Catchy Christmas Crafts: Delightful DIY Gifts  Dec...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
+- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
+- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
+- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

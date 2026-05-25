@@ -42,16 +42,16 @@ What do you use duct tape for? Will you be trying any of these hacks?
 
 ## Related Posts
 
+- [great hair products](https://hair.allwomenstalk.com/raid-the-fridge-for-these-great-hair-products/)
+- [woolies oil and grime spray](https://diy.allwomenstalk.com/effective-grease-and-oil-stain-removal-tips/)
+- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
 - [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
+- [decluttering your cellphone](https://lifestyle.allwomenstalk.com/do-these-things-if-you-want-to-declutter-your-digital-life/)
 - [steam mop hacks](https://lifestyle.allwomenstalk.com/cleaning-hacks-for-lazy-ladies/)
 - [houseproud cleaners](https://diy.allwomenstalk.com/kitchen-staples-that-will-clean-almost-anything/)
-- [great hair products](https://hair.allwomenstalk.com/raid-the-fridge-for-these-great-hair-products/)
-- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
 - [digital closet apps](https://apps.allwomenstalk.com/apps-you-can-use-to-organize-your-closet/)
 - [how to fix a scratch on your phone screen](https://diy.allwomenstalk.com/heres-how-to-make-your-phone-look-like-new-with-these-simple-tricks/)
-- [woolies oil and grime spray](https://diy.allwomenstalk.com/effective-grease-and-oil-stain-removal-tips/)
 - [how to deodorize sneakers](https://shoes.allwomenstalk.com/simple-ways-to-de-odorize-smelly-shoes/)
-- [decluttering your cellphone](https://lifestyle.allwomenstalk.com/do-these-things-if-you-want-to-declutter-your-digital-life/)
 - [7 Smart Wax Paper Uses You Never Knew ...](https://lifestyle.allwomenstalk.com/smart-wax-paper-uses-you-never-knew/)
 - [9 Clever Ways to Repurpose Clothespins ...](https://lifestyle.allwomenstalk.com/clever-ways-to-repurpose-clothespins/)
 

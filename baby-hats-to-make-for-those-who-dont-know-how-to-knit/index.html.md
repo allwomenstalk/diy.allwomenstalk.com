@@ -62,14 +62,14 @@ There are several patterns here that will be perfect for my 1-year old niece. Ho
 
 ## Related Posts
 
-- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
-- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
-- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
-- [Super Fun Holiday Crafts for when Its Too Cold to ...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
-- [Turn Your Ugly Christmas Sweater into an Adorable ...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
 - [Stunning Watercolor DIYs for Girls Who Want to Pai...](https://diy.allwomenstalk.com/delightful-diy-watercolor-projects-that-are-not-wall-art/)
-- [Top Your Holiday Tree with These 21 DIY Stars ...](https://diy.allwomenstalk.com/top-your-holiday-tree-with-these-diy-stars/)
+- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
 - [naztazia waffle stitch](https://diy.allwomenstalk.com/crocheting-videos-for-girls-who-want-to-be-creative/)
+- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
+- [Super Fun Holiday Crafts for when Its Too Cold to ...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
+- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
+- [Top Your Holiday Tree with These 21 DIY Stars ...](https://diy.allwomenstalk.com/top-your-holiday-tree-with-these-diy-stars/)
+- [Turn Your Ugly Christmas Sweater into an Adorable ...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
 - [7 Absolutely Fun Faux Cactus DIY Projects for Your...](https://diy.allwomenstalk.com/absolutely-fun-faux-cactus-diy-projects-for-your-home/)
 - [8 Beautiful Benches You Can Make Yourself ...](https://diy.allwomenstalk.com/beautiful-benches-you-can-make-yourself/)
 - [7 Fashionable Cable Knits ...](https://fashion.allwomenstalk.com/7-fashionable-cable-knits/)

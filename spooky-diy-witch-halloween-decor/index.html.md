@@ -92,16 +92,16 @@ Ready for some witchy Halloween fun? Give some of these **witch-inspired Hallowe
 
 ## Related Posts
 
-- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
 - [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
-- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
 - [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
 - [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
 - [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
-- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
+- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 - [7 Cool Ideas for Pumpkin Decorating This Halloween...](https://allwomenstalk.com/7-cool-ideas-for-pumpkins-this-halloween/)
 

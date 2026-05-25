@@ -130,16 +130,16 @@ Honestly, this Lia Griffith can make gorgeous flowers out of ANYTHING.
 
 ## Related Posts
 
+- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
+- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
+- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
 - [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
-- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
 - [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
 - [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
-- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
-- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
 - [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
-- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 

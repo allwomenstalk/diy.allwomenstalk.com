@@ -78,16 +78,16 @@ I hope that these DIY swimwear tutorials inspire you to start sewing soon. If yo
 
 ## Related Posts
 
-- [lingerie for bigger girls](https://fashion.allwomenstalk.com/sexy-lingerie-items-for-plus-size-girls/)
-- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
-- [best lingerie for small women](https://fashion.allwomenstalk.com/beautiful-lingerie-pieces-for-petite-women/)
-- [very revealing swimwear](https://fashion.allwomenstalk.com/not-revealing-swimsuits-that-are-just-as-sexy/)
-- [beach belle plus size swimwear](https://fashion.allwomenstalk.com/flattering-bathing-suits-for-plus-sized-figures/)
-- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
 - [buying lingerie](https://fashion.allwomenstalk.com/tips-for-buying-lingerie/)
-- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
+- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
+- [beach belle plus size swimwear](https://fashion.allwomenstalk.com/flattering-bathing-suits-for-plus-sized-figures/)
 - [cutest tankinis](https://fashion.allwomenstalk.com/sultry-plus-size-swimsuits/)
 - [sexiest bra](https://fashion.allwomenstalk.com/fun-and-sexy-bras-to-make-you-feel-flirty/)
+- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
+- [very revealing swimwear](https://fashion.allwomenstalk.com/not-revealing-swimsuits-that-are-just-as-sexy/)
+- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
+- [lingerie for bigger girls](https://fashion.allwomenstalk.com/sexy-lingerie-items-for-plus-size-girls/)
+- [best lingerie for small women](https://fashion.allwomenstalk.com/beautiful-lingerie-pieces-for-petite-women/)
 - [7 Pretty Swim Suit Cover Ups ...](https://fashion.allwomenstalk.com/7-pretty-swim-suit-cover-ups/)
 - [9 Fabulous Swimsuits ...](https://swimwear.allwomenstalk.com/fabulous-swimsuits/)
 

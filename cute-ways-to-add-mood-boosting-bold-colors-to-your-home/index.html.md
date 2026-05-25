@@ -56,16 +56,16 @@ I can’t wait to add some more bold color to my home. I’m already eyeing up m
 
 ## Related Posts
 
-- [how to decorate my room as a student](https://diy.allwomenstalk.com/easy-ways-to-decorate-your-student-room/)
-- [inviting home](https://lifestyle.allwomenstalk.com/super-ways-to-make-your-home-inviting/)
 - [pink play houses](https://parenting.allwomenstalk.com/unbelievable-play-houses-that-youll-want-to-live-in/)
-- [alex pardee backpack](https://lifestyle.allwomenstalk.com/fabulous-and-colorful-art-prints-to-brighten-your-walls/)
-- [dorm paintings](https://lifestyle.allwomenstalk.com/beautiful-dorm-room-wall-art-for-the-fashionista-freshman/)
-- [gender neutral baby themes](https://parenting.allwomenstalk.com/fantastic-gender-neutral-nursery-themes-youll-love/)
-- [office fall decorations](https://lifestyle.allwomenstalk.com/fabulous-fall-decorating-ideas-for-your-home/)
-- [target owl pillow](https://lifestyle.allwomenstalk.com/adorable-owl-housewares-for-a-ridiculously-cute-home/)
 - [what are relaxing colors](https://lifestyle.allwomenstalk.com/most-relaxing-paint-colors-for-your-bedroom/)
+- [dorm paintings](https://lifestyle.allwomenstalk.com/beautiful-dorm-room-wall-art-for-the-fashionista-freshman/)
+- [target owl pillow](https://lifestyle.allwomenstalk.com/adorable-owl-housewares-for-a-ridiculously-cute-home/)
+- [inviting home](https://lifestyle.allwomenstalk.com/super-ways-to-make-your-home-inviting/)
+- [how to decorate my room as a student](https://diy.allwomenstalk.com/easy-ways-to-decorate-your-student-room/)
+- [alex pardee backpack](https://lifestyle.allwomenstalk.com/fabulous-and-colorful-art-prints-to-brighten-your-walls/)
 - [home storage solutions](https://diy.allwomenstalk.com/ingenious-storage-solutions-every-home-needs/)
+- [office fall decorations](https://lifestyle.allwomenstalk.com/fabulous-fall-decorating-ideas-for-your-home/)
+- [gender neutral baby themes](https://parenting.allwomenstalk.com/fantastic-gender-neutral-nursery-themes-youll-love/)
 - [8 Relaxing Color Combinations for Your Home ...](https://lifestyle.allwomenstalk.com/relaxing-color-combinations-for-your-home/)
 - [Colors in Decorating: 7 Wonderfully Enchanting Way...](https://lifestyle.allwomenstalk.com/colors-in-decorating-7-wonderfully-enchanting-ways-to-warm-up-an-all-white-room/)
 

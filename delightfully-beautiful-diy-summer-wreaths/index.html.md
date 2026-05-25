@@ -76,16 +76,16 @@ How fun are these handmade wreath ideas? I especially love the beach-themed ones
 
 ## Related Posts
 
-- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
 - [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
-- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
-- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
+- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
 - [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
-- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
-- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
 - [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
+- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
+- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [15 Gorgeous Spring Wreath Ideas ...](https://lifestyle.allwomenstalk.com/gorgeous-spring-wreath-ideas/)
 

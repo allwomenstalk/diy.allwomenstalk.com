@@ -288,15 +288,15 @@ Do you hand out favors at your parties? I've sort of moved away from it now that
 
 ## Related Posts
 
-- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
 - [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
+- [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
+- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
+- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
 - [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
+- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
+- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
 - [gifts for best friends christmas](https://lifestyle.allwomenstalk.com/christmas-gifts-for-best-friends/)
 - [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
-- [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
-- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
-- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
-- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
 - [stocking stuffer ideas for boyfriend](https://lifestyle.allwomenstalk.com/manly-stocking-stuffers-for-your-boyfriend/)
 - [Unique Favors...](https://allwomenstalk.com/unique-favors/)
 - [14 Tips for Hosting a Perfect Party ...](https://allwomenstalk.com/14-tips-on-hosting-a-perfect-party/)

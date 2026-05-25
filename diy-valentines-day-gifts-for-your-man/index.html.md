@@ -151,14 +151,14 @@ This article was written in collaboration with editor Lyndsie Robinson and updat
 
 ## Related Posts
 
-- [what was the first thing you thought when you saw ...](https://nails.allwomenstalk.com/date-night-conversation-starters/)
 - [valentines day decor ideas](https://diy.allwomenstalk.com/delightful-valentines-day-decor/)
-- [love coupon ideas for him long distance](https://love.allwomenstalk.com/ways-to-show-a-long-distance-boyfriend-you-care/)
 - [singles on valentines day](https://love.allwomenstalk.com/valentines-day-tips-for-singles/)
 - [best date ideas for married couples](https://love.allwomenstalk.com/more-date-night-ideas-for-married-couples/)
 - [cute date ideas for teens](https://love.allwomenstalk.com/date-night-ideas-for-teens/)
-- [date night parents](https://love.allwomenstalk.com/date-night-ideas-for-parents/)
 - [fun dates for married couples](https://love.allwomenstalk.com/date-night-ideas-for-married-couples/)
+- [love coupon ideas for him long distance](https://love.allwomenstalk.com/ways-to-show-a-long-distance-boyfriend-you-care/)
+- [what was the first thing you thought when you saw ...](https://nails.allwomenstalk.com/date-night-conversation-starters/)
+- [date night parents](https://love.allwomenstalk.com/date-night-ideas-for-parents/)
 - [creative date night ideas at home](https://love.allwomenstalk.com/creative-ideas-for-date-nights-at-home/)
 - [reminder for boyfriend](https://love.allwomenstalk.com/cute-ideas-to-remind-your-partner-you-love-them/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)

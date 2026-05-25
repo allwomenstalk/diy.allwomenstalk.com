@@ -111,16 +111,16 @@ Sources
 
 ## Related Posts
 
-- [special gift for kids](https://parenting.allwomenstalk.com/great-gift-ideas-for-kids/)
-- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
-- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
-- [best hostess gifts for thanksgiving](https://lifestyle.allwomenstalk.com/thanksgiving-gifts-to-give-your-hostess/)
-- [lydia senn youtube](https://diy.allwomenstalk.com/video-guide-to-low-cost-christmas-gifts-made-with-love/)
-- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
-- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
-- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
 - [diy 50th birthday gift baskets](https://diy.allwomenstalk.com/ideas-for-diy-gift-baskets/)
+- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
+- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
+- [special gift for kids](https://parenting.allwomenstalk.com/great-gift-ideas-for-kids/)
+- [lydia senn youtube](https://diy.allwomenstalk.com/video-guide-to-low-cost-christmas-gifts-made-with-love/)
+- [best hostess gifts for thanksgiving](https://lifestyle.allwomenstalk.com/thanksgiving-gifts-to-give-your-hostess/)
 - [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
+- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
+- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
+- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
 - [Car Accessory Gift to Put Anyone in the Holiday Sp...](https://allwomenstalk.com/car-accessory-gift-to-put-anyone-in-the-holiday-spirit/)
 - [Haute Holiday Gift Guide: for the Decorating Diva ...](https://allwomenstalk.com/haute-holiday-gift-guide-for-the-decorating-diva/)
 

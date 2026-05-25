@@ -191,16 +191,16 @@ Do you decorate with centerpieces? I like to change mine out with the seasons an
 
 ## Related Posts
 
-- [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
+- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
+- [big fireplaces](https://lifestyle.allwomenstalk.com/great-fireplaces-to-center-your-entire-home/)
 - [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
 - [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
-- [cute ideas to decorate your room](https://diy.allwomenstalk.com/ways-to-decorate-your-bedroom-for-christmas-under-50/)
-- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
-- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
 - [wreaths for door](https://diy.allwomenstalk.com/front-door-worthy-winter-wreaths-you-are-going-to-love/)
+- [cute ideas to decorate your room](https://diy.allwomenstalk.com/ways-to-decorate-your-bedroom-for-christmas-under-50/)
+- [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
 - [modern earth sheltered homes](https://lifestyle.allwomenstalk.com/eco-homes-for-now-and-the-future/)
-- [big fireplaces](https://lifestyle.allwomenstalk.com/great-fireplaces-to-center-your-entire-home/)
 - [red and silver christmas tree decoration ideas](https://diy.allwomenstalk.com/stunning-christmas-trees-you-can-create-at-home/)
+- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
 - [5 Unique Vases for Your Wedding Centerpieces ...](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [8 Wedding Centerpiece Ideas That Look Amazing ...](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
 

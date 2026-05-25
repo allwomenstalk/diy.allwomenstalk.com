@@ -31,16 +31,16 @@ Happy coffee theme gift basket making!
 
 ## Related Posts
 
-- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
-- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
-- [How to Dye Easter Eggs with Shaving Cream ...](https://diy.allwomenstalk.com/how-to-dye-easter-eggs-with-shaving-cream/)
-- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
-- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
-- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
-- [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
-- [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
-- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
 - [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
+- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
+- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
+- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
+- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
+- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
+- [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
+- [How to Dye Easter Eggs with Shaving Cream ...](https://diy.allwomenstalk.com/how-to-dye-easter-eggs-with-shaving-cream/)
+- [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
+- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
 - [9 Fun Coffee Bean Crafts ...](https://lifestyle.allwomenstalk.com/fun-coffee-bean-crafts/)
 - [10 Beautiful DIY Baskets ...](https://diy.allwomenstalk.com/beautiful-diy-baskets/)
 

@@ -82,16 +82,16 @@ How do you organize your baking supplies? Care to add more clever ideas to our l
 
 ## Related Posts
 
-- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
-- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
-- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
-- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
-- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
-- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
-- [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
 - [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
+- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
 - [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
+- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
+- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
+- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
+- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
 - [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
+- [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
+- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
 - [9 Unbelievable Uses for Baking Supplies ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
 - [7 Charmingly Homemade  Scrumptiously Delicious Bre...](https://baking.allwomenstalk.com/charmingly-homemade-scrumptiously-delicious-bread-recipes/)
 

@@ -70,16 +70,16 @@ How badly do you want to **craft with cable spools** now? I hope that these gave
 
 ## Related Posts
 
-- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
-- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
 - [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
 - [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
-- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
 - [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
+- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 - [12 Clever Milk Jug DIY Projects ...](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 

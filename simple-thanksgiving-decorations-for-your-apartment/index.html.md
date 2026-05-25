@@ -56,16 +56,16 @@ You see? There’s no need for your home to be sans décor between Halloween and
 
 ## Related Posts
 
-- [ways to make your room more cozy](https://diy.allwomenstalk.com/ways-to-make-your-home-more-cozy-and-feel-less-cluttered/)
-- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
-- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
-- [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
 - [decorated globes](https://lifestyle.allwomenstalk.com/globe-inspired-home-decor-to-make-your-house-more-worldly/)
-- [whimsical pillows](https://lifestyle.allwomenstalk.com/whimsical-decorative-pillows-for-home-decorating/)
-- [how to spice up your room](https://lifestyle.allwomenstalk.com/quick-and-easy-ways-to-spice-up-any-room/)
+- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
+- [ways to make your room more cozy](https://diy.allwomenstalk.com/ways-to-make-your-home-more-cozy-and-feel-less-cluttered/)
 - [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
-- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
+- [how to spice up your room](https://lifestyle.allwomenstalk.com/quick-and-easy-ways-to-spice-up-any-room/)
 - [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
+- [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
+- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
+- [whimsical pillows](https://lifestyle.allwomenstalk.com/whimsical-decorative-pillows-for-home-decorating/)
+- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
 - [7 Fabulous Ideas to Dress up Your Dinner Table ...](https://cooking.allwomenstalk.com/7-fabulous-ideas-to-dress-up-your-dinner-table/)
 - [7 Ways to Brighten up the Kitchen ...](https://cooking.allwomenstalk.com/7-ways-to-brighten-up-the-kitchen/)
 

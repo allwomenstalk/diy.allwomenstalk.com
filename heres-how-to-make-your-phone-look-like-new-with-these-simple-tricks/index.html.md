@@ -42,16 +42,16 @@ Hopefully one of these methods will get rid of those annoying scratches - but do
 
 ## Related Posts
 
-- [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
-- [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
 - [steam mop hacks](https://lifestyle.allwomenstalk.com/cleaning-hacks-for-lazy-ladies/)
-- [houseproud cleaners](https://diy.allwomenstalk.com/kitchen-staples-that-will-clean-almost-anything/)
-- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
-- [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
 - [how to get motivated to clean your house](https://lifestyle.allwomenstalk.com/ways-to-motivate-yourself-to-clean/)
+- [houseproud cleaners](https://diy.allwomenstalk.com/kitchen-staples-that-will-clean-almost-anything/)
+- [can you keep makeup in the bathroom](https://makeup.allwomenstalk.com/makeup-organization-tips-to-keep-your-bathroom-clean/)
 - [decluttering your cellphone](https://lifestyle.allwomenstalk.com/do-these-things-if-you-want-to-declutter-your-digital-life/)
-- [how to deodorize sneakers](https://shoes.allwomenstalk.com/simple-ways-to-de-odorize-smelly-shoes/)
+- [make up stash](https://makeup.allwomenstalk.com/how-to-spring-clean-your-make-up-stash/)
 - [digital closet apps](https://apps.allwomenstalk.com/apps-you-can-use-to-organize-your-closet/)
+- [should i wash towels on heavy duty](https://lifestyle.allwomenstalk.com/how-to-get-your-towels-completely-clean/)
+- [how to deodorize sneakers](https://shoes.allwomenstalk.com/simple-ways-to-de-odorize-smelly-shoes/)
+- [locking storage for dorm room](https://diy.allwomenstalk.com/super-dorm-room-space-savers-and-organizing-tricks/)
 - [Beauty Tips from the Pros ...](https://allwomenstalk.com/beauty-tips-from-the-pros/)
 - [Beauty Tricks That Will Keep You Ahead of the Game...](https://beauty.allwomenstalk.com/beauty-tricks-to-keep-you-ahead-of-the-game/)
 

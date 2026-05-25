@@ -56,16 +56,16 @@ I’m so addicted to Pinterest that occasionally I’ll realize that I’m halfw
 
 ## Related Posts
 
+- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
 - [advantages and disadvantages of being kind](https://inspiration.allwomenstalk.com/advantages-of-being-nice-to-other-people-that-you-must-always-consider/)
-- [dont judge a book by its cover movie cast](https://lifestyle.allwomenstalk.com/disney-life-lessons-we-should-all-learn/)
-- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
-- [why do i find my mom attractive](https://lifestyle.allwomenstalk.com/best-and-worst-things-about-having-an-attractive-mother/)
-- [about your favorite teacher](https://parenting.allwomenstalk.com/characteristics-of-an-amazing-teacher/)
-- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
 - [my child and other mistakes](https://inspiration.allwomenstalk.com/things-to-learn-from-your-parents-mistakes-that-can-make-you-stronger/)
+- [about your favorite teacher](https://parenting.allwomenstalk.com/characteristics-of-an-amazing-teacher/)
+- [why do i find my mom attractive](https://lifestyle.allwomenstalk.com/best-and-worst-things-about-having-an-attractive-mother/)
+- [what are the main causes of prejudice](https://inspiration.allwomenstalk.com/important-causes-of-prejudice-you-should-know-about/)
+- [dont judge a book by its cover movie cast](https://lifestyle.allwomenstalk.com/disney-life-lessons-we-should-all-learn/)
+- [lessons](https://movies.allwomenstalk.com/lessons-i-learned-from-buffy-the-vampire-slayer/)
 - [truths for kids](https://parenting.allwomenstalk.com/adult-truths-that-kids-never-believe/)
 - [should i speak up or let it go](https://inspiration.allwomenstalk.com/times-you-should-speak-up/)
-- [what was the moral of the great gatsby](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
 - [7 Ways to Learn New Craft Skills ...](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [7 Best Things about Facebook ...](https://allwomenstalk.com/7-best-things-about-facebook/)
 

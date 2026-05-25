@@ -119,15 +119,15 @@ Make these in red and pink. Swoon!
 ## Related Posts
 
 - [valentines e card funny](https://funny.allwomenstalk.com/the-funniest-valentines-day-ecards/)
-- [valentines seafood dinner](https://food.allwomenstalk.com/valentines-day-dinners-to-make-for-your-man/)
-- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
 - [valentine day pick up lines](https://love.allwomenstalk.com/the-best-pick-up-lines-to-use-on-valentines-day/)
-- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
-- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
 - [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
+- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
 - [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
-- [burn notice valentine](https://fitness.allwomenstalk.com/fun-ways-to-burn-calories-on-valentines-day/)
+- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
+- [valentines seafood dinner](https://food.allwomenstalk.com/valentines-day-dinners-to-make-for-your-man/)
 - [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
+- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
+- [burn notice valentine](https://fitness.allwomenstalk.com/fun-ways-to-burn-calories-on-valentines-day/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

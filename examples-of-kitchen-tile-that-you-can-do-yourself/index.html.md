@@ -268,16 +268,16 @@ Do you have tile in your kitchen? One of my next projects is to tile my floor. W
 
 ## Related Posts
 
-- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
-- [diy hanging photo display](https://diy.allwomenstalk.com/perfect-ideas-for-photo-display/)
-- [fall bushel basket ideas](https://inspiration.allwomenstalk.com/fabulous-fall-decorating-ideas/)
-- [maximize space in small bathroom](https://lifestyle.allwomenstalk.com/ways-to-maximize-space-in-a-small-bathroom/)
 - [sw 6452](https://diy.allwomenstalk.com/awesome-paint-color-palettes-to-inspire-your-next-project/)
-- [awesome above ground pools](https://gardening.allwomenstalk.com/stunning-backyard-pools-to-enhance-the-look-of-your-yard/)
-- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
-- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
-- [home industrial style](https://diy.allwomenstalk.com/stunning-examples-of-industrial-style-homes/)
 - [paris bedroom decor](https://diy.allwomenstalk.com/amazing-themes-for-your-bedroom/)
+- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
+- [awesome above ground pools](https://gardening.allwomenstalk.com/stunning-backyard-pools-to-enhance-the-look-of-your-yard/)
+- [fall bushel basket ideas](https://inspiration.allwomenstalk.com/fabulous-fall-decorating-ideas/)
+- [diy hanging photo display](https://diy.allwomenstalk.com/perfect-ideas-for-photo-display/)
+- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
+- [home industrial style](https://diy.allwomenstalk.com/stunning-examples-of-industrial-style-homes/)
+- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
+- [maximize space in small bathroom](https://lifestyle.allwomenstalk.com/ways-to-maximize-space-in-a-small-bathroom/)
 - [8 Colourful Kitchen Appliances ...](https://cooking.allwomenstalk.com/8-colourful-kitchen-appliances/)
 - [8 Simple Ways to Cheer up Your Kitchen ...](https://allwomenstalk.com/8-simple-ways-to-cheer-up-your-kitchen/)
 

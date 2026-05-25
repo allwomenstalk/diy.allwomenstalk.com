@@ -114,16 +114,16 @@ I think this is so simple yet so graceful.
 
 ## Related Posts
 
-- [repurpose tv stand into bench](https://diy.allwomenstalk.com/how-to-take-your-old-furnishing-from-flat-to-fab-in-a-weekend/)
-- [neutral living room with splash of colour](https://diy.allwomenstalk.com/how-to-add-a-splash-of-color-to-any-and-all-rooms/)
-- [chic home decor](https://diy.allwomenstalk.com/shabby-chic-home-decor-ideas-you-should-steal/)
-- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
 - [whirlpool mini kitchen](https://diy.allwomenstalk.com/amazing-small-kitchen-inspos-that-youll-love/)
-- [fence decoration](https://gardening.allwomenstalk.com/fence-decor-thatll-make-your-yard-look-lovely/)
-- [interior design furniture standard dimensions](https://lifestyle.allwomenstalk.com/these-decorating-infographics-will-help-you-create-your-dream-home/)
 - [dresser revamp](https://diy.allwomenstalk.com/dresser-revamps-thatll-make-your-home-feel-even-homier/)
+- [chic home decor](https://diy.allwomenstalk.com/shabby-chic-home-decor-ideas-you-should-steal/)
 - [picture wall without frames](https://diy.allwomenstalk.com/ways-to-display-your-picture-frames-without-using-photos/)
+- [fence decoration](https://gardening.allwomenstalk.com/fence-decor-thatll-make-your-yard-look-lovely/)
+- [neutral living room with splash of colour](https://diy.allwomenstalk.com/how-to-add-a-splash-of-color-to-any-and-all-rooms/)
+- [repurpose tv stand into bench](https://diy.allwomenstalk.com/how-to-take-your-old-furnishing-from-flat-to-fab-in-a-weekend/)
+- [interior design furniture standard dimensions](https://lifestyle.allwomenstalk.com/these-decorating-infographics-will-help-you-create-your-dream-home/)
 - [rainbow home decor ideas](https://diy.allwomenstalk.com/diy-ideas-to-decorate-your-home-with-rainbows/)
+- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 

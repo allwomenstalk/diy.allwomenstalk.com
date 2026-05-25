@@ -270,14 +270,14 @@ I'm wondering now whether any of these have tempted you to add carpentry to your
 
 ## Related Posts
 
-- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
-- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
-- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
-- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
-- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
-- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
 - [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
 - [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
+- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
+- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
+- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
+- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
+- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
 - [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)

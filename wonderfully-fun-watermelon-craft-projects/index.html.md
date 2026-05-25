@@ -78,16 +78,16 @@ I am off to get me some watermelon. How about you, would you be giving these fru
 
 ## Related Posts
 
-- [cool thing to make at home](https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/)
-- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
-- [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
+- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
 - [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [cool thing to make at home](https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/)
 - [how to make homemade henna without henna powder or...](https://diy.allwomenstalk.com/love-tattoos-but-dont-want-to-get-inked-try-these-fabulous-diy-temporary-tattoos/)
+- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
 - [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
 - [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
+- [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
 - [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
-- [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 

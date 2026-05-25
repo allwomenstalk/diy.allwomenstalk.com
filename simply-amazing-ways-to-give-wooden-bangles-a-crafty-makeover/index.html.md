@@ -78,16 +78,16 @@ When you step into your local craft store this week, don't forget to grab plain 
 
 ## Related Posts
 
-- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
-- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
-- [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
+- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
 - [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
+- [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
+- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
 - [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
 - [old door corner shelf](https://diy.allwomenstalk.com/shelfies-the-best-diy-shelves/)
-- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
+- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

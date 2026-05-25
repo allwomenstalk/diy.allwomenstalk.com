@@ -74,16 +74,16 @@ I think I'll have a go at the Styrofoam idea from this list of DIY anchor projec
 
 ## Related Posts
 
-- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
-- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
 - [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
-- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
-- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
-- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
+- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
+- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
+- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
+- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
 - [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
+- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

@@ -180,16 +180,16 @@ Which one of these crafts is your favorite? I hope you have a really good time c
 
 ## Related Posts
 
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
-- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
-- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
-- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
-- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
-- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
 - [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
+- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
+- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
+- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
+- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 

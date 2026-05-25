@@ -136,16 +136,16 @@ Source: [At home with Elaine: Tea](http://athomewithpurvail.blogspot.com/2010/11
 
 ## Related Posts
 
-- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
 - [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
-- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
-- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
 - [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
-- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
-- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
 - [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
+- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
+- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
+- [good homemade gifts for mom](https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/)
 - [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
 - [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
+- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
+- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
 - [8 Incredibly Cute Cupcake Recipes ...](https://thecrepescafe.com/incredibly-cute-cupcake-recipes/)
 - [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
 

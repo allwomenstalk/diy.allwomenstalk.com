@@ -28,16 +28,16 @@ Merry Christmas!
 
 ## Related Posts
 
-- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
+- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
 - [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
-- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
-- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
 - [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
+- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
 - [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
 - [How to Dye Easter Eggs with Shaving Cream ...](https://diy.allwomenstalk.com/how-to-dye-easter-eggs-with-shaving-cream/)
-- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
+- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
+- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [Simple DIY Gift Idea Thats Cheap but Cute ...](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
 - [Superb Ideas for DIY Gift Baskets ...](https://diy.allwomenstalk.com/ideas-for-diy-gift-baskets/)
 

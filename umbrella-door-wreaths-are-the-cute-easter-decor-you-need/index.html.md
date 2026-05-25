@@ -30,16 +30,16 @@ I hope you found this wreath tutorial to be ... Cute!
 
 ## Related Posts
 
-- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
-- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [Catchy Christmas Crafts: Delightful DIY Gifts  Dec...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
 - [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
 - [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [Catchy Christmas Crafts: Delightful DIY Gifts  Dec...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
+- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
 - [10 Prettiest Easter Decor Items ...](https://allwomenstalk.com/10-prettiest-easter-decor-items/)
 - [15 Gorgeous Spring Wreath Ideas ...](https://lifestyle.allwomenstalk.com/gorgeous-spring-wreath-ideas/)
 

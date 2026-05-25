@@ -68,15 +68,15 @@ I'm itching to make the yardstick stool idea. I might even do a table version, t
 
 ## Related Posts
 
-- [lovely inspiration](https://diy.allwomenstalk.com/get-decor-inspiration-from-these-lovely-living-rooms/)
-- [thankgiving colors](https://diy.allwomenstalk.com/thanksgiving-tablescapes-thatll-have-your-guests-gasping/)
-- [how to decorate a house for thanksgiving](https://diy.allwomenstalk.com/how-to-decorate-the-house-for-a-dapper-thanksgiving/)
+- [fabulous kitchens](https://diy.allwomenstalk.com/these-kitchens-will-inspire-you-to-renovate-your-own/)
 - [diy fixer upper](https://diy.allwomenstalk.com/how-to-decorate-your-house-like-fixer-upper/)
-- [bungalow exteriors](https://diy.allwomenstalk.com/check-out-these-house-exteriors-thatll-give-you-major-envy/)
+- [gold accents in bedroom](https://diy.allwomenstalk.com/gold-accents-thatll-add-a-chic-touch-to-your-house/)
+- [lovely inspiration](https://diy.allwomenstalk.com/get-decor-inspiration-from-these-lovely-living-rooms/)
 - [how to make a room romantic](https://love.allwomenstalk.com/ways-to-make-your-room-more-romantic/)
 - [dcor e gift](https://diy.allwomenstalk.com/how-can-you-get-chic-home-decor-for-a-fraction-of-the-price/)
-- [gold accents in bedroom](https://diy.allwomenstalk.com/gold-accents-thatll-add-a-chic-touch-to-your-house/)
-- [fabulous kitchens](https://diy.allwomenstalk.com/these-kitchens-will-inspire-you-to-renovate-your-own/)
+- [thankgiving colors](https://diy.allwomenstalk.com/thanksgiving-tablescapes-thatll-have-your-guests-gasping/)
+- [how to decorate a house for thanksgiving](https://diy.allwomenstalk.com/how-to-decorate-the-house-for-a-dapper-thanksgiving/)
+- [bungalow exteriors](https://diy.allwomenstalk.com/check-out-these-house-exteriors-thatll-give-you-major-envy/)
 - [modeled with love movie](https://movies.allwomenstalk.com/model-your-house-after-these-famous-movie-homes/)
 - [10 IKEA Items to Furnish Your Home ...](https://allwomenstalk.com/10-ikea-items-to-furnish-your-home/)
 - [10 Pretty and Affordable Small Storage Items for Y...](https://allwomenstalk.com/10-pretty-and-affordable-small-storage-items-for-your-home/)

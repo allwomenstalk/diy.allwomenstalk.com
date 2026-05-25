@@ -54,16 +54,16 @@ These are the kinds of tools you’ll need to take on small fashion and craft DI
 
 ## Related Posts
 
-- [7 Must-Have Crafting Supplies for Repurposing Proj...](https://inspiration.allwomenstalk.com/must-have-crafting-supplies-for-repurposing-projects/)
-- [9 Steps to Making Your Own DIY Washi Tape Honeycom...](https://diy.allwomenstalk.com/steps-to-making-your-own-diy-washi-tape-honeycomb-wall-clock/)
-- [7 DIY Ideas That Look Way Easier to do in Theory ....](https://diy.allwomenstalk.com/diy-ideas-that-look-way-easier-to-do-in-theory/)
-- [7 Crafty Things to Make with Sea Shells ...](https://diy.allwomenstalk.com/crafty-things-to-make-with-sea-shells/)
 - [crochet hydrangeas](https://diy.allwomenstalk.com/pretty-crocheted-flowers-to-add-to-any-project/)
-- [diy newspaper](https://diy.allwomenstalk.com/diys-with-newspaper-youre-going-to-love/)
-- [8 DIY Rainbow Projects That Are Sure to Make You S...](https://diy.allwomenstalk.com/diy-rainbow-projects-that-are-sure-to-make-you-smile/)
-- [7 Ways to Reuse and Repurpose Childrens Items ...](https://parenting.allwomenstalk.com/ways-to-reuse-and-repurpose-childrens-items/)
-- [facts about fall for preschoolers](https://parenting.allwomenstalk.com/fall-themed-crafts-to-create-with-preschoolers/)
+- [7 Crafty Things to Make with Sea Shells ...](https://diy.allwomenstalk.com/crafty-things-to-make-with-sea-shells/)
 - [12 Steps to Sewing a Simple Beach Bag Using a Pill...](https://diy.allwomenstalk.com/steps-to-sewing-a-simple-beach-bag-using-a-pillow-case/)
+- [facts about fall for preschoolers](https://parenting.allwomenstalk.com/fall-themed-crafts-to-create-with-preschoolers/)
+- [7 Ways to Reuse and Repurpose Childrens Items ...](https://parenting.allwomenstalk.com/ways-to-reuse-and-repurpose-childrens-items/)
+- [7 Must-Have Crafting Supplies for Repurposing Proj...](https://inspiration.allwomenstalk.com/must-have-crafting-supplies-for-repurposing-projects/)
+- [7 DIY Ideas That Look Way Easier to do in Theory ....](https://diy.allwomenstalk.com/diy-ideas-that-look-way-easier-to-do-in-theory/)
+- [8 DIY Rainbow Projects That Are Sure to Make You S...](https://diy.allwomenstalk.com/diy-rainbow-projects-that-are-sure-to-make-you-smile/)
+- [diy newspaper](https://diy.allwomenstalk.com/diys-with-newspaper-youre-going-to-love/)
+- [9 Steps to Making Your Own DIY Washi Tape Honeycom...](https://diy.allwomenstalk.com/steps-to-making-your-own-diy-washi-tape-honeycomb-wall-clock/)
 - [10 Newborn Essentials ...](https://parenting.allwomenstalk.com/newborn-essentials/)
 - [Top 10 First Aid Kits ...](https://allwomenstalk.com/top-10-first-aid-kits/)
 

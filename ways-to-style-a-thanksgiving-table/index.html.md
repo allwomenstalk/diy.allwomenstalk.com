@@ -260,16 +260,16 @@ There are so many things you can use to dress your Thanksgiving table - leaves, 
 
 ## Related Posts
 
-- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
-- [wreaths for door](https://diy.allwomenstalk.com/front-door-worthy-winter-wreaths-you-are-going-to-love/)
 - [red and silver christmas tree decoration ideas](https://diy.allwomenstalk.com/stunning-christmas-trees-you-can-create-at-home/)
-- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
 - [modern earth sheltered homes](https://lifestyle.allwomenstalk.com/eco-homes-for-now-and-the-future/)
-- [how to make a window pane](https://diy.allwomenstalk.com/ways-to-use-old-windows-and-frames/)
-- [cute ideas to decorate your room](https://diy.allwomenstalk.com/ways-to-decorate-your-bedroom-for-christmas-under-50/)
-- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
 - [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
+- [wreaths for door](https://diy.allwomenstalk.com/front-door-worthy-winter-wreaths-you-are-going-to-love/)
+- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
 - [big fireplaces](https://lifestyle.allwomenstalk.com/great-fireplaces-to-center-your-entire-home/)
+- [repurpose vases](https://lifestyle.allwomenstalk.com/lovely-vases-to-scatter-throughout-your-entire-house/)
+- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
+- [cute ideas to decorate your room](https://diy.allwomenstalk.com/ways-to-decorate-your-bedroom-for-christmas-under-50/)
+- [how to make a window pane](https://diy.allwomenstalk.com/ways-to-use-old-windows-and-frames/)
 - [8 Ideas for Table Centerpieces ...](https://lifestyle.allwomenstalk.com/ideas-for-table-centerpieces/)
 - [7 Absolutely Beautiful Decorating Inspirations ...](https://allwomenstalk.com/7-absolutely-beautiful-decorating-inspirations/)
 

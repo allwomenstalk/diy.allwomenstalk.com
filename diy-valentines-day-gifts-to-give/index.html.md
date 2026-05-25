@@ -124,15 +124,15 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
-- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
-- [personalized fathers day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
-- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
 - [international womens day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
 - [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
-- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
 - [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
+- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
+- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
 - [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
+- [personalized fathers day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
+- [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
+- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
 - [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
 - [15 Homemade Gift Ideas Theyll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)

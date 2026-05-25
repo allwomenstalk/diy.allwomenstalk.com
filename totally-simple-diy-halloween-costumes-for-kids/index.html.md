@@ -56,16 +56,16 @@ Have you ever made a Halloween costume? What was it? I made each of my three kid
 
 ## Related Posts
 
-- [fun diy halloween crafts](https://diy.allwomenstalk.com/easy-halloween-crafts-for-people-of-all-ages/)
-- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
-- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
-- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
 - [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
+- [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
+- [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
+- [fun diy halloween crafts](https://diy.allwomenstalk.com/easy-halloween-crafts-for-people-of-all-ages/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
 - [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
 - [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 - [7 Halloween Costume Ideas for Couples ...](https://allwomenstalk.com/7-halloween-costume-ideas-for-couples/)
 

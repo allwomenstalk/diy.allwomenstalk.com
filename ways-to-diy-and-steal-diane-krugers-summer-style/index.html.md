@@ -62,16 +62,16 @@ Ready to rock the summer, Diane Kruger style? Show us your DIY fashion looks!
 
 ## Related Posts
 
-- [flamingo accessory](https://fashion.allwomenstalk.com/quirky-flamingo-fashion-accessories-for-your-summer-wardrobe/)
-- [beach must haves for women](https://lifestyle.allwomenstalk.com/wonderful-beach-essentials-every-girl-needs-this-summer/)
-- [lightweight sundresses](https://fashion.allwomenstalk.com/lightweight-dresses-youll-love-this-summer/)
-- [best heatwave essentials](https://beauty.allwomenstalk.com/heatwave-essentials-every-girl-should-own/)
-- [clothes for internship](https://fashion.allwomenstalk.com/key-wardrobe-pieces-for-your-summer-internship/)
-- [fashion trends summer 2013](https://fashion.allwomenstalk.com/trendy-items-for-summer/)
-- [womens dressy flip flops](https://shoes.allwomenstalk.com/dressy-flips-flops-to-wear-on-a-date-this-summer/)
-- [flowy tank top sewing pattern](https://diy.allwomenstalk.com/adorable-diy-tank-top-ideas-for-the-summer/)
 - [hot pyjamas](https://fashion.allwomenstalk.com/comfy-pajamas-that-will-help-you-survive-hot-summer-nights/)
+- [fashion trends summer 2013](https://fashion.allwomenstalk.com/trendy-items-for-summer/)
+- [flamingo accessory](https://fashion.allwomenstalk.com/quirky-flamingo-fashion-accessories-for-your-summer-wardrobe/)
+- [womens dressy flip flops](https://shoes.allwomenstalk.com/dressy-flips-flops-to-wear-on-a-date-this-summer/)
+- [clothes for internship](https://fashion.allwomenstalk.com/key-wardrobe-pieces-for-your-summer-internship/)
+- [flowy tank top sewing pattern](https://diy.allwomenstalk.com/adorable-diy-tank-top-ideas-for-the-summer/)
+- [best heatwave essentials](https://beauty.allwomenstalk.com/heatwave-essentials-every-girl-should-own/)
 - [scalloped two piece swimsuit](https://fashion.allwomenstalk.com/cute-scalloped-swimsuits-to-see-you-through-the-rest-of-summer/)
+- [lightweight sundresses](https://fashion.allwomenstalk.com/lightweight-dresses-youll-love-this-summer/)
+- [beach must haves for women](https://lifestyle.allwomenstalk.com/wonderful-beach-essentials-every-girl-needs-this-summer/)
 - [8 Essentials for Seaside Style This Summer ...](https://fashion.allwomenstalk.com/essentials-for-seaside-style/)
 - [8 Things You Need to Channel Nicole Richies Boho S...](https://allwomenstalk.com/8-things-you-need-to-channel-nicole-richies-boho-style/)
 

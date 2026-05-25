@@ -56,16 +56,16 @@ You can pretty much decoupage anything. However, I'm willing to bet you need a l
 
 ## Related Posts
 
-- [eclectic style home](https://diy.allwomenstalk.com/ways-to-create-an-eclectic-home/)
-- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
-- [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
-- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
 - [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
-- [inexpensive home accessories](https://lifestyle.allwomenstalk.com/places-to-find-affordable-chic-home-decor/)
-- [rec room bow skins](https://diy.allwomenstalk.com/ways-to-brighten-up-your-basement-rec-room/)
-- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
+- [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
+- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
+- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
 - [unique ideas for headboards](https://diy.allwomenstalk.com/cool-diy-headboard-ideas-for-a-gorgeous-bedroom/)
+- [rec room bow skins](https://diy.allwomenstalk.com/ways-to-brighten-up-your-basement-rec-room/)
 - [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
+- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
+- [eclectic style home](https://diy.allwomenstalk.com/ways-to-create-an-eclectic-home/)
+- [inexpensive home accessories](https://lifestyle.allwomenstalk.com/places-to-find-affordable-chic-home-decor/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 - [7 Tips on Making Your Home More Colorful ...](https://allwomenstalk.com/7-tips-on-making-your-home-more-colorful/)
 

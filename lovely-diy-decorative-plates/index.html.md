@@ -86,16 +86,16 @@ I told you, these **DIY decorative plate projects** are simple and fun. Take not
 
 ## Related Posts
 
-- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
 - [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
-- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
-- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
+- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [10 Creative DIY Cake Stands ...](https://cooking.allwomenstalk.com/creative-diy-cake-stands/)
 

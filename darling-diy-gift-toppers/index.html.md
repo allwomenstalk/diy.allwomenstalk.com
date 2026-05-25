@@ -112,16 +112,16 @@ Got more fun **DIY gift topper** ideas? Don't be shy; share them with us!
 
 ## Related Posts
 
-- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
 - [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
-- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
 - [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
+- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

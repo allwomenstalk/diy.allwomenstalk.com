@@ -56,16 +56,16 @@ These are 7 home décor mistakes that are so commonly made that you may not have
 
 ## Related Posts
 
-- [26 Seasonal Fall Patios to Spruce up Your Home ...](https://diy.allwomenstalk.com/seasonal-fall-patios-to-spruce-up-your-home/)
-- [7 Ways to Transform Your Bathroom into an Oasis .....](https://diy.allwomenstalk.com/ways-to-transform-your-bathroom-into-an-oasis/)
-- [40 Home Decor Ideas from Oh Joys Pinterest Board ....](https://interior.allwomenstalk.com/home-decor-ideas-from-oh-joys-pinterest-board/)
-- [7 Steps to Picking a Paint Color for Your Room ...](https://interior.allwomenstalk.com/steps-to-picking-a-paint-color-for-your-room/)
-- [7 Indoor Home Improvements for Less than 100 ...](https://diy.allwomenstalk.com/indoor-home-improvements-for-less-than-100/)
-- [7 Easy Ways to Spruce up Your Lounge ...](https://lifestyle.allwomenstalk.com/easy-ways-to-spruce-up-your-lounge/)
-- [7 Beautiful Design Ideas for Your Kitchen ...](https://diy.allwomenstalk.com/beautiful-design-ideas-for-your-kitchen/)
 - [how to decorate your new apartment](https://diy.allwomenstalk.com/tips-for-decorating-your-new-apartment/)
-- [spruce wall design](https://diy.allwomenstalk.com/wall-art-pieces-to-spruce-up-your-home/)
+- [7 Steps to Picking a Paint Color for Your Room ...](https://interior.allwomenstalk.com/steps-to-picking-a-paint-color-for-your-room/)
+- [26 Seasonal Fall Patios to Spruce up Your Home ...](https://diy.allwomenstalk.com/seasonal-fall-patios-to-spruce-up-your-home/)
+- [7 Indoor Home Improvements for Less than 100 ...](https://diy.allwomenstalk.com/indoor-home-improvements-for-less-than-100/)
+- [7 Beautiful Design Ideas for Your Kitchen ...](https://diy.allwomenstalk.com/beautiful-design-ideas-for-your-kitchen/)
 - [Use Creative Tricks to Decorate Small Spaces and S...](https://diy.allwomenstalk.com/creative-ways-to-furnish-a-small-studio-apartment/)
+- [7 Easy Ways to Spruce up Your Lounge ...](https://lifestyle.allwomenstalk.com/easy-ways-to-spruce-up-your-lounge/)
+- [40 Home Decor Ideas from Oh Joys Pinterest Board ....](https://interior.allwomenstalk.com/home-decor-ideas-from-oh-joys-pinterest-board/)
+- [7 Ways to Transform Your Bathroom into an Oasis .....](https://diy.allwomenstalk.com/ways-to-transform-your-bathroom-into-an-oasis/)
+- [spruce wall design](https://diy.allwomenstalk.com/wall-art-pieces-to-spruce-up-your-home/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 - [7 Decorating Tips You Should Have ...](https://allwomenstalk.com/7-decorating-tips-you-should-have/)
 

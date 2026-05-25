@@ -42,16 +42,16 @@ Shopping can be really fun, but so can other alternatives that give the same fee
 
 ## Related Posts
 
-- [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
-- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
-- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
-- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
-- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
-- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
-- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
-- [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
-- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
 - [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
+- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
+- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
+- [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
+- [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
+- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
+- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
+- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
+- [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 - [7 Surprisingly Useful Tips to Frugal Shopping ...](https://money.allwomenstalk.com/surprisingly-useful-tips-to-frugal-shopping/)
 

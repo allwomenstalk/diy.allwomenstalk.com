@@ -24,16 +24,16 @@ I have a couple of workout t-shirts from Macy's, one of them saying, "Yes I do l
 
 ## Related Posts
 
-- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
-- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
-- [good body girls](https://fitness.allwomenstalk.com/fitness-inspo-for-girls-who-are-feeling-demotivated/)
-- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
 - [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
-- [i cbf](https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/)
+- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
 - [need the gym](https://fitness.allwomenstalk.com/reasons-why-you-dont-need-the-gym-to-keep-fit/)
-- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
 - [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
+- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
+- [i cbf](https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/)
 - [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
+- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
+- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
+- [good body girls](https://fitness.allwomenstalk.com/fitness-inspo-for-girls-who-are-feeling-demotivated/)
 - [8 Sporty Chic Workout Clothes ...](https://fashion.allwomenstalk.com/sporty-chic-workout-clothes/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 

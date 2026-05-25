@@ -44,16 +44,16 @@ As you can see, there are some amazing uses for this magic castile soap! Other u
 
 ## Related Posts
 
-- [best face lotions](https://skincare.allwomenstalk.com/top-face-lotions-under-10/)
-- [the best pore eraser](https://beauty.allwomenstalk.com/perfect-products-that-reduce-the-size-of-your-pores/)
-- [how to soften your skin](https://skincare.allwomenstalk.com/ingredients-that-will-soften-your-skin-in-no-time/)
-- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
 - [megan fox skin care](https://beauty.allwomenstalk.com/amazing-natural-oils-that-celebrities-use/)
-- [homemade exfoliants](https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/)
-- [aquafresh white trays price](https://beauty.allwomenstalk.com/teeth-whitening-products-that-really-work/)
-- [is apple sauce good for you](https://skincare.allwomenstalk.com/foods-you-can-use-to-make-homemade-face-masks/)
+- [best face lotions](https://skincare.allwomenstalk.com/top-face-lotions-under-10/)
 - [what foods have the highest antioxidants](https://food.allwomenstalk.com/antioxidant-rich-foods-that-will-leave-your-skin-glowing/)
 - [what is tricot fabric](https://skincare.allwomenstalk.com/fabrics-that-can-really-irritate-sensitive-skin/)
+- [is apple sauce good for you](https://skincare.allwomenstalk.com/foods-you-can-use-to-make-homemade-face-masks/)
+- [the best pore eraser](https://beauty.allwomenstalk.com/perfect-products-that-reduce-the-size-of-your-pores/)
+- [aquafresh white trays price](https://beauty.allwomenstalk.com/teeth-whitening-products-that-really-work/)
+- [lavender scented items](https://skincare.allwomenstalk.com/lavender-scented-skincare-products-sure-to-relax-you/)
+- [homemade exfoliants](https://skincare.allwomenstalk.com/simple-diy-scrubs-to-smooth-out-your-skin-for-spring/)
+- [how to soften your skin](https://skincare.allwomenstalk.com/ingredients-that-will-soften-your-skin-in-no-time/)
 - [9 Unique Ways to Use Baking Soda ...](https://cooking.allwomenstalk.com/unique-ways-to-use-baking-soda/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 

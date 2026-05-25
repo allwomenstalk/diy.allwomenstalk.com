@@ -93,15 +93,15 @@ Hope you get to create something fun from this list of **DIY ghost Halloween dec
 ## Related Posts
 
 - [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
+- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
 - [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
 - [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
-- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
-- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 

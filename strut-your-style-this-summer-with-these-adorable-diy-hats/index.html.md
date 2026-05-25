@@ -71,15 +71,15 @@ Which of these DIY hats will be gracing your head this summer? Are you partial t
 ## Related Posts
 
 - [best place to get summer clothes](https://fashion.allwomenstalk.com/awesome-websites-that-sell-affordable-summer-clothing/)
-- [braided hairstyles with flowers](https://hair.allwomenstalk.com/look-pretty-with-these-flower-braid-hairstyles/)
-- [fringe style clothing](https://fashion.allwomenstalk.com/ways-to-wear-fringe-this-summer/)
-- [pseudo shoes](https://shoes.allwomenstalk.com/this-is-what-your-feet-should-be-wearing-this-summer/)
-- [how to wear jeans shorts](https://fashion.allwomenstalk.com/ways-to-wear-denim-shorts-this-summer/)
-- [stays meaning clothing](https://fashion.allwomenstalk.com/how-to-stay-stylish-but-cool-at-the-office-this-summer/)
 - [tie dye your summer](https://fashion.allwomenstalk.com/heres-why-you-have-to-tie-dye-this-summer/)
-- [summer cute tops](https://fashion.allwomenstalk.com/crop-tops-for-your-cutest-summer-style-yet/)
 - [fancy bobby pins](https://hair.allwomenstalk.com/the-cutest-hair-accessories-for-the-summer-are-right-here/)
 - [gingham trend](https://fashion.allwomenstalk.com/heres-how-to-wear-this-summers-gingham-trend/)
+- [how to wear jeans shorts](https://fashion.allwomenstalk.com/ways-to-wear-denim-shorts-this-summer/)
+- [braided hairstyles with flowers](https://hair.allwomenstalk.com/look-pretty-with-these-flower-braid-hairstyles/)
+- [stays meaning clothing](https://fashion.allwomenstalk.com/how-to-stay-stylish-but-cool-at-the-office-this-summer/)
+- [fringe style clothing](https://fashion.allwomenstalk.com/ways-to-wear-fringe-this-summer/)
+- [pseudo shoes](https://shoes.allwomenstalk.com/this-is-what-your-feet-should-be-wearing-this-summer/)
+- [summer cute tops](https://fashion.allwomenstalk.com/crop-tops-for-your-cutest-summer-style-yet/)
 - [Pretty Heels for Summer](https://allwomenstalk.com/pretty-heels-for-summer/)
 - [Fall-Winter Accessories to Die for](https://allwomenstalk.com/fall-winter-accessories-to-die-for/)
 

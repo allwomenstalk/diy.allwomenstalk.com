@@ -38,16 +38,16 @@ I hope I have helped you out! Happy organizing!
 
 ## Related Posts
 
-- [Housekeeping](https://allwomenstalk.com/housekeeping-jack-hill-a-beauty-blog-make-up-cosmetics-perfume-and-the-substance-of-style/)
-- [what can i do to go green](https://allwomenstalk.com/top-12-ways-to-go-green/)
-- [10 Best Stain Removal Tips ...](https://allwomenstalk.com/10-best-stain-removal-tips/)
-- [Recycle with Style ...](https://allwomenstalk.com/recycle-with-style/)
 - [container store closet](https://allwomenstalk.com/win-a-total-closet-overhaul-from-container-store/)
-- [diy small closet organization](https://diy.allwomenstalk.com/organizing-a-small-closet-on-a-budget/)
-- [what to use instead of clingfilm](https://lifestyle.allwomenstalk.com/alternatives-to-plastic-wrap-that-are-good-for-the-environment/)
-- [A Tiny Apartment. a Sticky Litter Box.](https://allwomenstalk.com/a-tiny-apartment-a-sticky-litter-box/)
+- [Housekeeping](https://allwomenstalk.com/housekeeping-jack-hill-a-beauty-blog-make-up-cosmetics-perfume-and-the-substance-of-style/)
 - [loreal riche le stylo eye endless pearl](https://diy.allwomenstalk.com/closet-organization-tips-to-de-clutter-and-refresh-in-the-new-year/)
+- [A Tiny Apartment. a Sticky Litter Box.](https://allwomenstalk.com/a-tiny-apartment-a-sticky-litter-box/)
+- [diy small closet organization](https://diy.allwomenstalk.com/organizing-a-small-closet-on-a-budget/)
+- [10 Best Stain Removal Tips ...](https://allwomenstalk.com/10-best-stain-removal-tips/)
+- [what to use instead of clingfilm](https://lifestyle.allwomenstalk.com/alternatives-to-plastic-wrap-that-are-good-for-the-environment/)
+- [what can i do to go green](https://allwomenstalk.com/top-12-ways-to-go-green/)
 - [how to arrange dorm furniture](https://diy.allwomenstalk.com/ways-to-organize-a-small-dorm-room/)
+- [Recycle with Style ...](https://allwomenstalk.com/recycle-with-style/)
 - [7 Must Have Shoe Accessories ...](https://shoes.allwomenstalk.com/7-must-have-shoe-accessories/)
 - [8 Ways to Store Your Jewellery ...](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
 

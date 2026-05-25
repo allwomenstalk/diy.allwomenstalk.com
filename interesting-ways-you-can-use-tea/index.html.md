@@ -42,16 +42,16 @@ Can you think of any other creative ways to use tea leaves? I’d love to hear a
 
 ## Related Posts
 
-- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
-- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
-- [how to take care of a fresh piercing](https://jewelry.allwomenstalk.com/the-correct-way-to-take-care-of-a-new-piercing/)
-- [how do you get rid of hickeys](https://skincare.allwomenstalk.com/home-remedies-to-get-rid-of-hickeys/)
-- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
-- [how to make a good bath](https://beauty.allwomenstalk.com/heres-what-you-are-doing-all-wrong-when-taking-a-bath/)
+- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
 - [overcome jet lag](https://travel.allwomenstalk.com/the-most-natural-ways-to-overcome-jet-lag/)
+- [how to take care of a fresh piercing](https://jewelry.allwomenstalk.com/the-correct-way-to-take-care-of-a-new-piercing/)
+- [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
+- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
+- [how do you get rid of hickeys](https://skincare.allwomenstalk.com/home-remedies-to-get-rid-of-hickeys/)
+- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
 - [how to get rid of red eyes from allergies](https://beauty.allwomenstalk.com/how-to-cure-your-red-eyes-from-allergies/)
 - [natural remedy for period cramps](https://health.allwomenstalk.com/natural-remedies-for-period-pain-and-cramps/)
-- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
+- [how to make a good bath](https://beauty.allwomenstalk.com/heres-what-you-are-doing-all-wrong-when-taking-a-bath/)
 - [9 Things You Did Not Know about Tea ...](https://allwomenstalk.com/nine-things-you-do-not-know-about-tea/)
 - [7 Ways to Spice up Your Coffee ...](https://allwomenstalk.com/7-ways-to-spice-up-your-coffee/)
 

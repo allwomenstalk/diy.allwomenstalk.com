@@ -44,16 +44,16 @@ Borax is an inexpensive product that has been around for ages, and it is easy to
 
 ## Related Posts
 
-- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
-- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
-- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
 - [how to prevent muscle fatigue](https://fitness.allwomenstalk.com/ways-to-ease-muscle-fatigue/)
-- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
+- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
 - [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
+- [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
+- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
 - [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
 - [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
+- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
+- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [9 Unique Ways to Use Baking Soda ...](https://cooking.allwomenstalk.com/unique-ways-to-use-baking-soda/)
 - [7 Unique Uses for Toothpaste ...](https://allwomenstalk.com/7-unique-uses-for-toothpaste/)
 

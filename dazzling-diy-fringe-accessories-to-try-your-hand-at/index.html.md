@@ -122,16 +122,16 @@ You can add fringe to just about anything and it makes it so much more fun! I th
 
 ## Related Posts
 
-- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
 - [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
+- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
 - [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
-- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
-- [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
-- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
-- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
-- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
 - [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
+- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
+- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
+- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
 - [plain wooden bangles](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover/)
+- [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
+- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [13 Lovely DIY Headbands to Make ...](https://hair.allwomenstalk.com/lovely-diy-headbands-to-make/)
 

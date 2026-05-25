@@ -242,15 +242,15 @@ Well you can never go wrong with hearts and glitter - right?
 
 ## Related Posts
 
-- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
 - [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
 - [8 Pillows to Dress up Your Couch ...](https://allwomenstalk.com/8-pillows-to-dress-up-your-couch/)
 - [8 Pretty Pillows to Update Your Space for Spring ....](https://allwomenstalk.com/8-pretty-pillows-to-update-your-space-for-spring/)

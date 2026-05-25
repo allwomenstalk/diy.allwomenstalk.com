@@ -43,16 +43,16 @@ Never be at a loss for a present to give again!
 
 ## Related Posts
 
-- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
-- [Video Tutorial for Personalized Wine Glasses ...](https://diy.allwomenstalk.com/tutorial-for-personalized-wine-glasses/)
-- [cups tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-designed-coffee-cups/)
-- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
-- [Video Guide to Making a Gift Bow in under a Minute...](https://diy.allwomenstalk.com/how-to-make-a-gift-bow-in-one-minute/)
-- [DIY Floating Storage for Organization That Doesnt ...](https://diy.allwomenstalk.com/diy-floating-storage-for-organization-that-doesnt-take-up-tons-of-space/)
-- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
-- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
-- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
 - [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
+- [Video Guide to Making a Gift Bow in under a Minute...](https://diy.allwomenstalk.com/how-to-make-a-gift-bow-in-one-minute/)
+- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
+- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
+- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
+- [Video Tutorial for Personalized Wine Glasses ...](https://diy.allwomenstalk.com/tutorial-for-personalized-wine-glasses/)
+- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
+- [DIY Floating Storage for Organization That Doesnt ...](https://diy.allwomenstalk.com/diy-floating-storage-for-organization-that-doesnt-take-up-tons-of-space/)
+- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
+- [cups tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-designed-coffee-cups/)
 - [8 Creative DIY Cloche Jars ...](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [10 Delightful DIY Gift Boxes ...](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 

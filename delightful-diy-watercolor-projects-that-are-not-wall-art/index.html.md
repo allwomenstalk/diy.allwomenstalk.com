@@ -70,16 +70,16 @@ As you can see, watercolor works well on things other than wall art. Go ahead an
 
 ## Related Posts
 
-- [23 Fun  DIY Projects to Keep Photographers Busy fo...](https://diy.allwomenstalk.com/these-diy-projects-will-keep-photographers-busy-for-days/)
+- [Super Fun Holiday Crafts for when Its Too Cold to ...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
+- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
+- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
 - [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
 - [These 21 Crochet Projects Are Perfect for Beginner...](https://diy.allwomenstalk.com/these-crochet-projects-are-perfect-for-beginners/)
-- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
-- [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
-- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
 - [Turn Your Ugly Christmas Sweater into an Adorable ...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
 - [Top Your Holiday Tree with These 21 DIY Stars ...](https://diy.allwomenstalk.com/top-your-holiday-tree-with-these-diy-stars/)
-- [Super Fun Holiday Crafts for when Its Too Cold to ...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
+- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
 - [naztazia waffle stitch](https://diy.allwomenstalk.com/crocheting-videos-for-girls-who-want-to-be-creative/)
+- [23 Fun  DIY Projects to Keep Photographers Busy fo...](https://diy.allwomenstalk.com/these-diy-projects-will-keep-photographers-busy-for-days/)
 - [10 Pretty Pink Pinterest DIYs ...](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
 - [7 Creative DIY Canvas Art Projects to Try ...](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
 

@@ -238,16 +238,16 @@ No matter what your dorm room looks likes, hopefully you got some ideas on how t
 
 ## Related Posts
 
-- [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
-- [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
-- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
-- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
 - [funky painted bookshelves](https://books.allwomenstalk.com/bookshelves-to-stun-and-amaze-you/)
+- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
+- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
+- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
+- [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
+- [diy kitchen tiles](https://diy.allwomenstalk.com/examples-of-kitchen-tile-that-you-can-do-yourself/)
+- [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
 - [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
 - [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
-- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
-- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
-- [diy kitchen tiles](https://diy.allwomenstalk.com/examples-of-kitchen-tile-that-you-can-do-yourself/)
+- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
 - [12 Cute Craft Room Decor Ideas ...](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
 - [7 Ways to Decorate Your Dorm Room for Christmas .....](https://diy.allwomenstalk.com/ways-to-decorate-your-dorm-room-for-christmas/)
 

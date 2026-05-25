@@ -142,15 +142,15 @@ How organized are your closets? Mine are a mess! My plan is to work on one at a 
 ## Related Posts
 
 - [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
-- [drawer organization ideas](https://diy.allwomenstalk.com/easy-examples-of-drawer-organization-that-will-make-your-life-easier/)
-- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
-- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
-- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
-- [cat isnt using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
-- [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
-- [how to recycle cd cases](https://diy.allwomenstalk.com/ways-to-recycle-old-cds/)
 - [the desk apprentice rotating desk organizer](https://lifestyle.allwomenstalk.com/desk-organizers-to-keep-your-stuff-in-order/)
+- [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
+- [cat isnt using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
+- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
+- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
+- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
 - [questions quality new purges](https://fashion.allwomenstalk.com/keep-or-purge-questions-to-help-you-decide/)
+- [how to recycle cd cases](https://diy.allwomenstalk.com/ways-to-recycle-old-cds/)
+- [drawer organization ideas](https://diy.allwomenstalk.com/easy-examples-of-drawer-organization-that-will-make-your-life-easier/)
 - [7 Steps to Cleaning out Your Closet ...](https://lifestyle.allwomenstalk.com/steps-to-cleaning-out-your-closet/)
 - [8 Tips for Reorganizing Your Closet ...](https://allwomenstalk.com/8-tips-for-reorganizing-your-closet/)
 

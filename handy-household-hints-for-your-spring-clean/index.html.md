@@ -42,16 +42,16 @@ These are just some of the handy household hints I have picked up along the way.
 
 ## Related Posts
 
-- [spring clean fast](https://diy.allwomenstalk.com/tips-to-spring-clean-your-house-quickly/)
-- [7 Tips for Organizing Your Pantry Easier and Bette...](https://diy.allwomenstalk.com/tips-for-organizing-your-pantry-easier-and-better/)
-- [7 Eco-Friendly Things You Can Easily do Today ...](https://diy.allwomenstalk.com/eco-friendly-things-you-can-easily-do-today/)
 - [7 Quick Ways to Get Rid of Shoe Odors when Your Sh...](https://shoes.allwomenstalk.com/quick-ways-to-get-rid-of-shoe-odors-when-your-shoes-smell/)
+- [7 steps in cleaning the kitchen](https://diy.allwomenstalk.com/super-simple-steps-to-cleaning-your-kitchen/)
 - [7 Common Habits of  Organized People ...](https://inspiration.allwomenstalk.com/common-habits-of-organized-people/)
+- [spring clean fast](https://diy.allwomenstalk.com/tips-to-spring-clean-your-house-quickly/)
+- [7 Eco-Friendly Things You Can Easily do Today ...](https://diy.allwomenstalk.com/eco-friendly-things-you-can-easily-do-today/)
+- [healthypantry](https://diet.allwomenstalk.com/easy-diy-tips-to-create-a-healthy-pantry/)
 - [7 Most Important Parts of Your House to Spring Cle...](https://lifestyle.allwomenstalk.com/most-important-parts-of-your-house-to-spring-clean/)
 - [7 Common Household Pests and How to Get Rid of The...](https://lifestyle.allwomenstalk.com/common-household-pests-and-how-to-get-rid-of-them/)
-- [healthypantry](https://diet.allwomenstalk.com/easy-diy-tips-to-create-a-healthy-pantry/)
-- [7 steps in cleaning the kitchen](https://diy.allwomenstalk.com/super-simple-steps-to-cleaning-your-kitchen/)
 - [paris riche le stylo spark](https://lifestyle.allwomenstalk.com/steps-to-an-ultra-clean-and-fresh-bathroom/)
+- [7 Tips for Organizing Your Pantry Easier and Bette...](https://diy.allwomenstalk.com/tips-for-organizing-your-pantry-easier-and-better/)
 - [10 Things to do to Get Ready for Spring ...](https://allwomenstalk.com/10-things-to-do-to-get-ready-for-spring/)
 - [10 Steps for Spring Cleaning ...](https://allwomenstalk.com/10-steps-for-spring-cleaning/)
 

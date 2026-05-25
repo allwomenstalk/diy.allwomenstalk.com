@@ -217,16 +217,16 @@ I would love to wear any of these charming bracelets. You can always add your ow
 
 ## Related Posts
 
-- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
-- [body jewelry holder](https://jewelry.allwomenstalk.com/diy-jewelry-organizers-to-get-busy-making/)
 - [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
+- [body jewelry holder](https://jewelry.allwomenstalk.com/diy-jewelry-organizers-to-get-busy-making/)
 - [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
-- [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
+- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
 - [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
-- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
 - [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
 - [home dcor](https://diy.allwomenstalk.com/diy-videos-about-home-decor-on-a-budget/)
+- [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
+- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
+- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [10 Coolest Chunky Bracelets ...](https://allwomenstalk.com/10-coolest-chunky-bracelets/)
 

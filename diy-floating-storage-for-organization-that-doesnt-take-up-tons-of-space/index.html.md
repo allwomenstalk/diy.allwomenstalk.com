@@ -31,16 +31,16 @@ Thank you for watching!
 
 ## Related Posts
 
-- [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
-- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
-- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
-- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
-- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
 - [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
-- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
-- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
-- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
 - [How to Dye Easter Eggs with Shaving Cream ...](https://diy.allwomenstalk.com/how-to-dye-easter-eggs-with-shaving-cream/)
+- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
+- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
+- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
+- [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
+- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
+- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
+- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
+- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

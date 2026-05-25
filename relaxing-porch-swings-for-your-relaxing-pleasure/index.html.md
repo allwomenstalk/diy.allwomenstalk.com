@@ -182,16 +182,16 @@ Do you have a porch swing? I bet you want one now don't you?
 
 ## Related Posts
 
+- [covered patio furniture ideas](https://diy.allwomenstalk.com/wait-til-you-see-these-awesome-patio-furniture-ideas/)
 - [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
-- [upcycled entertainment center ideas](https://diy.allwomenstalk.com/upcycled-furniture-projects-to-try-time-for-trash-picking/)
-- [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
 - [unique single photo frame design on wall](https://diy.allwomenstalk.com/here-are-totally-easy-photo-frame-arrangements-for-your-house/)
 - [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
-- [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
-- [mon chri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
 - [sunburst headboard](https://diy.allwomenstalk.com/gorgeous-bed-canopies-to-make-your-room-appear-elegant/)
 - [staggered picture ledges](https://diy.allwomenstalk.com/gallery-walls-you-need-in-your-home/)
-- [covered patio furniture ideas](https://diy.allwomenstalk.com/wait-til-you-see-these-awesome-patio-furniture-ideas/)
+- [mon chri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
+- [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
+- [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
+- [upcycled entertainment center ideas](https://diy.allwomenstalk.com/upcycled-furniture-projects-to-try-time-for-trash-picking/)
 - [5 Cool Outdoor Accessories for Your Garden ...](https://gardening.allwomenstalk.com/5-cool-outdoor-accessories-for-your-garden/)
 - [8 Relaxing Color Combinations for Your Home ...](https://lifestyle.allwomenstalk.com/relaxing-color-combinations-for-your-home/)
 

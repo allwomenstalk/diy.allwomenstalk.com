@@ -311,16 +311,16 @@ Do you see anything you love? I have a stack of pallets I found, but I can't dec
 
 ## Related Posts
 
-- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
-- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
-- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
-- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
-- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
 - [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
-- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
+- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
+- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
 - [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
+- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
+- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
+- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
+- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
 - [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
+- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

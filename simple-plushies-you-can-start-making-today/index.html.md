@@ -3,7 +3,7 @@ title: "7 Simple Plushies You Can Start Making Today ..."
 description: "Vintage Hanky Bunny; Tooth Fairy Pillow; Colorful Boats; Easy Teddy Bear; Raindrop Softie; More ..."
 url: "https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Simple Plushies You Can Start Making Today ...
@@ -70,16 +70,16 @@ How adorable are these plushies? I am putting a couple of these to my to-make li
 
 ## Related Posts
 
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
-- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
-- [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
-- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
+- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
 - [coffee filter peonies](https://diy.allwomenstalk.com/diy-peony-projects-for-women-who-love-floral/)
 - [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 - [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
-- [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
+- [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
 

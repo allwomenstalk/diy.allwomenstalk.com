@@ -3,7 +3,7 @@ title: "Christmas DIYs Crafty Girls Still Have Time to do ..."
 description: "5 DIY Decorations; 20 Cheap and Awesome Christmas Gifts and DIYS; Christmas Table Napkins; Christmas Gnomes; Christmas Hacks; More ..."
 url: "https://diy.allwomenstalk.com/christmas-diy/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Christmas DIYs Crafty Girls Still Have Time  to do ...
@@ -34,16 +34,16 @@ Do have some fun getting crafty this Christmas
 
 ## Related Posts
 
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

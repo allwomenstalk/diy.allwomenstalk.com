@@ -3,7 +3,7 @@ title: "Save My Page! 30 Cute DIY Bookmarks to Make & Use ..."
 description: "Felt Heart Corner Bookmark; Tiny Washi Tape Bookmarks; Bookmark Corner Characters; Animal-shaped Bookmarks from Patterned Paper; Button Bookmarks; More ..."
 url: "https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Save My Page! 30 Cute DIY Bookmarks to Make & Use ...
@@ -180,16 +180,16 @@ Via [Welcome to Scrappin' Cat's Creative ...](http://scrappincatscreativeendeavo
 
 ## Related Posts
 
-- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
-- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
-- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
 - [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
+- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
 - [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
 - [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
+- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
+- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
 - [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
 - [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
-- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
-- [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [12 Wonderful Ways to Upcycle Books ...](https://lifestyle.allwomenstalk.com/wonderful-ways-to-upcycle-books/)
 

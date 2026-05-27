@@ -3,7 +3,7 @@ title: "Got Scrap Leather Lying around? Whip up These Easy DIY Projects!"
 description: "Basket Handles; Door Wedge; Key Fob; Belt Ring; Triangle Mobile; More ..."
 url: "https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Got Scrap Leather Lying around? Whip up These Easy DIY Projects!
@@ -68,16 +68,16 @@ I have just the right amount of scraps for the tab dividers and basket handles. 
 
 ## Related Posts
 
-- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
-- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
 - [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
 - [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
 - [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
-- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
+- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
 - [Are You Addicted to Scrapbooking](https://allwomenstalk.com/are-you-addicted-to-scrapbooking/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking/)
 

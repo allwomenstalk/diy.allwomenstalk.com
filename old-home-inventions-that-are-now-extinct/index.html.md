@@ -3,7 +3,7 @@ title: "Revolutionary Home Inventions That Are Now Extinct ..."
 description: "Phonograph; Cassette Deck; Rotary Telephones; Washboard; Manual Typewriters; More ..."
 url: "https://diy.allwomenstalk.com/old-home-inventions-that-are-now-extinct/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Revolutionary Home Inventions That Are Now Extinct ...
@@ -59,15 +59,15 @@ There are a lot of old inventions that have become extinct even though they are 
 
 ## Related Posts
 
-- [excuses to go to the store](https://funny.allwomenstalk.com/funny-excuses-we-give-for-buying-something-extravagant/)
-- [funky business card](https://lifestyle.allwomenstalk.com/insanely-clever-business-cards-youll-want-for-yourself/)
-- [what does vinegar](https://food.allwomenstalk.com/types-of-vinegar-to-choose-from-at-the-store/)
-- [best things to sell at flea markets](https://lifestyle.allwomenstalk.com/great-things-you-can-buy-at-a-flea-market/)
-- [fun thumb drives](https://lifestyle.allwomenstalk.com/fun-flash-drives-youll-love-to-use/)
 - [dream sports car](https://lifestyle.allwomenstalk.com/jaw-dropping-sports-cars-you-can-dream-about-owning/)
-- [nostalic toys](https://lifestyle.allwomenstalk.com/nostalgic-toys-from-the-80s-and-90s-you-used-to-love/)
+- [excuses to go to the store](https://funny.allwomenstalk.com/funny-excuses-we-give-for-buying-something-extravagant/)
+- [best things to sell at flea markets](https://lifestyle.allwomenstalk.com/great-things-you-can-buy-at-a-flea-market/)
 - [pet rock box template](https://lifestyle.allwomenstalk.com/original-one-hit-wonder-inventions/)
 - [coolest phone cases ever](https://fashion.allwomenstalk.com/really-cool-phone-cases-that-you-wont-be-able-to-resist/)
+- [nostalic toys](https://lifestyle.allwomenstalk.com/nostalgic-toys-from-the-80s-and-90s-you-used-to-love/)
+- [what does vinegar](https://food.allwomenstalk.com/types-of-vinegar-to-choose-from-at-the-store/)
+- [funky business card](https://lifestyle.allwomenstalk.com/insanely-clever-business-cards-youll-want-for-yourself/)
+- [fun thumb drives](https://lifestyle.allwomenstalk.com/fun-flash-drives-youll-love-to-use/)
 - [expensive gadgets](https://money.allwomenstalk.com/reasons-you-dont-need-the-most-expensive-gadgets/)
 - [7 Useful Small Appliances for the Kitchen ...](https://allwomenstalk.com/7-useful-small-appliances-for-the-kitchen/)
 - [9 Greatest Inventions Ever ...](https://allwomenstalk.com/9-greatest-inventions-ever/)

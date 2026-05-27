@@ -3,7 +3,7 @@ title: "19 Adorable DIY Valentines Day Ideas for Kids ..."
 description: "Friendship Bracelets; Recycled Crayon Hearts; School of Fish; Bubbles Bubbles Everywhere!; Love Bugs; More ..."
 url: "https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 19 Adorable DIY Valentines Day Ideas for Kids ...
@@ -118,16 +118,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 ## Related Posts
 
-- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
-- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
+- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
 - [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
-- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
-- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
+- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
+- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

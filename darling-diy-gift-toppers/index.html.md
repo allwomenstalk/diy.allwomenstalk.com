@@ -3,7 +3,7 @@ title: "13 Darling DIY Gift Toppers ..."
 description: "Embellished Glittered Clothespins; Ribbon Loom Flowers; Tassels; Paper Pom Pom; Tissue Flowers; More ..."
 url: "https://diy.allwomenstalk.com/darling-diy-gift-toppers/"
 category: "diy"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 13 Darling DIY Gift Toppers ...
@@ -112,16 +112,16 @@ Got more fun **DIY gift topper** ideas? Don't be shy; share them with us!
 
 ## Related Posts
 
-- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
-- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
-- [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
-- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
-- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
 - [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
+- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
+- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
+- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

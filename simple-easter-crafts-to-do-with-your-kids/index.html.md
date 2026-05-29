@@ -3,7 +3,7 @@ title: "7 Simple Easter Crafts to do with Your Kids ..."
 description: "Marbleized Paper Eggs; Cotton Ball Lamb; Tissue and Clothespin Butterflies; Yarn Eggs; Bunny Ears; More ..."
 url: "https://diy.allwomenstalk.com/simple-easter-crafts-to-do-with-your-kids/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Simple Easter Crafts to do with Your Kids ...
@@ -56,16 +56,16 @@ Do have a favorite Easter craft from your childhood? I love doing crafts with my
 
 ## Related Posts
 
-- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
-- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
-- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
-- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
-- [7 DIY Easter Projects That Are Fun and Festive ...](https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/)
 - [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
 - [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
+- [7 DIY Easter Projects That Are Fun and Festive ...](https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/)
+- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 

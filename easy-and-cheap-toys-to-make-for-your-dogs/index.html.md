@@ -3,7 +3,7 @@ title: "7 Easy and Cheap Toys to Make for Your Dogs ..."
 description: "Old Shirt; Treat Ball; Squeaky Sweater; Fleece Tug Toy; Scrap Balls; More ..."
 url: "https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Easy and Cheap Toys to Make for Your Dogs ...
@@ -66,16 +66,16 @@ A word of caution: some of these dog toys may not work for your pets. Do not att
 
 ## Related Posts
 
-- [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
-- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
 - [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
-- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
-- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
+- [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
 - [old door corner shelf](https://diy.allwomenstalk.com/shelfies-the-best-diy-shelves/)
+- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
+- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
 - [plain wooden bangles](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover/)
 - [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
-- [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
+- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
+- [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
 

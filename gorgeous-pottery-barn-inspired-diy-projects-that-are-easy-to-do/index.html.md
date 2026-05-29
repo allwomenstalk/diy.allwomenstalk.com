@@ -3,7 +3,7 @@ title: "Gorgeous Pottery Barn Inspired DIY Projects That Are Easy to do ..."
 description: "Seashell Wreath; Rope Tray; Cutting Board Pedestal; Easter Flag; Wooden Stars; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Gorgeous Pottery Barn Inspired DIY Projects That Are Easy to do ...
@@ -66,16 +66,16 @@ Told you they're easy. If you don't have a lot of time, leave the furniture idea
 
 ## Related Posts
 
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
-- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
+- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
 - [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 

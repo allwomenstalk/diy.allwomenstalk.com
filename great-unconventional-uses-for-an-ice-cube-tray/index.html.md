@@ -3,7 +3,7 @@ title: "7 Great Unconventional Uses for an Ice Cube Tray ..."
 description: "Frozen Herbs; Jelly Shots; Wine Cubes; Jewellery Organisation; Seed Bombs; More ..."
 url: "https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Great Unconventional Uses for an Ice Cube Tray ...
@@ -56,16 +56,16 @@ Who knew ice cube trays were so versatile!? If you think outside the box, there 
 
 ## Related Posts
 
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
 - [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
-- [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
-- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [45 How to Make Tutorials for All Kinds of Stuff .....](https://diy.allwomenstalk.com/how-to-make-tutorials-for-all-kinds-of-stuff/)
-- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [9 Silly Ornaments to Decorate Your Tree with ...](https://funny.allwomenstalk.com/silly-ornaments-to-decorate-your-tree-with/)
-- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
 - [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
+- [9 Silly Ornaments to Decorate Your Tree with ...](https://funny.allwomenstalk.com/silly-ornaments-to-decorate-your-tree-with/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
+- [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
+- [27 Wonderful Washi Tape Crafts That You Wont Be Ab...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
+- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
 - [25 Decorative DIY Coasters Youll Be Proud to Show ...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [45 How to Make Tutorials for All Kinds of Stuff .....](https://diy.allwomenstalk.com/how-to-make-tutorials-for-all-kinds-of-stuff/)
 - [7 Tips for Great Home-Made Ice Cream ...](https://thecrepescafe.com/tips-for-great-home-made-ice-cream/)
 - [7 Ways to Use Milk Cartons ...](https://allwomenstalk.com/7-ways-to-use-milk-cartons/)
 

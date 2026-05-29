@@ -3,7 +3,7 @@ title: "10 Super Adorable DIY Puppets ..."
 description: "Sock Monster; Stuffed Animal; Chewbacca; Washcloth; Tiny Bunnies; More ..."
 url: "https://diy.allwomenstalk.com/super-adorable-diy-puppets/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Super Adorable DIY Puppets ...
@@ -86,16 +86,16 @@ So there you have 10 **wonderful DIY puppets.** I'll try to come up with a list 
 
 ## Related Posts
 
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
 - [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
 - [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
 - [www.katescreativespace.com](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 

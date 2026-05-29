@@ -3,7 +3,7 @@ title: "11 DIYs to Remove Bad Smells from Your Home ..."
 description: "Homemade Febreeze; Coffee Car Air Freshener; DIY Carpet Cleaner; Laundry Scent Booster; Carpet Deodorizer; More ..."
 url: "https://diy.allwomenstalk.com/diys-to-remove-bad-smells-from-your-home/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 11 DIYs to Remove Bad Smells from Your Home ...
@@ -76,16 +76,16 @@ Where do your smells come from? Which of these do you want to try first?
 
 ## Related Posts
 
-- [how to overcome clothes hoarding](https://fashion.allwomenstalk.com/stupid-proof-ways-to-detox-your-closet-for-girls-hoarding-clothes/)
+- [clutter therapy](https://diy.allwomenstalk.com/garbage-bag-therapy-tip-do-de-clutter/)
 - [what is spring cleaning for my body](https://health.allwomenstalk.com/sensational-ways-to-spring-clean-your-body/)
-- [tidy up my hair](https://lifestyle.allwomenstalk.com/easy-ways-to-tidy-up-your-morning-routine/)
+- [spider proof](https://diy.allwomenstalk.com/avoid-bugs-with-these-ways-to-spider-proof-your-home/)
+- [how to overcome clothes hoarding](https://fashion.allwomenstalk.com/stupid-proof-ways-to-detox-your-closet-for-girls-hoarding-clothes/)
+- [morning tools](https://lifestyle.allwomenstalk.com/tools-to-make-your-morning-routine-easier/)
+- [jizz stain](https://diy.allwomenstalk.com/ways-to-remove-semen-stains/)
+- [how to clean your beauty blender](https://makeup.allwomenstalk.com/easy-ways-to-clean-your-beauty-blender-sponge/)
 - [plant pot storage solutions](https://diy.allwomenstalk.com/pot-storage-ideas/)
 - [gymclothes](https://fitness.allwomenstalk.com/easy-ways-to-make-your-gym-clothes-fresh-every-time/)
-- [morning tools](https://lifestyle.allwomenstalk.com/tools-to-make-your-morning-routine-easier/)
-- [how to clean your beauty blender](https://makeup.allwomenstalk.com/easy-ways-to-clean-your-beauty-blender-sponge/)
-- [clutter therapy](https://diy.allwomenstalk.com/garbage-bag-therapy-tip-do-de-clutter/)
-- [spider proof](https://diy.allwomenstalk.com/avoid-bugs-with-these-ways-to-spider-proof-your-home/)
-- [jizz stain](https://diy.allwomenstalk.com/ways-to-remove-semen-stains/)
+- [tidy up my hair](https://lifestyle.allwomenstalk.com/easy-ways-to-tidy-up-your-morning-routine/)
 - [5 Flowers That Will Make Your House Smell Good ...](https://gardening.allwomenstalk.com/5-flowers-that-will-make-your-house-smell-good/)
 - [7 Homemade Natural Cleaners ...](https://allwomenstalk.com/7-homemade-natural-cleaners/)
 

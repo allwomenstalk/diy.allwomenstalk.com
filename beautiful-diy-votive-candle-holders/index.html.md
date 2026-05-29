@@ -3,7 +3,7 @@ title: "10 Beautiful DIY Votive Candle Holders ..."
 description: "Laced Cement; Glitter; Glass Pebble; Apples; Film Negative; More ..."
 url: "https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Beautiful DIY Votive Candle Holders ...
@@ -86,16 +86,16 @@ Got other ideas for making cute **DIY votive candle holders**? We'd love to hear
 
 ## Related Posts
 
-- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
-- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
-- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
+- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
+- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
+- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

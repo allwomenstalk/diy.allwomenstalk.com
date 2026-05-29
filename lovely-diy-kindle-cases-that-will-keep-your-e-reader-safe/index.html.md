@@ -3,7 +3,7 @@ title: "8 Lovely DIY Kindle Cases That Will Keep Your E-Reader Safe ..."
 description: "Leather Scraps; Birdie Prints; Book, No-Sew; Easy Felt-Lined Sleeve; Leather; More ..."
 url: "https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Lovely DIY Kindle Cases That Will Keep Your E\-Reader Safe ...
@@ -77,13 +77,13 @@ I cannot wait to make a new Kindle case for my e-reader. Which pattern should I 
 ## Related Posts
 
 - [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
-- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
+- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
 - [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
-- [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
 - [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
-- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
 - [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
+- [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
+- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
 - [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
 - [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)

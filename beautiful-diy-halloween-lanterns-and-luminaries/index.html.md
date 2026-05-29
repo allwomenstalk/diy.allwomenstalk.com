@@ -3,7 +3,7 @@ title: "10 Beautiful DIY Halloween Lanterns and Luminaries ..."
 description: "Web-like Decoupage; Glam Goth; Tap Light Ghosts; Mason Jars; Paper Bags; More ..."
 url: "https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Beautiful DIY Halloween Lanterns and Luminaries ...
@@ -90,16 +90,16 @@ If you have other fun and fabulous ideas for making** DIY Halloween lanterns and
 
 ## Related Posts
 
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
 - [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
 - [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 - [12 Gorgeous DIY Fall Centerpieces ...](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
 

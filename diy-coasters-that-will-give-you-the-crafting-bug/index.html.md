@@ -3,7 +3,7 @@ title: "32 DIY Coasters That Will Give You the Crafting Bug ..."
 description: "Pom Pom Coasters; Tile Coasters; Scrabble Coasters; Bottle Cap Coasters; Fabric Coasters; More ..."
 url: "https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 32 DIY Coasters That Will Give You the Crafting Bug ...
@@ -231,16 +231,16 @@ Did you know there were so many great ideas for homemade coasters out there? Whi
 
 ## Related Posts
 
-- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
 - [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
 - [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
-- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
-- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
-- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
-- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
-- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
 - [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
+- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
+- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
+- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
+- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
+- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
+- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [12 Darling DIY Driftwood Crafts ...](https://lifestyle.allwomenstalk.com/darling-diy-driftwood-crafts/)
 

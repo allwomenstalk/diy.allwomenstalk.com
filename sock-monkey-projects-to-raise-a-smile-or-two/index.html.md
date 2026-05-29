@@ -3,7 +3,7 @@ title: "40 Sock Monkey Projects to Raise a Smile or Two ..."
 description: "Sock Monkey Booties; Sock Monkey Birthday Cake; Sock Monkey Cake Pops; Sock Monkey Hat; Sock Monkey Popsicles!; More ..."
 url: "https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/"
 category: "diy"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 40 Sock Monkey Projects to Raise a Smile or Two ...
@@ -329,16 +329,16 @@ So my sock monkey loving friends, there you have it; plenty of sock monkey proje
 
 ## Related Posts
 
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
 - [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
-- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
 - [10 Funky Yarns for Crafters ...](https://allwomenstalk.com/10-funky-yarns-for-crafters/)
 - [9 Sweet and Adorable DIY Socks ...](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 

@@ -3,7 +3,7 @@ title: "10 Spooky DIY Witch Halloween Decor ..."
 description: "Crash Site; Pumpkin Cauldron; Mantel Silhouettes; Witch Legs; Vellum Lanterns; More ..."
 url: "https://diy.allwomenstalk.com/spooky-diy-witch-halloween-decor/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 Spooky DIY Witch Halloween Decor ...
@@ -92,16 +92,16 @@ Ready for some witchy Halloween fun? Give some of these **witch-inspired Hallowe
 
 ## Related Posts
 
-- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
-- [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
-- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
+- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
 - [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
 - [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
-- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
+- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
+- [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 - [7 Cool Ideas for Pumpkin Decorating This Halloween...](https://allwomenstalk.com/7-cool-ideas-for-pumpkins-this-halloween/)
 

@@ -3,7 +3,7 @@ title: "7 DIY Duct Tape Projects You Should Try Now ..."
 description: "Drawer Organizer; Place Mats; Belt; Artwork/Photo Quilt; Decorative Spheres; More ..."
 url: "https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 DIY Duct Tape Projects You Should Try Now ...
@@ -59,13 +59,13 @@ Duct tape crafts are great for something to do while you watch TV or something p
 
 ## Related Posts
 
-- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
-- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
-- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
-- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
-- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
 - [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
+- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
+- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
+- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
+- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
 - [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
 - [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
 - [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)

@@ -3,7 +3,7 @@ title: "10 DIY Halloween Masks to Make ..."
 description: "Chic Masquerade; Pink Owl; Spidey; Black Cat; Birdy; More ..."
 url: "https://diy.allwomenstalk.com/diy-halloween-masks-to-make/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 DIY Halloween Masks to Make ...
@@ -88,16 +88,16 @@ Which of these **DIY Halloween masks** will you be making for your costume? If y
 
 ## Related Posts
 
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
 - [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
+- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
 - [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
 - [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
 - [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 - [7 Cool Ideas for Pumpkin Decorating This Halloween...](https://allwomenstalk.com/7-cool-ideas-for-pumpkins-this-halloween/)
 

@@ -3,7 +3,7 @@ title: "9 Chic DIY Industrial Lamps to Make for Your Home ..."
 description: "Candlestick; Sparkly Thingies; Chicken Wire; Gears; Geometric Pipe; More ..."
 url: "https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 9 Chic DIY Industrial Lamps to Make for Your Home ...
@@ -82,16 +82,16 @@ Hope you found plenty of inspiration from this list of DIY industrial lamps. Got
 
 ## Related Posts
 
-- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
-- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
-- [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
-- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
-- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
-- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
-- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
-- [vlone shirt roblox](https://diy.allwomenstalk.com/fresh-diy-ways-to-update-a-plain-t-shirt/)
-- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
 - [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
+- [vlone shirt roblox](https://diy.allwomenstalk.com/fresh-diy-ways-to-update-a-plain-t-shirt/)
+- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
+- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
+- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
+- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
+- [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
+- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
+- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
+- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [10 Insanely Cool DIY Chandeliers ...](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)
 

@@ -3,7 +3,7 @@ title: "Got Scrap Leather Lying around? Whip up These Easy DIY Projects!"
 description: "Basket Handles; Door Wedge; Key Fob; Belt Ring; Triangle Mobile; More ..."
 url: "https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Got Scrap Leather Lying around? Whip up These Easy DIY Projects!
@@ -68,16 +68,16 @@ I have just the right amount of scraps for the tab dividers and basket handles. 
 
 ## Related Posts
 
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
-- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
-- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
-- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
-- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
-- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
-- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
+- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
+- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
+- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
 - [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
+- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
 - [Are You Addicted to Scrapbooking](https://allwomenstalk.com/are-you-addicted-to-scrapbooking/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking/)
 

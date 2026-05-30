@@ -3,7 +3,7 @@ title: "30 Crafts to Show Your Love for Mod Podge ..."
 description: "DIY Photo Coasters; Autumn Leaf Bowls; Wall Photo Display; DIY Outlet Covers; Ceramic Tile Coasters; More ..."
 url: "https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 30 Crafts to Show Your Love for Mod Podge ...
@@ -194,15 +194,15 @@ How much do you adore Mod Podge?
 
 ## Related Posts
 
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
-- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
-- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
-- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
-- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
 - [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
+- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
+- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
 - [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
 - [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
+- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
 - [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)

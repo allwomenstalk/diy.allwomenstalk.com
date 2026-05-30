@@ -3,7 +3,7 @@ title: "7 Easy Peasy DIY Dry Shampoo Recipes for Bad Hair Days ..."
 description: "DIY Cornstarch Dry Shampoo; 2 Ingredient Cocoa Dry Shampoo; DIY Light Hair Dry Shampoo; Vanilla Bean Lavender Dry Shampoo; Lemon Cornmeal Dry Shampoo; More ..."
 url: "https://diy.allwomenstalk.com/easy-peasy-diy-dry-shampoo-recipes-for-bad-hair-days/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Easy Peasy DIY Dry Shampoo Recipes for Bad Hair Days ...
@@ -105,16 +105,16 @@ _tlc.howstuffworks.com_
 
 ## Related Posts
 
-- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
-- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
-- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
 - [best organic conditioner](https://hair.allwomenstalk.com/best-natural-conditioners-your-hair-will-thank-you-for/)
+- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
+- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
+- [ojon super sleek hair straightening treatment](https://hair.allwomenstalk.com/best-at-home-hair-straightening-products-every-girl-should-have/)
+- [best shampoos for frizzy wavy hair](https://hair.allwomenstalk.com/best-anti-frizz-shampoos-to-prevent-frizzy-hair-in-the-first-place/)
+- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
 - [curling wand styles](https://makeup.allwomenstalk.com/best-curling-wands-for-amazing-lashes/)
 - [list of natural shampoos](https://hair.allwomenstalk.com/best-natural-shampoos-for-beautiful-and-healthy-hair/)
 - [light protein treatment for natural hair](https://hair.allwomenstalk.com/protein-treatments-for-kinky-curly-hair/)
-- [percy  reed wonder treatment oil](https://hair.allwomenstalk.com/amazing-hair-oils-to-fight-winter-frizz/)
-- [spray hair volumizer](https://hair.allwomenstalk.com/best-volumizing-sprays-that-really-work/)
-- [nutrients for healthy hair](https://beauty.allwomenstalk.com/nutrients-for-healthy-hair-you-simply-must-get-everyday/)
+- [products to control frizzy hair](https://hair.allwomenstalk.com/best-anti-frizz-hair-products-for-the-frizziest-hair/)
 - [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 - [7 Steps to Make Your Own Dry Shampoo ...](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
 

@@ -3,7 +3,7 @@ title: "7 Original Christmas Gifts You Can Make Yourself ..."
 description: "Snow Day Survival Kit; Your Own Artwork; Cup Sleeves; Snow Globe Necklace; Bath Bombs and Melts; More ..."
 url: "https://diy.allwomenstalk.com/original-christmas-gifts-you-can-make-yourself/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Original Christmas Gifts You Can Make Yourself ...
@@ -56,16 +56,16 @@ What are you making this holiday season? Will you try any of these gifts out?
 
 ## Related Posts
 
-- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
-- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
-- [7 Creative Photo Ideas for Holiday Cards ...](https://diy.allwomenstalk.com/creative-photo-ideas-for-holiday-cards/)
 - [The Nicest Naughty Bits Youll Ever Find in Your St...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
-- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
-- [JustGotJingled: Shoppers Give Back to Strangers in...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
-- [Snag a Great Gift for Your Mom for under 25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
+- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
+- [7 Creative Photo Ideas for Holiday Cards ...](https://diy.allwomenstalk.com/creative-photo-ideas-for-holiday-cards/)
 - [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
-- [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
+- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
+- [Snag a Great Gift for Your Mom for under 25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
 - [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
+- [JustGotJingled: Shoppers Give Back to Strangers in...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
+- [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
+- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

@@ -3,7 +3,7 @@ title: "Heres How to Make Something Fabulous out of the Sea Glass You Collected 
 description: "How to Drill Sea Glass for a Pendant; A Sea Glass Counter Top is Unique; Add an Aqua Sea Glass Bracelet to Your Wardrobe; Fun Summer Beach Glass Sun Catcher for Your Patio; Save Sand from Vacation to Make a Framed Heart with Sea Glass; More ..."
 url: "https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Heres How to Make Something Fabulous out of the Sea Glass You Collected on Your Beach Vacay ...
@@ -221,15 +221,15 @@ Are you dreaming of making one of these? Where did you collect all your sea glas
 
 ## Related Posts
 
-- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
-- [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
 - [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
-- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
-- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
-- [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
 - [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
+- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
+- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
+- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
+- [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
+- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
+- [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
 - [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
 - [9 Charming Craft Projects for a Beach Holiday ...](https://lifestyle.allwomenstalk.com/charming-craft-projects-for-a-beach-holiday/)
 - [UpCycle Old Wine Bottles for Creative Home Decor ....](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)

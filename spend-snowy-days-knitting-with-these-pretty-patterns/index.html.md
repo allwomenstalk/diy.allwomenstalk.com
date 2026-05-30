@@ -3,7 +3,7 @@ title: "Spend Snowy Days Knitting with These Pretty Patterns ..."
 description: "Elegant Ribbon Lace Scarf with Beads; Reversible Cabled Blanket; Downton Abbey Hat; Honeylicious Sweater; Easy-Peasy Leg Warmers; More ..."
 url: "https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Spend Snowy Days Knitting with These Pretty Patterns ...
@@ -146,16 +146,16 @@ So, what have you got on your needles?
 
 ## Related Posts
 
-- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
 - [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
+- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
 - [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
 - [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
 - [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
 - [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
-- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
 - [9 More Adorable Pet Crafts ...](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
 - [12 Sweet DIY Snowflake Craft Projects ...](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 

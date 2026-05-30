@@ -3,7 +3,7 @@ title: "8 Totally Cute DIY Crowns ..."
 description: "Nature; Felt; Medieval; Lace; Fabric; More ..."
 url: "https://diy.allwomenstalk.com/totally-cute-diy-crowns/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Totally Cute DIY Crowns ...
@@ -76,16 +76,16 @@ Hope you end up making something from this list of **handmade crowns**! Go ahead
 
 ## Related Posts
 
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
 - [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
 - [7 Sparkly Tiaras ...](https://jewelry.allwomenstalk.com/sparkly-tiaras/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

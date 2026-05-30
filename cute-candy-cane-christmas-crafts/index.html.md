@@ -3,7 +3,7 @@ title: "11 Cute Candy Cane Christmas Crafts ..."
 description: "Wreath; Marbled Ornament; Candy Cane Wreath; Felt; Bow Pendant; More ..."
 url: "https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 11 Cute Candy Cane Christmas Crafts ...
@@ -90,16 +90,16 @@ Hope you enjoyed this list of candy cane Christmas crafts. If you have other can
 
 ## Related Posts
 
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
-- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
-- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
 - [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
+- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
-- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
+- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

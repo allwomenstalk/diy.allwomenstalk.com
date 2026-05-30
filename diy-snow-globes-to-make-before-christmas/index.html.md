@@ -3,7 +3,7 @@ title: "31 DIY Snow Globes to Make before Christmas ..."
 description: "Stemware Snow Globes; Anthropolgie-Inspired; Winter Scene; DIY Snow Globes with Christmas Lights; Photo Snow Globe; More ..."
 url: "https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/"
 category: "diy"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 31 DIY Snow Globes to Make before Christmas ...
@@ -242,16 +242,16 @@ You can let your creative juices flow to come up with your own ideas for DIY sno
 
 ## Related Posts
 
-- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
+- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
-- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
 - [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
-- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
-- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
 - [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
+- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

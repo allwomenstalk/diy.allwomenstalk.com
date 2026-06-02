@@ -3,7 +3,7 @@ title: "21 Epic Halloween Mantels to Adorn Your House ..."
 description: "A Little Bit Witchy; Vintage Inspired; Double Duty; Totally Spooky; Black and White; More ..."
 url: "https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 21 Epic Halloween Mantels to Adorn Your House ...
@@ -142,16 +142,16 @@ How do you decorate for Halloween? I think each of these mantels are perfect! Wh
 
 ## Related Posts
 
-- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
-- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
-- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
-- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
-- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
 - [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
 - [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
+- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
+- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
+- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
+- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 

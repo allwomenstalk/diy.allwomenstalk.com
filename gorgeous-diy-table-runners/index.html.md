@@ -3,7 +3,7 @@ title: "10 Gorgeous DIY Table Runners ..."
 description: "Tiled; Tape Measure; Faux Leaves; Woven Jute; Rustic Rosettes; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-diy-table-runners/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Gorgeous DIY Table Runners ...
@@ -92,15 +92,15 @@ I am aware that there are probably a gazillion ways to make **DIY table runners*
 
 ## Related Posts
 
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
 - [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
 - [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Ideas for Table Centerpieces ...](https://lifestyle.allwomenstalk.com/ideas-for-table-centerpieces/)

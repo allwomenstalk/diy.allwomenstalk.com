@@ -3,7 +3,7 @@ title: "7 Cute Woodland DIY Craft Ideas ..."
 description: "Woodland Wreath; Woodland Bookends; Woodland Terrarium; Woodland Coasters; Woodland Candles; More ..."
 url: "https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Cute Woodland DIY Craft Ideas ...
@@ -52,14 +52,14 @@ Whether you are celebrating a woodland themed party, or you just want to decorat
 
 - [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
 - [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [debis design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
+- [debis design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

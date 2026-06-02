@@ -3,7 +3,7 @@ title: "7 DIY Mothers Day Gifts ..."
 description: "Tea Box; Teacup Candles; Potted Plant Necklace; Photo Tube Vase; Erasable Glass Calendar; More ..."
 url: "https://diy.allwomenstalk.com/diy-mothers-day-gifts/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 DIY Mothers Day Gifts ...
@@ -186,16 +186,16 @@ designsponge.com_
 
 ## Related Posts
 
-- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
 - [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
 - [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
-- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
 - [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [Mothers Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 - [Top 5 Mothers Day Gifts ...](https://allwomenstalk.com/top-5-mothers-day-gifts/)
 

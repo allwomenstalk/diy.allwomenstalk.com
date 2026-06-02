@@ -3,7 +3,7 @@ title: "24 Easy to Make Fall Candles for Your Home ..."
 description: "Bloody Pillar Candle; Popcorn; Acorns and Twigs; Fallen Leaves; Coffee Bean Centerpiece; More ..."
 url: "https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 24 Easy to Make Fall Candles for Your Home ...
@@ -180,16 +180,16 @@ What do you love most about fall candles? Do you go for the scented or not? I lo
 
 ## Related Posts
 
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
 - [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
 - [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
 - [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
 - [7 Deliciously Scented Candles ...](https://allwomenstalk.com/7-deliciously-scented-candles/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

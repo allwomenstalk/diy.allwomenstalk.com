@@ -3,7 +3,7 @@ title: "90 Inspiring Christmas Crafts for Adults as Seen on Pinterest ..."
 description: "Spring-Grete Craft Ideas; Homemade Holiday Scents; Sharpie Craft Projects: Top 20; Christmas Marquee: Ho Ho Ho; Snowman Christmas Countdown: Etsy Edition; More ..."
 url: "https://diy.allwomenstalk.com/christmas-crafts-for-adults/"
 category: "lifestyle"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 90 Inspiring Christmas Crafts for Adults as Seen on Pinterest ...
@@ -718,16 +718,16 @@ Hi! Hi! Hi! We are going strong here At The Picket Fence! We’re working our wa
 
 ## Related Posts
 
-- [Catchy Christmas Crafts: Delightful DIY Gifts  Dec...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
-- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
+- [DIY Weekend- Mike amp Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
+- [Catchy Christmas Crafts: Delightful DIY Gifts  Dec...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
+- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

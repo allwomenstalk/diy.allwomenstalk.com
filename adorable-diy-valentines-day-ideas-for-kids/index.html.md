@@ -3,7 +3,7 @@ title: "19 Adorable DIY Valentines Day Ideas for Kids ..."
 description: "Friendship Bracelets; Recycled Crayon Hearts; School of Fish; Bubbles Bubbles Everywhere!; Love Bugs; More ..."
 url: "https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 19 Adorable DIY Valentines Day Ideas for Kids ...
@@ -118,16 +118,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 ## Related Posts
 
-- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
+- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
+- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
 - [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
 - [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
-- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
-- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

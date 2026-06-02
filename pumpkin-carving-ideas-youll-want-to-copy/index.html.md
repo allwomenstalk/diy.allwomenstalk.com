@@ -3,7 +3,7 @@ title: "41 Pumpkin Carving Ideas You Need to Try ..."
 description: "Drilled Pumpkin; Boo!; Car and Camper; Owl Pumpkin; Glow Sticks; More ..."
 url: "https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 41 Pumpkin Carving Ideas You Need to Try ...
@@ -295,16 +295,16 @@ What do you do with your pumpkins at Halloween? Are you are carver or do you pre
 
 ## Related Posts
 
-- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
-- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
+- [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
+- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
+- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
+- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
 - [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
-- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
-- [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
+- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
+- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
 - [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
-- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [5 Spooky Pumpkin Designs ...](https://twilight.allwomenstalk.com/5-spooky-pumpkin-designs/)
 

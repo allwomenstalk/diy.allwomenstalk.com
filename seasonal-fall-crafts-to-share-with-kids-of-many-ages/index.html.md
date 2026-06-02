@@ -3,7 +3,7 @@ title: "28 Seasonal Fall Crafts to Share with Kids of Many Ages ..."
 description: "Ears of Corn; Leaf Outlines; Friendly Scarecrow; Repurposed Items; Monogram Fall Wreath; More ..."
 url: "https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 28 Seasonal Fall Crafts to Share with Kids of Many Ages ...
@@ -202,16 +202,16 @@ Do you do craft projects with your children? I have tons of ideas for days when 
 
 ## Related Posts
 
-- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
-- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
 - [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
+- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
+- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

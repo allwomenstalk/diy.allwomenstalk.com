@@ -3,7 +3,7 @@ title: "13 Fun Valentine Crafts ..."
 description: "Valentine Votive; Playing Card Book; Valentine Coffee Filter Wreath; Paint Chip Bookmarks; Valentine’s Tree; More ..."
 url: "https://diy.allwomenstalk.com/fun-valentine-crafts/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 13 Fun Valentine Crafts ...
@@ -94,16 +94,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 ## Related Posts
 
-- [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
-- [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
-- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
-- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
-- [Valentine Project 3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
-- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
-- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
-- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
-- [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
 - [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
+- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
+- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
+- [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
+- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
+- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
+- [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
+- [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
+- [Valentine Project 3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
+- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 

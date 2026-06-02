@@ -3,7 +3,7 @@ title: "31 Ways to Use Old Windows and Frames ..."
 description: "Old Window Chalkboard; Chalkboard Calendar with Hooks; Entrance Way Window; Photo Display; DIY Faux Mercury Glass Mirror; More ..."
 url: "https://diy.allwomenstalk.com/ways-to-use-old-windows-and-frames/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 31 Ways to Use Old Windows and Frames ...
@@ -225,14 +225,14 @@ I'm so inspired by these projects my house windows are not safe! Nah - don't wor
 
 - [pretty baby cribs](https://parenting.allwomenstalk.com/lovely-baby-cribs-for-your-little-one/)
 - [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
-- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
-- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
-- [berry decorations](https://diy.allwomenstalk.com/berry-themed-decorations-for-a-seasonal-touch/)
-- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
 - [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
-- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
+- [cute nativity scene](https://lifestyle.allwomenstalk.com/spectacular-nativity-scenes-for-your-christmas-decor-collection/)
+- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
+- [berry decorations](https://diy.allwomenstalk.com/berry-themed-decorations-for-a-seasonal-touch/)
+- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
 - [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
+- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [7 Home Decorating Tips on How to Reuse Old Picture...](https://lifestyle.allwomenstalk.com/home-decorating-tips-on-how-to-reuse-old-picture-frames/)
 - [8 Ideas for Recyling or Reusing Household Trash .....](https://allwomenstalk.com/8-ideas-for-recyling-or-reusing-household-trash/)
 

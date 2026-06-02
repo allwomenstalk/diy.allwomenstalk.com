@@ -3,7 +3,7 @@ title: "10 Creative DIY Candlestick Holders ..."
 description: "Spray Paint; Birch Logs; Wood Block; Trinkets; Lampshade Base; More ..."
 url: "https://diy.allwomenstalk.com/creative-diy-candlestick-holders/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Creative DIY Candlestick Holders ...
@@ -94,16 +94,16 @@ Aren't these **DIY candlestick holders** lovely? The fact that they are cheap to
 
 ## Related Posts
 
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [10 Christmas Tree Decoration Ideas ...](https://allwomenstalk.com/10-christmas-tree-decoration-ideas/)
 

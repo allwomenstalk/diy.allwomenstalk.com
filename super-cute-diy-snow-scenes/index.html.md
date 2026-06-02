@@ -3,7 +3,7 @@ title: "8 Super Cute DIY Snow Scenes ..."
 description: "Jar Snow Globes; Vintage-Inspired Bell Jars; Wine Glass; Mason Jars - Sideways; Shadowbox; More ..."
 url: "https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Super Cute DIY Snow Scenes ...
@@ -75,15 +75,15 @@ I think I have died and gone to kawaii heaven. Aren't these **DIY winter scenes*
 ## Related Posts
 
 - [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
-- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
-- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
 - [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
+- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
+- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
+- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
+- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
 - [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [8 Garden Decorating Ideas for the Holidays ...](https://gardening.allwomenstalk.com/garden-decorating-ideas-for-the-holidays/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

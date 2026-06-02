@@ -3,7 +3,7 @@ title: "22 of Todays Epic Design Inspo for Dolls Who Are Taking Care of Their Ho
 description: "@studiomcgee; @elledecor; @serenaandlily; @beckiowens; @onekingslane; More ..."
 url: "https://diy.allwomenstalk.com/of-todays-epic-design-inspo-for-dolls-who-are-taking-care-of-their-home/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 22 of Todays Epic Design Inspo for Dolls Who Are Taking Care of Their Home ...

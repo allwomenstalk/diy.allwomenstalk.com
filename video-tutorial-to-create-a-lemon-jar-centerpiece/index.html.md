@@ -3,7 +3,7 @@ title: "Video Tutorial to Create a Lemon Jar Centerpiece ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Video Tutorial to Create a Lemon Jar Centerpiece ...
@@ -22,13 +22,13 @@ I hope you like!
 
 - [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
 - [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
-- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
 - [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
-- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
 - [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
-- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
+- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
+- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
+- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
 - [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)

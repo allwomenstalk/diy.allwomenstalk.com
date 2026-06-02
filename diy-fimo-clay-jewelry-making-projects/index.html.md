@@ -3,7 +3,7 @@ title: "8 DIY Fimo Clay Jewelry- Making Projects ..."
 description: "Cute Halloween Bear Pendants; Starbucks Charms; Chocolate Macaroon Tutorial; Chanel Bag Fimo Charm; Leather-Effect Bag Tags or Pendants; More ..."
 url: "https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/"
 category: "diy"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 DIY Fimo Clay Jewelry\- Making Projects ...
@@ -48,16 +48,16 @@ Top Image Source: _beadingdaily.com_
 
 ## Related Posts
 
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 

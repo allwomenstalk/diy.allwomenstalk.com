@@ -3,7 +3,7 @@ title: "13 Fun Valentine Crafts ..."
 description: "Valentine Votive; Playing Card Book; Valentine Coffee Filter Wreath; Paint Chip Bookmarks; Valentine’s Tree; More ..."
 url: "https://diy.allwomenstalk.com/fun-valentine-crafts/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-06"
 ---
 
 # 13 Fun Valentine Crafts ...
@@ -94,16 +94,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 ## Related Posts
 
-- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
-- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
+- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
-- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
-- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
-- [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
-- [Valentine Project 3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
+- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
 - [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
+- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
+- [Valentine Project 3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
+- [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
+- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 

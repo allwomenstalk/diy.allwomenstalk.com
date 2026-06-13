@@ -3,7 +3,7 @@ title: "8 Fantastic DIY Painted Floor Ideas ..."
 description: "Stencil on Wood; Paisley Faux Carpet; Woodgrain Concrete; Subway Floor Art; Checkerboard Tiles; More ..."
 url: "https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 8 Fantastic DIY Painted Floor Ideas ...
@@ -76,16 +76,16 @@ Ready to tackle that ugly and stained carpeting in your home? I hope that these 
 
 ## Related Posts
 
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
 - [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
 - [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
 - [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [8 Bedroom Decorating Ideas ...](https://allwomenstalk.com/8-bedroom-decorating-ideas/)
 

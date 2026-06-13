@@ -1,12 +1,12 @@
 ---
-title: "15 DIY Valentines Day Gifts to Give ..."
+title: "15 DIY Valentine's Day Gifts to Give ..."
 description: "Lace Necklace; Vintage Votives; Yarn Sign; Rustic Candle Holders; Bath Fizzies; More ..."
 url: "https://diy.allwomenstalk.com/diy-valentines-day-gifts-to-give/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 15 DIY Valentines Day Gifts to Give ...
+# 15 DIY Valentine's Day Gifts to Give ...
 
 Valentine's Day is right around the corner and if you are a little short on money, DIY Valentine's Day gifts are the best idea! Pinterest has opened up a whole world of DIY crafts and I've got 15 DIY Valentine's Day gifts that are sure to make anyone you give them to smile! So, take your time, gather your supplies and take a look at my Valentine's Day gifts that you can make yourself!
 
@@ -125,17 +125,17 @@ This article was written in collaboration with editor Sabrina Yates.
 ## Related Posts
 
 - [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
-- [international womens day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
-- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
-- [personalized fathers day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
-- [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
-- [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
+- [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
+- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
 - [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
 - [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
-- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
+- [personalized father's day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
+- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
+- [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
 - [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
-- [15 Homemade Gift Ideas Theyll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
-- [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
+- [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
+- [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
+- [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 
 ## Site Information
 

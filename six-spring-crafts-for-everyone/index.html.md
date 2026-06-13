@@ -3,7 +3,7 @@ title: "6 Spring Crafts for Everyone ..."
 description: "Mason Jar Soap Dispenser; Floral Favors; Colander Planter; Trellis Headboard; Botanical Dresser; More ..."
 url: "https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 6 Spring Crafts for Everyone ...
@@ -48,16 +48,16 @@ Make a cute curtain tieback using a fork. Drill a hole about an inch in from the
 
 ## Related Posts
 
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
-- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
-- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
-- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
 - [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
 - [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
-- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
+- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
+- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
 - [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [6 Crafty Ideas to Share with the Kids ...](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 

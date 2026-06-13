@@ -3,7 +3,7 @@ title: "7 Ways to Decorate Pumpkins for a Creative Halloween ..."
 description: "Ribbons; Brass Accents; Melted Crayons; Drill; Mosaic; More ..."
 url: "https://diy.allwomenstalk.com/ways-to-decorate-pumpkins-for-a-creative-halloween/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Ways to Decorate Pumpkins for a Creative Halloween ...

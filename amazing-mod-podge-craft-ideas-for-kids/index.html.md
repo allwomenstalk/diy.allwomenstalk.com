@@ -3,7 +3,7 @@ title: "7 Amazing Mod Podge Craft Ideas for Kids ..."
 description: "Mod Podge Furniture; Canvas Shoe DIY; Mod Podge Hat; Mod Podge Bookmark; Mod Podge Sunglasses; More ..."
 url: "https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Amazing Mod Podge Craft Ideas for Kids ...
@@ -52,18 +52,18 @@ What are some fun mod podge craft ideas for kids that you’ve made recently?
 
 ## Related Posts
 
-- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
-- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
 - [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
-- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
-- [10 Things for Your Kids Craft Bin ...](https://allwomenstalk.com/10-things-for-your-kids-craft-bin/)
+- [10 Things for Your Kid's Craft Bin ...](https://allwomenstalk.com/10-things-for-your-kids-craft-bin/)
 
 ## Site Information
 

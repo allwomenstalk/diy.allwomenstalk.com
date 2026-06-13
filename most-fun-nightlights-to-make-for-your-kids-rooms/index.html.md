@@ -1,12 +1,12 @@
 ---
-title: "7 Most Fun Nightlights to Make for Your Kids Rooms ..."
+title: "7 Most Fun Nightlights to Make for Your Kid's Rooms ..."
 description: "Cloud Lights; Canvas Lighting; Starry Night Lampshades; LED Twinkle Lights and Fabric; Name in Rope Lights; More ..."
 url: "https://diy.allwomenstalk.com/most-fun-nightlights-to-make-for-your-kids-rooms/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Most Fun Nightlights to Make for Your Kids Rooms ...
+# 7 Most Fun Nightlights to Make for Your Kid's Rooms ...
 
 Need some elaborate and unique nightlights to make? Gone are the days when you can buy a simple nightlight that turns on when it's dark for your kid's rooms. I am the queen of want to be DIY so in order for me to endorse something it has to be both simple and adorable (no matter how badly I seem to screw it up!) So, these are the fun and easy nightlights to make that will light up your kid's rooms with more than just well... light.
 
@@ -163,18 +163,18 @@ Well ladies, these are the lights that I think would go great in any kid's room 
 
 ## Related Posts
 
-- [thanksgiving decoration](https://diy.allwomenstalk.com/simple-thanksgiving-decorations-for-your-apartment/)
 - [how to make your house look classy](https://lifestyle.allwomenstalk.com/ways-to-make-your-place-look-classy/)
-- [ways to make your room more cozy](https://diy.allwomenstalk.com/ways-to-make-your-home-more-cozy-and-feel-less-cluttered/)
-- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
-- [how to spice up your room](https://lifestyle.allwomenstalk.com/quick-and-easy-ways-to-spice-up-any-room/)
-- [decorated globes](https://lifestyle.allwomenstalk.com/globe-inspired-home-decor-to-make-your-house-more-worldly/)
-- [bathtub romantic ideas](https://lifestyle.allwomenstalk.com/bathroom-upgrades-to-make-your-friends-jealous/)
 - [whimsical pillows](https://lifestyle.allwomenstalk.com/whimsical-decorative-pillows-for-home-decorating/)
+- [how to spice up your room](https://lifestyle.allwomenstalk.com/quick-and-easy-ways-to-spice-up-any-room/)
+- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
+- [bathtub romantic ideas](https://lifestyle.allwomenstalk.com/bathroom-upgrades-to-make-your-friends-jealous/)
 - [autumn candle decorations](https://lifestyle.allwomenstalk.com/illuminating-decorative-candles-for-fall/)
+- [decorated globes](https://lifestyle.allwomenstalk.com/globe-inspired-home-decor-to-make-your-house-more-worldly/)
+- [thanksgiving decoration](https://diy.allwomenstalk.com/simple-thanksgiving-decorations-for-your-apartment/)
+- [ways to make your room more cozy](https://diy.allwomenstalk.com/ways-to-make-your-home-more-cozy-and-feel-less-cluttered/)
 - [the revamp rooms](https://lifestyle.allwomenstalk.com/ways-to-revamp-a-room-on-a-tight-budget/)
-- [7 Ways to Decorate Your Daughters Room ...](https://parenting.allwomenstalk.com/7-ways-to-decorate-your-daughters-room/)
-- [8 Tips on Decorating a Childs Room ...](https://allwomenstalk.com/8-tips-on-decorating-a-childs-room/)
+- [7 Ways to Decorate Your Daughter's Room ...](https://parenting.allwomenstalk.com/7-ways-to-decorate-your-daughters-room/)
+- [8 Tips on Decorating a Child's Room ...](https://allwomenstalk.com/8-tips-on-decorating-a-childs-room/)
 
 ## Site Information
 

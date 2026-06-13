@@ -1,12 +1,12 @@
 ---
-title: "22 Really Cool DIY Gifts to Make for Your Mom on Mothers Day ..."
+title: "22 Really Cool DIY Gifts to Make for Your Mom on Mother's Day ‍ ..."
 description: "DIY Photo Coasters; Fingerprints on a Necklace; Framed Photos; Chocolate Bouquet; Spa and Pampering in a Jar; More ..."
 url: "https://diy.allwomenstalk.com/really-cool-diy-gifts-to-make-for-your-mom-for-mothers-day-this-year/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 22 Really Cool DIY Gifts to Make for Your Mom on Mothers Day  ...
+# 22 Really Cool DIY Gifts to Make for Your Mom on Mother's Day ‍ ...
 
 Mother's Day in the US is May 13th this year. Are you wracking your brain for a great gift to make your mom smile this year? Sometimes the best gifts are the ones you make yourself. I’ve got a great list of **DIY Mother's Day gifts** that you can have fun crafting and that your mom is going to really appreciate.
 
@@ -292,18 +292,18 @@ What are you getting your mom for Mother's Day this year? Would she love anythin
 
 ## Related Posts
 
-- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
-- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
-- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
-- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
-- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
 - [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
-- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
+- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
+- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
 - [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
 - [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
+- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
+- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
-- [Mothers Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
+- [Mother's Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 
 ## Site Information
 

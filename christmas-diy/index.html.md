@@ -1,12 +1,12 @@
 ---
-title: "Christmas DIYs Crafty Girls Still Have Time to do ..."
+title: "Christmas DIYs Crafty Girls Still Have Time ⏱ to do ..."
 description: "5 DIY Decorations; 20 Cheap and Awesome Christmas Gifts and DIYS; Christmas Table Napkins; Christmas Gnomes; Christmas Hacks; More ..."
 url: "https://diy.allwomenstalk.com/christmas-diy/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Christmas DIYs Crafty Girls Still Have Time  to do ...
+# Christmas DIYs Crafty Girls Still Have Time ⏱ to do ...
 
 Are you one of those who every year starts out thinking they will really get into the festive spirit with some **Christmas DIY** and crafts, but then never seems to get around to it? You are far from being alone. So many have the same intentions and those intentions fall to the wayside. How about actually following through this year? I have found some video **tutorials for Christmas DIYs** you can still get done before the big day.
 
@@ -34,16 +34,16 @@ Do have some fun getting crafty this Christmas
 
 ## Related Posts
 
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
-- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
 - [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
+- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
 - [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

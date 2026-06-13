@@ -1,12 +1,12 @@
 ---
-title: "Youll Be Charmed when You See What You Can Make with Doilies ..."
+title: "You'll Be Charmed when You See What You Can Make with Doilies ..."
 description: "Use for the Center of a Dreamcatcher; Sew Doilies Together for a Table Runner; Staple Small Doilies Together to Make a Lacy Garland; Make Your Own Lace Glitter Crowns; Make a Cool Lampshade; More ..."
 url: "https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Youll Be Charmed when You See What You Can Make with Doilies ...
+# You'll Be Charmed when You See What You Can Make with Doilies ...
 
 When you think of doilies do you think of early school years when you sat at a desk with a pair of round-nose scissors and cut out snowflakes? Well doilies aren't just for Christmas. There are some great things to make with doilies - lace and paper ones - all year round.
 
@@ -218,16 +218,16 @@ Via [Doily Stenciled Eggs](https://urbancomfort.typepad.com/urban_nest/2011/03/d
 
 ## Related Posts
 
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
-- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
-- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
 - [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
-- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
+- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
+- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
+- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
 - [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
+- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
 - [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
 - [9 Charming and Chic DIY Trays ...](https://lifestyle.allwomenstalk.com/charming-and-chic-diy-trays/)
 - [12 Gorgeous DIY Lace Crafts ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
 

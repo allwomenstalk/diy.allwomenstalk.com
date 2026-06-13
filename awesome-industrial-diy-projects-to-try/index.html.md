@@ -3,7 +3,7 @@ title: "7 Awesome Industrial DIY Projects to Try ..."
 description: "Industrial Shelves; Industrial Lighting; Industrial Table; Industrial Seating; Industrial Planter; More ..."
 url: "https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Awesome Industrial DIY Projects to Try ...
@@ -54,16 +54,16 @@ Whether you keep these industrial DIY projects rustic and grungy, or you dress t
 
 ## Related Posts
 
-- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
 - [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
-- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
 - [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
-- [debis design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
+- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

@@ -1,12 +1,12 @@
 ---
-title: "Fun DIYs to Bring Color to Your Life ..."
+title: "Fun 🤗 DIYs to Bring Color to Your Life ..."
 description: "DIY Floral Macarons; Fruit Necklaces; Confetti-Pattern Plates; Glam Camera Strap; Injectable Donut Holes; More ..."
 url: "https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Fun  DIYs to Bring Color to Your Life ...
+# Fun 🤗 DIYs to Bring Color to Your Life ...
 
 Since September 2011, Houstonian Ashley Rose has been giving me major life envy, so I'm thrilled that she's shared exactly how she's made all of her ultra-gorgeous, bright and colorful DIY projects... so I can have a tiny bit of her style, and you can too! Here are a few of my all-time fave Sugar & Cloth DIY projects.
 
@@ -226,16 +226,16 @@ To see more Sugar & Cloth DIY projects, follow @sugarandcloth on Instagram.
 
 ## Related Posts
 
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 - [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
 - [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [10 Cool DIY Dip Dye Craft Projects ...](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 

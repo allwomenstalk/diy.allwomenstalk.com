@@ -3,7 +3,7 @@ title: "DIY Encouragement Jars ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://diy.allwomenstalk.com/diy-encouragement-jars/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # DIY Encouragement Jars ...
@@ -24,14 +24,14 @@ Have a wonderful time creating!
 
 - [shaving cream art](https://diy.allwomenstalk.com/how-to-make-shaving-cream-art/)
 - [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
-- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
-- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
-- [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
+- [homemade mothers day cards](https://diy.allwomenstalk.com/tutorials-for-homemade-cards-for-mothers-day/)
 - [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
 - [goodie gifts](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift/)
-- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
-- [homemade mothers day cards](https://diy.allwomenstalk.com/tutorials-for-homemade-cards-for-mothers-day/)
+- [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
+- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
 - [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
+- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
+- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
 - [8 Creative DIY Cloche Jars ...](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [10 Delightful DIY Gift Boxes ...](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 

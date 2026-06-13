@@ -1,12 +1,12 @@
 ---
-title: "23 Fun DIY Projects to Keep Photographers Busy for Days ..."
+title: "23 Fun 🤗 DIY Projects to Keep Photographers Busy for Days ..."
 description: "Conversation Heart Prop; Bow Tie; St. Patrick's Day Photo Props; Holly Headband; Wreath; More ..."
 url: "https://diy.allwomenstalk.com/these-diy-projects-will-keep-photographers-busy-for-days/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 23 Fun  DIY Projects to Keep Photographers Busy for Days ...
+# 23 Fun 🤗 DIY Projects to Keep Photographers Busy for Days ...
 
 It's winter, the slow(ish) season for photographers, and there's no better way to kill some time, flex your creative muscle, and end up with some cute new photo props than to DIY your February away. Til the clients start calling to book their next session, these DIY projects will keep you occupied and then some.
 
@@ -151,16 +151,16 @@ These are so much fun! Make your own sweet-shaped bokeh for every occasion.
 
 ## Related Posts
 
-- [These 21 Crochet Projects Are Perfect for Beginner...](https://diy.allwomenstalk.com/these-crochet-projects-are-perfect-for-beginners/)
-- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
 - [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
-- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
-- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
-- [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
-- [valentines day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
-- [How to Make a Designer Bouquet for under 30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
+- [How to Make a Designer Bouquet for under $30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
+- [These 21 Crochet Projects Are Perfect for Beginner...](https://diy.allwomenstalk.com/these-crochet-projects-are-perfect-for-beginners/)
 - [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
+- [diy st](https://diy.allwomenstalk.com/diy-crafts-to-create-for-saint-paddys-day/)
 - [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
+- [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
+- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
+- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
+- [valentine's day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
 - [7 Vintage Pieces That Make Great Photography Props...](https://allwomenstalk.com/vintage-pieces-that-make-great-photography-props/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 

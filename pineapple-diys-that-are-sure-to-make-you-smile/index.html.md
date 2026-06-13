@@ -3,7 +3,7 @@ title: "7 Pineapple DIYs That Are Sure to Make You Smile ..."
 description: "Easter Eggs; Planter; Jewelry Dish; Party Hats; Pillow Case; More ..."
 url: "https://diy.allwomenstalk.com/pineapple-diys-that-are-sure-to-make-you-smile/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Pineapple DIYs That Are Sure to Make You Smile ...
@@ -62,16 +62,16 @@ Ever made something with a pineapple theme? What was it and was it super fun to 
 
 ## Related Posts
 
-- [7 Baby Hats to Make for Those Who Dont Know How to...](https://diy.allwomenstalk.com/baby-hats-to-make-for-those-who-dont-know-how-to-knit/)
-- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
-- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
 - [8 Beautiful Benches You Can Make Yourself ...](https://diy.allwomenstalk.com/beautiful-benches-you-can-make-yourself/)
-- [7 Absolutely Fun Faux Cactus DIY Projects for Your...](https://diy.allwomenstalk.com/absolutely-fun-faux-cactus-diy-projects-for-your-home/)
-- [9 Utterly Enchanting Bars of Soap That You Can Mak...](https://diy.allwomenstalk.com/utterly-enchanting-bars-of-soap-that-you-can-make-at-home/)
 - [cute aprons](https://diy.allwomenstalk.com/little-ones-helping-in-the-kitchen-make-these-cute-aprons-for-them/)
-- [Super Fun Holiday Crafts for when Its Too Cold to ...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
-- [Stunning Watercolor DIYs for Girls Who Want to Pai...](https://diy.allwomenstalk.com/delightful-diy-watercolor-projects-that-are-not-wall-art/)
-- [Turn Your Ugly Christmas Sweater into an Adorable ...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
+- [9 Utterly Enchanting Bars of Soap That You Can Mak...](https://diy.allwomenstalk.com/utterly-enchanting-bars-of-soap-that-you-can-make-at-home/)
+- [7 Baby Hats to Make for Those Who Don't Know How t...](https://diy.allwomenstalk.com/baby-hats-to-make-for-those-who-dont-know-how-to-knit/)
+- [Turn Your "Ugly" Christmas Sweater into an Adorabl...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
+- [7 Absolutely Fun Faux Cactus DIY Projects for Your...](https://diy.allwomenstalk.com/absolutely-fun-faux-cactus-diy-projects-for-your-home/)
+- [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
+- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
+- [Super Fun Holiday Crafts for when It's Too Cold to...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
+- [Stunning Watercolor DIY's for Girls Who Want to Pa...](https://diy.allwomenstalk.com/delightful-diy-watercolor-projects-that-are-not-wall-art/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

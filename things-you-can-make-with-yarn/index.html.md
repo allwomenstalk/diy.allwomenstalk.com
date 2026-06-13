@@ -3,7 +3,7 @@ title: "7 Things You Can Make with Yarn ..."
 description: "Yarn Dolls; Bracelets; Landscapes; Wreath; Christmas Trees; More ..."
 url: "https://diy.allwomenstalk.com/things-you-can-make-with-yarn/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Things You Can Make with Yarn ...
@@ -56,16 +56,16 @@ What do you do with yarn? Will you try any of these projects? Let me know how th
 
 ## Related Posts
 
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
-- [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
-- [debis design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
 - [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
 - [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
+- [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

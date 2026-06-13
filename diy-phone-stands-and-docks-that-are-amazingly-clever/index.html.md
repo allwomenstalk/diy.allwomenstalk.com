@@ -3,7 +3,7 @@ title: "7 DIY Phone Stands and Docks That Are Amazingly Clever ..."
 description: "CDs; Dino; Neon Wood; Stand / Case; Trunk Slice; More ..."
 url: "https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 DIY Phone Stands and Docks That Are Amazingly Clever ...
@@ -68,18 +68,18 @@ My skills (and lack of power tools) can only tackle the lovely no-sew idea from 
 
 ## Related Posts
 
-- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
-- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
-- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
 - [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
+- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
+- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
 - [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
-- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
-- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
 - [Top 7 Smartphones ...](https://allwomenstalk.com/top-7-smartphones/)
-- [7 Cool Phones... for Your House](https://allwomenstalk.com/7-cool-phones-for-your-house/)
+- [7 Cool Phones... for Your House!](https://allwomenstalk.com/7-cool-phones-for-your-house/)
 
 ## Site Information
 

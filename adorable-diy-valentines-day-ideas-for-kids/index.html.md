@@ -1,12 +1,12 @@
 ---
-title: "19 Adorable DIY Valentines Day Ideas for Kids ..."
+title: "19 Adorable DIY Valentine's Day Ideas for Kids ..."
 description: "Friendship Bracelets; Recycled Crayon Hearts; School of Fish; Bubbles Bubbles Everywhere!; Love Bugs; More ..."
 url: "https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 19 Adorable DIY Valentines Day Ideas for Kids ...
+# 19 Adorable DIY Valentine's Day Ideas for Kids ...
 
 If your kids are tired of the same rectangular, store-bought valentines, try one of these DIY Valentine’s Day ideas for kids this year and allow them to wow their entire class with a gift that will be sure to stand out! These DIY Valentine’s Day ideas for kids are easy to make and inexpensive, not to mention fun! Give one of these a try.
 
@@ -119,16 +119,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 ## Related Posts
 
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
-- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
-- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
-- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
 - [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
-- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
 - [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
-- [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
+- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
+- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 
 ## Site Information

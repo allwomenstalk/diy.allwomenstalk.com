@@ -1,12 +1,12 @@
 ---
-title: "7 Suddenly Cool Crafts Youll Want to Learn Now ..."
+title: "7 Suddenly Cool Crafts You'll Want to Learn Now ..."
 description: "Weaving; Knotwork; Calligraphy; Tie Dyeing; Pottery; More ..."
 url: "https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/"
 category: "diy"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Suddenly Cool Crafts Youll Want to Learn Now ...
+# 7 Suddenly Cool Crafts You'll Want to Learn Now ...
 
 The craft movement is enjoying a comeback and there’s a raft of cool crafts to try your hand at right now. You only need to look at social media to see just how popular crafting has become. Crafts like knitting, weaving, and pottery are enjoying a new lease on life thanks to their youthful reinvention. Check out these cool crafts that you’ll want to learn now.
 
@@ -56,16 +56,16 @@ If you need a new hobby or just want to kill some time, then these are some craf
 
 ## Related Posts
 
+- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
+- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
 - [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
+- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
 - [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
 - [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
-- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
 - [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
-- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
-- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
-- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
-- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
 - [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
+- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

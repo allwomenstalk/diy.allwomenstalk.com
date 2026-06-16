@@ -3,7 +3,7 @@ title: "8 Fantastic Felt Ball Craft Projects ..."
 description: "Garland; Rug; Trivet; Wreath; Craspedia; More ..."
 url: "https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/"
 category: "diy"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 8 Fantastic Felt Ball Craft Projects ...
@@ -76,16 +76,16 @@ Which of these **DIY felt balls projects** will you be making? If you have other
 
 ## Related Posts
 
-- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
 - [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [8 Gorgeous Arts and Crafts Supplies ...](https://allwomenstalk.com/8-gorgeous-arts-and-crafts-supplies/)
 

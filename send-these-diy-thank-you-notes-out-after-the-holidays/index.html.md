@@ -3,7 +3,7 @@ title: "Send These Diy Thank You Notes out after the Holidays ..."
 description: "Thank You Butterflies; Washi Tape for Thank You Cards; Use Paper Scraps; Embellish It; Rainbow Hearts; More ..."
 url: "https://diy.allwomenstalk.com/send-these-diy-thank-you-notes-out-after-the-holidays/"
 category: "diy"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Send These Diy Thank You Notes out after the Holidays ...
@@ -181,16 +181,16 @@ Which one are you going to make and send?
 
 ## Related Posts
 
-- [best gift ever](https://lifestyle.allwomenstalk.com/ways-to-choose-the-best-gift-ever/)
-- [sport presents for him](https://lifestyle.allwomenstalk.com/sports-fan-gifts-for-the-sports-loving-dad/)
-- [disney valentines gift](https://love.allwomenstalk.com/cheap-valentines-day-gifts-for-disney-lovers/)
-- [gifts for mothers](https://lifestyle.allwomenstalk.com/out-of-the-box-ideas-for-mom-on-mothers-day/)
-- [gifts for golf dads](https://lifestyle.allwomenstalk.com/best-gifts-for-nerdiest-of-dads/)
-- [gifts for adventurous](https://lifestyle.allwomenstalk.com/practically-perfect-gifts-for-the-adventurous/)
-- [what mom's want for mother's day](https://lifestyle.allwomenstalk.com/what-your-mom-really-wants-for-mothers-day/)
 - [gifts that cost nothing](https://love.allwomenstalk.com/special-christmas-gifts-for-your-partner-that-cost-nothing/)
+- [sport presents for him](https://lifestyle.allwomenstalk.com/sports-fan-gifts-for-the-sports-loving-dad/)
 - [outdoorsy father's day gifts](https://lifestyle.allwomenstalk.com/outdoorsy-dads-will-want-everything-on-this-list/)
+- [gifts for adventurous](https://lifestyle.allwomenstalk.com/practically-perfect-gifts-for-the-adventurous/)
+- [disney valentines gift](https://love.allwomenstalk.com/cheap-valentines-day-gifts-for-disney-lovers/)
+- [best gift ever](https://lifestyle.allwomenstalk.com/ways-to-choose-the-best-gift-ever/)
+- [gifts for mothers](https://lifestyle.allwomenstalk.com/out-of-the-box-ideas-for-mom-on-mothers-day/)
 - [dad tools](https://lifestyle.allwomenstalk.com/useful-fathers-day-gifts-for-the-tool-loving-dad/)
+- [what mom's want for mother's day](https://lifestyle.allwomenstalk.com/what-your-mom-really-wants-for-mothers-day/)
+- [gifts for golf dads](https://lifestyle.allwomenstalk.com/best-gifts-for-nerdiest-of-dads/)
 - [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [9 Darling DIY Holiday Greeting Card Holders ...](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
 

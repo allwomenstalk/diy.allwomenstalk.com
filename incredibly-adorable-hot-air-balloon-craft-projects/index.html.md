@@ -3,7 +3,7 @@ title: "9 Incredibly Adorable Hot Air Balloon Craft Projects ..."
 description: "Felt Mobile; Photobooth Props; Lantern; Herb Planters; Folded Paper; More ..."
 url: "https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/"
 category: "diy"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 9 Incredibly Adorable Hot Air Balloon Craft Projects ...
@@ -85,15 +85,15 @@ What a fantastic set of craft inspiration! Would you be making something from th
 ## Related Posts
 
 - [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 

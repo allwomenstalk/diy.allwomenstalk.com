@@ -3,7 +3,7 @@ title: "Save Those Wood Scraps and Make These Beautiful Things for the Home ..."
 description: "Modern Lamp; Drink Holder; Honeycomb Shelves; Utensil Holder; Candle Holder; More ..."
 url: "https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/"
 category: "diy"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Save Those Wood Scraps and Make These Beautiful Things for the Home ...
@@ -68,16 +68,16 @@ I am itching to make the lamp from these DIY wood scrap projects. How about you?
 
 ## Related Posts
 
-- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
-- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
-- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
-- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
-- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
 - [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
-- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
-- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
+- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
+- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
+- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
+- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
 - [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
+- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

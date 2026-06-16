@@ -3,7 +3,7 @@ title: "9 Cute and Fun DIY LEGO Craft Projects ..."
 description: "Bracelet; Ring; Photo Frame; Clutch Bag; Heart Brooch; More ..."
 url: "https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/"
 category: "diy"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 9 Cute and Fun DIY LEGO Craft Projects ...
@@ -68,16 +68,16 @@ Other nifty things that you can make using LEGO bricks include cuff links, penda
 
 ## Related Posts
 
-- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
-- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
-- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
-- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
 - [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
-- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
-- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
-- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
+- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
+- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
 - [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
+- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
+- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
+- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

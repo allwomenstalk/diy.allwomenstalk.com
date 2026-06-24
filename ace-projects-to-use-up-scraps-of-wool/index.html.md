@@ -3,7 +3,7 @@ title: "9 Ace Projects to Use up Scraps of Wool ..."
 description: "Juggling Cats; Flower; Butterfly; Slippers; Finger Puppets; More ..."
 url: "https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 9 Ace Projects to Use up Scraps of Wool ...
@@ -68,16 +68,16 @@ These fun little projects will help you find a use for some of those odds and en
 
 ## Related Posts
 
-- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
-- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
-- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
 - [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
 - [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
 - [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
+- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
+- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [8 Ways to Use up Fabric Scraps …](https://allwomenstalk.com/ways-to-use-up-fabric-scraps/)
 

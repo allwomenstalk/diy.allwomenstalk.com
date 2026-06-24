@@ -3,7 +3,7 @@ title: "7 Original Christmas Gifts You Can Make Yourself ..."
 description: "Snow Day Survival Kit; Your Own Artwork; Cup Sleeves; Snow Globe Necklace; Bath Bombs and Melts; More ..."
 url: "https://diy.allwomenstalk.com/original-christmas-gifts-you-can-make-yourself/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Original Christmas Gifts You Can Make Yourself ...
@@ -56,12 +56,12 @@ What are you making this holiday season? Will you try any of these gifts out?
 
 ## Related Posts
 
-- [#JustGotJingled: Shoppers Give Back to Strangers i...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
-- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
-- [The Nicest Naughty Bits You'll Ever Find in Your S...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
-- [Snag a Great Gift for Your Mom for under $25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
 - [7 Creative Photo Ideas for Holiday Cards ...](https://diy.allwomenstalk.com/creative-photo-ideas-for-holiday-cards/)
+- [The Nicest Naughty Bits You'll Ever Find in Your S...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
+- [#JustGotJingled: Shoppers Give Back to Strangers i...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
+- [Snag a Great Gift for Your Mom for under $25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
 - [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
+- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
 - [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
 - [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
 - [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)

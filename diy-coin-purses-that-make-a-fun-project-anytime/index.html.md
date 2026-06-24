@@ -3,7 +3,7 @@ title: "37 DIY Coin Purses That Make a Fun Project Anytime ..."
 description: "Candy Packet Purse; Ms Lipsie the Pocket Girl; Striped Coin Purse; Simple Flap Coin Purse; Mini Coin Purse; More ..."
 url: "https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 37 DIY Coin Purses That Make a Fun Project Anytime ...
@@ -266,15 +266,15 @@ You'll find thousands of tutorials and patterns online if none of the DIY coin p
 ## Related Posts
 
 - [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
 - [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
 - [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
 - [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

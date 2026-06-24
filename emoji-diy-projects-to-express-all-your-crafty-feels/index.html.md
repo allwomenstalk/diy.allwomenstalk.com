@@ -3,7 +3,7 @@ title: "8 Emoji DIY Projects to Express All Your Crafty Feels ..."
 description: "Macarons; Clutch Bag; Coaster; Easter Eggs; Keds Makeover; More ..."
 url: "https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Emoji DIY Projects to Express All Your Crafty Feels ...
@@ -78,16 +78,16 @@ There is no shortage of DIY poop emoji crafts online, too. We decided to stick t
 
 ## Related Posts
 
-- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
-- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
-- [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
-- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
-- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
-- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
-- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
-- [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
 - [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
+- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
+- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
+- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
+- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
+- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
+- [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
+- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
+- [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
+- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

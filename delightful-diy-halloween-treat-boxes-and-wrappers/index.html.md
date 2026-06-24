@@ -3,7 +3,7 @@ title: "10 Delightful DIY Halloween Treat Boxes and Wrappers ..."
 description: "Halloween Crackers; Eyes and Fries; Fenced; Skully Eggs; Broomstick Bags; More ..."
 url: "https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 10 Delightful DIY Halloween Treat Boxes and Wrappers ...
@@ -94,16 +94,16 @@ Got other ideas for making** DIY treat boxes and wrappers**? Share them with us!
 
 ## Related Posts
 
-- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
-- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
-- [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
-- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
-- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
 - [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
 - [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
+- [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
+- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 

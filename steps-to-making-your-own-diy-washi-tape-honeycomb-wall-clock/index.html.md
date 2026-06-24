@@ -3,7 +3,7 @@ title: "9 Steps to Making Your Own DIY Washi Tape Honeycomb Wall Clock ..."
 description: "Materials; Honeycomb; Base; Center; Washi; More ..."
 url: "https://diy.allwomenstalk.com/steps-to-making-your-own-diy-washi-tape-honeycomb-wall-clock/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 9 Steps to Making Your Own DIY Washi Tape Honeycomb Wall Clock ...

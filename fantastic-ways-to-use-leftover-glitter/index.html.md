@@ -3,7 +3,7 @@ title: "7 Fantastic Ways to Use Leftover Glitter ..."
 description: "Remake Your Shoes; Make a Wall Hanging; Make a Vase; Bling out Your Lampshade; Revamp Wine Glasses; More ..."
 url: "https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Fantastic Ways to Use Leftover Glitter ...
@@ -56,16 +56,16 @@ Do you love glitter? What will you do with your leftovers?
 
 ## Related Posts
 
-- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
-- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
-- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
 - [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
 - [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
+- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
+- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
+- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
 - [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
 - [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
 - [7 Best Uses for Chalkboard Paint ...](https://lifestyle.allwomenstalk.com/best-uses-for-chalkboard-paint/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

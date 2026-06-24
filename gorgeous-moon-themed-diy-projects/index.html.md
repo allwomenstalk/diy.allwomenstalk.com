@@ -3,7 +3,7 @@ title: "7 Gorgeous Moon-themed DIY Projects ..."
 description: "Moon Phases Necklace; Moon Backdrop; Moon Magnets; Marbled Moon Phase Mobile; Moon and Stars Coasters; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Gorgeous Moon\-themed DIY Projects ...
@@ -64,16 +64,16 @@ I absolutely have no idea which of these to tackle first. Maybe the coasters and
 
 ## Related Posts
 
-- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
-- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
 - [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
+- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
 - [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
+- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [8 Beach-Themed Projects for the Home ...](https://allwomenstalk.com/beach-themed-projects-for-the-home/)
 

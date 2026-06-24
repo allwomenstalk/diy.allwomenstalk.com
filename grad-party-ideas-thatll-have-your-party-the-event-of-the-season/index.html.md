@@ -3,7 +3,7 @@ title: "Grad Party Ideas That'll Have Your Party the Event of the Season ..."
 description: "Chalkboard Speech Bubble; Cocoa Krispies Treat Graduation Caps; Tassel Garland; Confetti Balloons; Class Rings; More ..."
 url: "https://diy.allwomenstalk.com/grad-party-ideas-thatll-have-your-party-the-event-of-the-season/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Grad Party Ideas That'll Have Your Party the Event of the Season ...
@@ -206,14 +206,14 @@ Order (or make your own) school-themed cornhole bags. Plan a competition and tre
 
 - [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
 - [best friend summer bucket list ideas](https://lifestyle.allwomenstalk.com/grab-your-gal-pals-and-take-on-this-ultimate-bff-bucket-list/)
-- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
-- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
-- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
 - [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
+- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
+- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
+- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
+- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
+- [cute couple bucket list](https://love.allwomenstalk.com/things-to-put-on-a-couples-bucket-list/)
 - [bachelorette party girls](https://wedding.allwomenstalk.com/alternatives-to-a-bachelorette-party-for-girls-who-want-to-shake-things-up/)
 - [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
-- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
-- [cute couple bucket list](https://love.allwomenstalk.com/things-to-put-on-a-couples-bucket-list/)
 - [Social Events of the Week ...](https://allwomenstalk.com/social-events-of-the-week/)
 - [Social Events of the Week ...](https://allwomenstalk.com/social-events-of-the-week-red-carpet-style-awards-5/)
 

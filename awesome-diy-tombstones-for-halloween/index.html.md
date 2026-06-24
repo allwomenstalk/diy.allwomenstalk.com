@@ -3,7 +3,7 @@ title: "8 Awesome DIY Tombstones for Halloween ..."
 description: "Character Tombstones; Arachne Tombstone; Scrapbook Tombstone; Yard Cemetery; Carved Tombstone; More ..."
 url: "https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/"
 category: "diy"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Awesome DIY Tombstones for Halloween ...
@@ -79,15 +79,15 @@ Hope you find inspiration from these **DIY tombstones for Halloween**. I know, y
 ## Related Posts
 
 - [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
-- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
-- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
-- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
 - [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
 - [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
 - [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
+- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
+- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [8 Ideas on How to Celebrate Halloween ...](https://lifestyle.allwomenstalk.com/ideas-on-how-to-celebrate-halloween/)
 

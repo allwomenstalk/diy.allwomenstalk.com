@@ -3,7 +3,7 @@ title: "9 Pretty Crocheted Flowers to Add to Any Project ..."
 description: "Quickie Flowers; Same Pattern, Two Flowers; Okay, It’s a Leaf Not a Flower; Large Layered Flower; Hydrangea Flowers; More ..."
 url: "https://diy.allwomenstalk.com/pretty-crocheted-flowers-to-add-to-any-project/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 9 Pretty Crocheted Flowers to Add to Any Project ...

@@ -3,7 +3,7 @@ title: "7 Gorgeous Easter Wreaths to DIY for Your Door ..."
 description: "Framed Bunny; Yarn-Wrapped Eggs; Burlap Ribbon; Baby's Breath; Feather and Eggs; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Gorgeous Easter Wreaths to DIY for Your Door ...
@@ -68,16 +68,16 @@ Have you ever made a handmade Easter wreath before? What did it look like? I bet
 
 ## Related Posts
 
-- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
-- [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
 - [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
-- [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
 - [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
-- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
 - [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
 - [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
+- [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
+- [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
 - [15 Gorgeous Spring Wreath Ideas ...](https://lifestyle.allwomenstalk.com/gorgeous-spring-wreath-ideas/)
 - [12 Fantastic DIY Projects for Easter ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-for-easter/)
 

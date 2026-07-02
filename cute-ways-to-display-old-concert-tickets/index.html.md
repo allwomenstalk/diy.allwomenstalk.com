@@ -3,7 +3,7 @@ title: "7 Cute Ways to Display Old Concert Tickets ..."
 description: "Scrapbook; Shadow Box; Ticket Table; Magnets; Cork Board; More ..."
 url: "https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Cute Ways to Display Old Concert Tickets ...
@@ -57,16 +57,16 @@ I love looking back at my old concert tickets and remembering all the fun times 
 
 ## Related Posts
 
-- [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
 - [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
 - [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
-- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
+- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
+- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
+- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
 - [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
 - [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
-- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
-- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
 - [10 Great Photo Display Ideas ...](https://allwomenstalk.com/10-great-photo-display-ideas/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 

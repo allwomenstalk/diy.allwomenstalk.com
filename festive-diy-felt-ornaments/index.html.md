@@ -3,7 +3,7 @@ title: "12 Festive DIY Felt Ornaments ..."
 description: "Toadstool in an Egg; Ogee; Birdie; Owl; Dala Horse; More ..."
 url: "https://diy.allwomenstalk.com/festive-diy-felt-ornaments/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 12 Festive DIY Felt Ornaments ...
@@ -110,16 +110,16 @@ Hope you will be able to create some cute things from this list of **DIY felt or
 
 ## Related Posts
 
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
 - [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

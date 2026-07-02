@@ -3,7 +3,7 @@ title: "35 Ways to Recycle Old CDs ..."
 description: "CD Mosaic Mirror; Mosaic Tile Birdbath; CD Art; Mosaic Address Plaque; Votive; More ..."
 url: "https://diy.allwomenstalk.com/ways-to-recycle-old-cds/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 35 Ways to Recycle Old CDs ...
@@ -259,16 +259,16 @@ I’m precious about my CDs and won’t be getting rid of them! I still have all
 
 ## Related Posts
 
-- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
-- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
 - [the desk apprentice rotating desk organizer](https://lifestyle.allwomenstalk.com/desk-organizers-to-keep-your-stuff-in-order/)
-- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
-- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
-- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
-- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
 - [drawer organization ideas](https://diy.allwomenstalk.com/easy-examples-of-drawer-organization-that-will-make-your-life-easier/)
+- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
 - [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
+- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
+- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
 - [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
+- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
+- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
+- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
 - [7 Ways to Be Eco-friendly ...](https://lifestyle.allwomenstalk.com/ways-to-be-eco-friendly/)
 - [8 Ways to Pass on Old Books ...](https://allwomenstalk.com/8-ways-to-pass-on-old-books/)
 

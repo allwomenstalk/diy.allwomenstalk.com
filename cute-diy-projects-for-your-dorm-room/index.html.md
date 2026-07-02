@@ -3,7 +3,7 @@ title: "8 Cute DIY Projects for Your Dorm Room ..."
 description: "Bucket Organiser; Photo Frame Organiser; Wall Filing; Whiteboard Frame; Cord Organizer; More ..."
 url: "https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Cute DIY Projects for Your Dorm Room ...
@@ -62,16 +62,16 @@ I totally love these cute DIY dorm projects. They are a great way to make the ro
 
 ## Related Posts
 
-- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
-- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
-- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
-- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
 - [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
-- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
 - [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
+- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
+- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
 - [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
-- [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
+- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
+- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
+- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
 - [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
+- [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

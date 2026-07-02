@@ -3,7 +3,7 @@ title: "7 Easy and Cheap Toys to Make for Your Dogs ..."
 description: "Old Shirt; Treat Ball; Squeaky Sweater; Fleece Tug Toy; Scrap Balls; More ..."
 url: "https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Easy and Cheap Toys to Make for Your Dogs ...
@@ -66,16 +66,16 @@ A word of caution: some of these dog toys may not work for your pets. Do not att
 
 ## Related Posts
 
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [plain wooden bangles](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover/)
 - [unicorn art projects](https://diy.allwomenstalk.com/unicorn-themed-crafts-to-make-your-life-colorful-and-happy/)
-- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
 - [vintage kitchen bookends](https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/)
+- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
+- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
 - [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
 - [old door corner shelf](https://diy.allwomenstalk.com/shelfies-the-best-diy-shelves/)
-- [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
-- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
-- [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
 

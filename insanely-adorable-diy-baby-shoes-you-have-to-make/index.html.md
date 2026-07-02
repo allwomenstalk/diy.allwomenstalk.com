@@ -3,7 +3,7 @@ title: "8 Insanely Adorable DIY Baby Shoes You Have to Make ..."
 description: "Mary Janes; TOMS; Forget-Me-Knot; Baby Boy Booties; Ruffled; More ..."
 url: "https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Insanely Adorable DIY Baby Shoes You Have to Make ...
@@ -78,16 +78,16 @@ I die of the cuteness! I happen to know a lovely little girl who would look extr
 
 ## Related Posts
 
+- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
 - [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
-- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
 - [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
 - [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
+- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
 - [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
-- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
 - [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
 - [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
-- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
 - [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
+- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
 - [8 Wonderful Wooden Heeled Shoes ...](https://shoes.allwomenstalk.com/8-wonderful-wooden-heeled-shoes/)
 - [8 Unbelievably Delectable Homemade Christmas Gift ...](https://lifestyle.allwomenstalk.com/unbelievably-delectable-homemade-christmas-gift-ideas/)
 

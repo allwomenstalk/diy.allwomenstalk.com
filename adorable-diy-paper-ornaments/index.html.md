@@ -3,7 +3,7 @@ title: "10 Adorable DIY Paper Ornaments ..."
 description: "Geometric; Paper Strips; Scalloped Ball; Striped Strips; Ball Strips; More ..."
 url: "https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/"
 category: "diy"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 10 Adorable DIY Paper Ornaments ...
@@ -87,15 +87,15 @@ Got other fantastic **DIY paper ornament ideas**? We'd love for you to share the
 ## Related Posts
 
 - [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
 - [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

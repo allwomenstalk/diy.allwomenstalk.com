@@ -3,7 +3,7 @@ title: "54 Awesome Quilts to Get You Inspired to do Some Sewing ..."
 description: "Quilted Monsters; Fancy Stars; Puffy Quilt; Rows of Bricks; Black and White; More ..."
 url: "https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 54 Awesome Quilts to Get You Inspired to do Some Sewing ...
@@ -382,16 +382,16 @@ Are you a quilter? Does this list make you want to be one? What is your favorite
 
 ## Related Posts
 
-- [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
-- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
 - [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
 - [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
+- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
 - [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Easy Sewing Projects for Beginners ...](https://allwomenstalk.com/5-easy-sewing-projects-for-beginners/)
 

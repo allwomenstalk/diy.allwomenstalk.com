@@ -3,7 +3,7 @@ title: "Awesome DIY Projects Using Twigs and Branches ..."
 description: "Make a Fairytale Forest Room Divider; Hang Paper Butterflies from a Branch for a Pretty Backdrop; Branch Ladder for Climbing Vines or Hanging Small Pots of Flowers and Plants; Simple Dollar Store Vases, Branches, Water, and Floating Candles; Turn a Branch into a Coat Rack; More ..."
 url: "https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Awesome DIY Projects Using Twigs and Branches ...
@@ -264,16 +264,16 @@ _ Source: sneak peek: lotta nieminen_
 
 ## Related Posts
 
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
-- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
-- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
-- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
-- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
-- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
 - [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
 - [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
-- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
+- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
+- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
+- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
 - [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
+- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
+- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
+- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [12 Creative DIY Projects Using Twigs and Branches ...](https://lifestyle.allwomenstalk.com/creative-diy-projects-using-twigs-and-branches/)
 

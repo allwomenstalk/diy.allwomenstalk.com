@@ -3,7 +3,7 @@ title: "Stand up Straight! Brilliant DIY Bookends ..."
 description: "Woodland Bookends; Driftwood Bookends; DIY Succulent Bookend; Vintage C-clamps; Direction Signs; More ..."
 url: "https://diy.allwomenstalk.com/stand-up-straight-brilliant-diy-bookends/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Stand up Straight! Brilliant DIY Bookends ...
@@ -240,15 +240,15 @@ Are you ready to make some bookends to keep your tomes in order?
 
 ## Related Posts
 
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [sassy license plate ideas](https://diy.allwomenstalk.com/if-you-like-it-put-a-monogram-on-it-awesome-ideas/)
-- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
-- [old door corner shelf](https://diy.allwomenstalk.com/shelfies-the-best-diy-shelves/)
-- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
 - [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
+- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
+- [old door corner shelf](https://diy.allwomenstalk.com/shelfies-the-best-diy-shelves/)
+- [eiffel tower ideas](https://diy.allwomenstalk.com/eiffel-tower-craft-projects-to-make-for-your-home/)
 - [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
+- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
 - [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)

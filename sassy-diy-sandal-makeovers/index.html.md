@@ -3,7 +3,7 @@ title: "9 Sassy DIY Sandal Makeovers ..."
 description: "Christian Louboutin-Inspired; Patterned Wedges; Tribal Wrap; Bejeweled; Gold and Silver; More ..."
 url: "https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 9 Sassy DIY Sandal Makeovers ...
@@ -78,16 +78,16 @@ I don't know about you but these have made me look at my old pair of sandals wit
 
 ## Related Posts
 
-- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
-- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
-- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
-- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
 - [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
 - [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
-- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
-- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
 - [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
+- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
+- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
+- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
 - [9 Stylish Camel Fendi Sandals ...](https://shoes.allwomenstalk.com/stylish-camel-fendi-sandals/)
 - [8 Beautiful Beach Sandals ...](https://shoes.allwomenstalk.com/beautiful-beach-sandals/)
 

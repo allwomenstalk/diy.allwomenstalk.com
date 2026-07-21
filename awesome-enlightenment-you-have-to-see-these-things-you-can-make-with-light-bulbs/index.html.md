@@ -3,7 +3,7 @@ title: "Awesome Enlightenment! You Have to See These Things You Can Make with Li
 description: "How to Hollow out a Light Bulb; Sharpie Doodle Light Bulbs; Marimo Terrarium Light Bulb; Christmas Ornaments; Cover a Light Bulb with a Doily and Spray Paint It; More ..."
 url: "https://diy.allwomenstalk.com/awesome-enlightenment-you-have-to-see-these-things-you-can-make-with-light-bulbs/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Awesome Enlightenment! You Have to See These Things You Can Make with Light Bulbs ...
@@ -235,15 +235,15 @@ will you ever look at light bulbs in the same way again?
 
 ## Related Posts
 
-- [big bathtub with jets](https://lifestyle.allwomenstalk.com/incredible-bath-tubs-you-need-to-see-to-believe/)
-- [painted bike helmet](https://fitness.allwomenstalk.com/awesome-bike-helmets-to-trick-out-your-next-ride/)
-- [who invented the butter stick](https://lifestyle.allwomenstalk.com/of-the-most-useless-inventions-humanity-has-seen/)
 - [century furniture prices](https://lifestyle.allwomenstalk.com/the-greatest-stores-to-find-mid-century-furniture-on-a-budget/)
-- [products ahead of their time](https://lifestyle.allwomenstalk.com/modern-technologies-that-were-ahead-of-their-time-you-need-to-see-3/)
+- [who invented the butter stick](https://lifestyle.allwomenstalk.com/of-the-most-useless-inventions-humanity-has-seen/)
+- [painted bike helmet](https://fitness.allwomenstalk.com/awesome-bike-helmets-to-trick-out-your-next-ride/)
+- [big bathtub with jets](https://lifestyle.allwomenstalk.com/incredible-bath-tubs-you-need-to-see-to-believe/)
+- [concept vehicle manufacturer](https://lifestyle.allwomenstalk.com/these-bizarre-concept-cars-could-drive-you-to-work-one-day/)
 - [how to come up with a tattoo idea](https://lifestyle.allwomenstalk.com/want-a-tattoo-websites-thatll-help-you-think-of-a-perfect-design/)
 - [themed beach towels](https://lifestyle.allwomenstalk.com/beach-towels-have-never-looked-as-good-as-these-perfect-choices/)
-- [concept vehicle manufacturer](https://lifestyle.allwomenstalk.com/these-bizarre-concept-cars-could-drive-you-to-work-one-day/)
 - [shop netgrocer com](https://apps.allwomenstalk.com/websites-that-allow-you-to-grocery-shop-online/)
+- [products ahead of their time](https://lifestyle.allwomenstalk.com/modern-technologies-that-were-ahead-of-their-time-you-need-to-see-3/)
 - [pixel art de it](https://lifestyle.allwomenstalk.com/these-post-it-note-pixel-arts-will-make-you-smile/)
 - [8 Gorgeous Holiday Candleholders ...](https://allwomenstalk.com/8-gorgeous-holiday-candleholders/)
 - [12 Delightful Mason Jar Lighting Ideas ...](https://lifestyle.allwomenstalk.com/delightful-mason-jar-lighting-ideas/)

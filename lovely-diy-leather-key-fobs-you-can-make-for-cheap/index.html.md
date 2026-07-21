@@ -3,7 +3,7 @@ title: "8 Chic DIY Leather Key Fobs You Can Make on a Budget"
 description: "Stamped Names; Mustache; Tassel; Fun Shapes; Neon; More ..."
 url: "https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 8 Chic DIY Leather Key Fobs You Can Make on a Budget
@@ -94,16 +94,16 @@ Will you be making some of these handmade leather key fobs? Don't forget to show
 
 ## Related Posts
 
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
 - [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
-- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
-- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
-- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
 - [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
+- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
 - [7 Ways to Make Cheap Gifts Look Chic ...](https://allwomenstalk.com/7-ways-to-make-cheap-gifts-look-chic/)
 - [9 Gorgeous DIY Watches to Make ...](https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/)
 

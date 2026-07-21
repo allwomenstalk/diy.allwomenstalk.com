@@ -3,7 +3,7 @@ title: "Cute and Trendy Evil Eye Design Craft Projects ..."
 description: "Shallow Dishes; Wall Hanging; Pretty Bracelet; Patterned Tights; Pillow Case; More ..."
 url: "https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Cute and Trendy Evil Eye Design Craft Projects ...
@@ -66,15 +66,15 @@ Now both you and your home will be protected from evil forces. Even if you don't
 
 ## Related Posts
 
-- [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
-- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
 - [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
-- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
 - [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
+- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
+- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
 - [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
 - [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
-- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)

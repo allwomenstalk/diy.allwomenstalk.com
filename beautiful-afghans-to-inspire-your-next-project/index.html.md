@@ -3,7 +3,7 @@ title: "30 Beautiful Afghans to Inspire Your Next Project ..."
 description: "Single Color; Scalloped Edges; Warm and Cozy; Lacy Edge; Chevron Crochet; More ..."
 url: "https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 30 Beautiful Afghans to Inspire Your Next Project ...
@@ -215,16 +215,16 @@ Do you like the look of an afghan on your furniture? I still have one my grandma
 
 ## Related Posts
 
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
-- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
-- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
+- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
 - [10 Creatively Inspiring Quilting Blogs ...](https://allwomenstalk.com/creatively-inspiring-quilting-blogs/)
 - [10 Beautiful Burlap Projects ...](https://lifestyle.allwomenstalk.com/beautiful-burlap-projects/)
 

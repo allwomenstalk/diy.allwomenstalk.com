@@ -3,7 +3,7 @@ title: "26 Lovely Candle Arrangements for Your House ..."
 description: "Perfect Centerpiece; Nautical Inspired; Fireplace Decor; With Flowers; Different Holders; More ..."
 url: "https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/"
 category: "diy"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 26 Lovely Candle Arrangements for Your House ...
@@ -182,14 +182,14 @@ What are your candle arrangements like? Share your ideas to inspire us. Did you 
 
 - [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
+- [tea towel display ideas](https://food.allwomenstalk.com/adorable-tea-towels-to-make-your-kitchen-stand-out/)
+- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
 - [cute storage](https://diy.allwomenstalk.com/clever-and-cute-storage-solutions-for-a-kids-room/)
 - [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
-- [tea towel display ideas](https://food.allwomenstalk.com/adorable-tea-towels-to-make-your-kitchen-stand-out/)
-- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
-- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
-- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
-- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
 - [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
+- [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
+- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [8 Amazing Holiday Candle Scents ...](https://lifestyle.allwomenstalk.com/amazing-holiday-candle-scents/)
 

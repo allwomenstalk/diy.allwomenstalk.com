@@ -3,7 +3,7 @@ title: "21 of Today's Awesome Design Inspo for All Decor Dolls out There ..."
 description: "@amberinteriors; @innerdecor; @luluandgeorgia; @homepolish; @ashleytstark; More ..."
 url: "https://diy.allwomenstalk.com/of-todays-awesome-design-inspo-for-all-decor-dolls-out-there/"
 category: "diy"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 21 of Today's Awesome Design Inspo for All Decor Dolls out There ...

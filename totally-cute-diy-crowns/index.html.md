@@ -3,7 +3,7 @@ title: "8 Totally Cute DIY Crowns ..."
 description: "Nature; Felt; Medieval; Lace; Fabric; More ..."
 url: "https://diy.allwomenstalk.com/totally-cute-diy-crowns/"
 category: "diy"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 8 Totally Cute DIY Crowns ...
@@ -76,16 +76,16 @@ Hope you end up making something from this list of **handmade crowns**! Go ahead
 
 ## Related Posts
 
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
 - [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [7 Sparkly Tiaras ...](https://jewelry.allwomenstalk.com/sparkly-tiaras/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

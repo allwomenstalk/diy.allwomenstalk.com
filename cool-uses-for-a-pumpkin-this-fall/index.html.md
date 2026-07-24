@@ -3,7 +3,7 @@ title: "10 Cool Uses for a Pumpkin This Fall ..."
 description: "Punch Bowl; Pumpkin Cooler; Bird Feeder; Pie Shell; Flower Pot; More ..."
 url: "https://diy.allwomenstalk.com/cool-uses-for-a-pumpkin-this-fall/"
 category: "diy"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 10 Cool Uses for a Pumpkin This Fall ...

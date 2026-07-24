@@ -3,7 +3,7 @@ title: "Oh, Wow! Look at All the Things You Can Make with Altoids Tins!"
 description: "Mini Pool Table; Tiny Friends; LEGO on the Go; Mini Grill; Travel Bugs; More ..."
 url: "https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/"
 category: "diy"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # Oh, Wow! Look at All the Things You Can Make with Altoids Tins!
@@ -218,15 +218,15 @@ Via [Constructing the Altoids Tin Zen ...](https://lifestyle.howstuffworks.com/c
 
 ## Related Posts
 
-- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
-- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
-- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
-- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
-- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
 - [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
+- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
+- [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
+- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
+- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
+- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
 - [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
 - [9 Neat Looking Cupcake Tins ...](https://thecrepescafe.com/9-neat-looking-cupcake-tins/)
 - [10 Cute and Creative Ways to Repurpose Altoid Tins...](https://lifestyle.allwomenstalk.com/cute-and-creative-ways-to-repurpose-altoid-tins/)

@@ -3,7 +3,7 @@ title: "35 Ways to Recycle Old CDs ..."
 description: "CD Mosaic Mirror; Mosaic Tile Birdbath; CD Art; Mosaic Address Plaque; Votive; More ..."
 url: "https://diy.allwomenstalk.com/ways-to-recycle-old-cds/"
 category: "diy"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 35 Ways to Recycle Old CDs ...
@@ -259,16 +259,16 @@ I’m precious about my CDs and won’t be getting rid of them! I still have all
 
 ## Related Posts
 
-- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
 - [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
+- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
+- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
+- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
+- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
 - [drawer organization ideas](https://diy.allwomenstalk.com/easy-examples-of-drawer-organization-that-will-make-your-life-easier/)
-- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
+- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
 - [the desk apprentice rotating desk organizer](https://lifestyle.allwomenstalk.com/desk-organizers-to-keep-your-stuff-in-order/)
 - [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
-- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
-- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
-- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
-- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
+- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
 - [7 Ways to Be Eco-friendly ...](https://lifestyle.allwomenstalk.com/ways-to-be-eco-friendly/)
 - [8 Ways to Pass on Old Books ...](https://allwomenstalk.com/8-ways-to-pass-on-old-books/)
 

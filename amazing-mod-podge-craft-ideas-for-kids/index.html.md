@@ -3,7 +3,7 @@ title: "7 Amazing Mod Podge Craft Ideas for Kids ..."
 description: "Mod Podge Furniture; Canvas Shoe DIY; Mod Podge Hat; Mod Podge Bookmark; Mod Podge Sunglasses; More ..."
 url: "https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Amazing Mod Podge Craft Ideas for Kids ...
@@ -52,13 +52,13 @@ What are some fun mod podge craft ideas for kids that you’ve made recently?
 
 ## Related Posts
 
-- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
-- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
-- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
 - [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
 - [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
 - [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)

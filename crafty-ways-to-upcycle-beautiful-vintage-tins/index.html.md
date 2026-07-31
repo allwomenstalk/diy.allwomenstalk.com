@@ -3,7 +3,7 @@ title: "7 Crafty Ways to Upcycle Beautiful Vintage Tins ..."
 description: "Make Candles; Turn a Vintage Tin into a Lamp Base; Create a Succulent Planter; Use Tins as Magnet Organizers; Fashion a Unique Lamp Shade; More ..."
 url: "https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/"
 category: "diy"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Crafty Ways to Upcycle Beautiful Vintage Tins ...
@@ -65,13 +65,13 @@ Have you ever recycled vintage tins? We'd love to know what you made. Show off i
 ## Related Posts
 
 - [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
-- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
-- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
 - [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
-- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
+- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
 - [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
 - [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
+- [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
+- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
 - [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
 - [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
 - [10 Cute and Creative Ways to Repurpose Altoid Tins...](https://lifestyle.allwomenstalk.com/cute-and-creative-ways-to-repurpose-altoid-tins/)

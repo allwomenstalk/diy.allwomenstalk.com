@@ -56,16 +56,16 @@ These were some of the best lampshade ideas I found online that I’m definitely
 
 ## Related Posts
 
-- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
-- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
-- [new year's eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
-- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
 - [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
-- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
-- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
-- [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
+- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
+- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
+- [new year's eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
 - [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
+- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
+- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

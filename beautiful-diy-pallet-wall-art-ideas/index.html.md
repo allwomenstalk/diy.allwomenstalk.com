@@ -56,16 +56,16 @@ What are some cool pallet wall art ideas you are hoping to put together this yea
 
 ## Related Posts
 
-- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
 - [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
-- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
-- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
 - [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
+- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
+- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
+- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [7 Wall Art Ideas for Home Decor ...](https://allwomenstalk.com/wall-art-ideas-for-home-decor/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

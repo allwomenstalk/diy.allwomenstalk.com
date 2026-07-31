@@ -66,15 +66,15 @@ Aren't these DIY tents easy to make? You'll have fun constructing one and you wi
 
 ## Related Posts
 
-- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
-- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
-- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
-- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
-- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
-- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
 - [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
+- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
+- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
+- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
+- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
+- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
+- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
 - [7 Perfect Crafts for Teens ...](https://allwomenstalk.com/7-perfect-crafts-for-teens/)
 - [8 Fun Camping DIY Ideas ...](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)

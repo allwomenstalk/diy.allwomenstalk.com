@@ -245,15 +245,15 @@ Lighting can be such a statement and any of these DIY chandeliers certainly achi
 ## Related Posts
 
 - [upcycled entertainment center ideas](https://diy.allwomenstalk.com/upcycled-furniture-projects-to-try-time-for-trash-picking/)
-- [comfortable swings](https://diy.allwomenstalk.com/relaxing-porch-swings-for-your-relaxing-pleasure/)
-- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
 - [marquee letter lights diy](https://diy.allwomenstalk.com/beautiful-marquee-lights-to-make/)
-- [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
+- [comfortable swings](https://diy.allwomenstalk.com/relaxing-porch-swings-for-your-relaxing-pleasure/)
 - [covered patio furniture ideas](https://diy.allwomenstalk.com/wait-til-you-see-these-awesome-patio-furniture-ideas/)
-- [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
 - [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
-- [sunburst headboard](https://diy.allwomenstalk.com/gorgeous-bed-canopies-to-make-your-room-appear-elegant/)
+- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
 - [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
+- [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
+- [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
+- [sunburst headboard](https://diy.allwomenstalk.com/gorgeous-bed-canopies-to-make-your-room-appear-elegant/)
 - [8 Unique Lamps for Your Apartment ...](https://lifestyle.allwomenstalk.com/unique-lamps-for-your-apartment/)
 - [7 Pretty Lamps for Your Home ...](https://allwomenstalk.com/7-pretty-lamps-for-your-home/)
 

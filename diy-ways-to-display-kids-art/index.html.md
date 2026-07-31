@@ -101,16 +101,16 @@ Got other ideas on ways to display kid's art? We'd love to hear them! Kindly sha
 
 ## Related Posts
 
+- [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
 - [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
 - [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
-- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
-- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
-- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
-- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
-- [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
-- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
 - [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
+- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
+- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
 - [7 Ways to Decorate Your Daughter's Room ...](https://parenting.allwomenstalk.com/7-ways-to-decorate-your-daughters-room/)
 - [7 Creative Things to do with Your Child's Artwork ...](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)
 

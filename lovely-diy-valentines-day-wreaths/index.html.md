@@ -181,16 +181,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
 - [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
-- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
-- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

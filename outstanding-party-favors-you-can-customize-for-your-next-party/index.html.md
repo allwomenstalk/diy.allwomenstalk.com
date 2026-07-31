@@ -288,16 +288,16 @@ Do you hand out favors at your parties? I've sort of moved away from it now that
 
 ## Related Posts
 
-- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
-- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
-- [gifts for best friends christmas](https://lifestyle.allwomenstalk.com/christmas-gifts-for-best-friends/)
 - [nail polish favors](https://parenting.allwomenstalk.com/baby-shower-favors-sure-to-be-a-hit/)
-- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
-- [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
+- [baby jewelry for christening](https://parenting.allwomenstalk.com/ideas-of-all-sorts-for-christening-gifts/)
 - [10 fit ka teddy bear](https://parenting.allwomenstalk.com/adorable-teddy-bears-for-your-child-to-love/)
-- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
-- [stocking stuffer ideas for boyfriend](https://lifestyle.allwomenstalk.com/manly-stocking-stuffers-for-your-boyfriend/)
 - [purple christmas wreaths](https://diy.allwomenstalk.com/christmas-wreaths-to-welcome-your-guests/)
+- [gifts for best friends christmas](https://lifestyle.allwomenstalk.com/christmas-gifts-for-best-friends/)
+- [printable dog bone stocking pattern](https://lifestyle.allwomenstalk.com/great-christmas-stockings-to-adorn-your-fireplace-this-year/)
+- [what do tween girls want for christmas](https://lifestyle.allwomenstalk.com/amazing-gifts-for-tween-girls/)
+- [personalized holiday gifts](https://lifestyle.allwomenstalk.com/spectacular-websites-for-personalized-holiday-gifts/)
+- [stocking stuffer ideas for boyfriend](https://lifestyle.allwomenstalk.com/manly-stocking-stuffers-for-your-boyfriend/)
+- [baby shower diaper cake ideas](https://parenting.allwomenstalk.com/diaper-cakes-any-mother-will-adore-to-receive/)
 - [Unique Favors...](https://allwomenstalk.com/unique-favors/)
 - [14 Tips for Hosting a Perfect Party ...](https://allwomenstalk.com/14-tips-on-hosting-a-perfect-party/)
 

@@ -220,16 +220,16 @@ So what do you think? Any DIY trinket boxes here you think will be gracing your 
 
 ## Related Posts
 
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
 - [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
 - [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
 - [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
 - [8 Ways to Store Your Jewellery ...](https://jewelry.allwomenstalk.com/8-ways-to-store-your-jewellery/)
 - [10 Pretty and Affordable Small Storage Items for Y...](https://allwomenstalk.com/10-pretty-and-affordable-small-storage-items-for-your-home/)
 

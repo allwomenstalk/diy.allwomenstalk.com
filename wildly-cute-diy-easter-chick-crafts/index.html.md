@@ -68,15 +68,15 @@ I bet you're ready to prepare for your Easter party now. Which of these DIY East
 
 ## Related Posts
 
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
-- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
-- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
 - [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
 - [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
 - [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
-- [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
+- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
+- [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
 - [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)

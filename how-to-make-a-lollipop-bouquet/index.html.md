@@ -45,16 +45,16 @@ That's it! Simple, easy and says "I care".
 
 ## Related Posts
 
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
-- [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
 - [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
-- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
-- [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
 - [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
+- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
+- [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
 - [koolaid lips](https://beauty.allwomenstalk.com/easy-diy-lip-balm-made-out-of-kool-aid/)
+- [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
 - [How to Make a Designer Bouquet for under $30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
 - [Video Tutorial of Little Ways to Say I Love You on...](https://love.allwomenstalk.com/little-ways-to-say-i-love-you/)
 

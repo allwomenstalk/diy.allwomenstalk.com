@@ -152,16 +152,16 @@ Via [DIY Paper Flower: Anemone - ...](http://liagriffith.com?ref=allwomenstalk.c
 
 ## Related Posts
 
+- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
+- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
+- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
 - [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
 - [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
 - [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
-- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
-- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
-- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
 - [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
+- [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
 - [Fresh Flower Projects That Are Blooming Awesome .....](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
 - [These Astonishing Floral Creations Will Blow Your ...](https://lifestyle.allwomenstalk.com/these-photos-prove-flowers-can-be-art/)
 

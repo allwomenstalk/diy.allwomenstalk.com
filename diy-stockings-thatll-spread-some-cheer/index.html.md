@@ -132,16 +132,16 @@ Which one is your favorite? Will you be making it this year?
 
 ## Related Posts
 
-- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
-- [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
-- [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
-- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
-- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
-- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
 - [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
+- [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
+- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
 - [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
+- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
+- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

@@ -36,16 +36,16 @@ Store-bought cards are nice but can never say as much as a homemade card. I alwa
 
 ## Related Posts
 
+- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
 - [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
 - [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
-- [Catchy Christmas Crafts: Delightful DIY Gifts & De...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
-- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
-- [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
 - [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
 - [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
+- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
+- [Catchy Christmas Crafts: Delightful DIY Gifts & De...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
+- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
+- [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
 - [4 DIY Wedding Card Ideas ...](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
 - [6 Ideas for Making Lovely Homemade Cards ...](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 

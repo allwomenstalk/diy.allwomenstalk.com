@@ -70,16 +70,16 @@ Don't you just love clever DIY ideas? I am sure there are many more ways to make
 
 ## Related Posts
 
-- [marquee letter lights diy](https://diy.allwomenstalk.com/beautiful-marquee-lights-to-make/)
-- [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
 - [katwise house](https://lifestyle.allwomenstalk.com/lakeside-houses-dreams-are-made-of/)
-- [comfortable swings](https://diy.allwomenstalk.com/relaxing-porch-swings-for-your-relaxing-pleasure/)
+- [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
+- [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
+- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
+- [oeuvre d'art facile à reproduire](https://diy.allwomenstalk.com/paintings-you-can-copy-for-your-own-house/)
 - [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
 - [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
-- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
-- [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
 - [diy chandelier kit](https://diy.allwomenstalk.com/diy-chandeliers-to-light-up-your-life/)
-- [oeuvre d'art facile à reproduire](https://diy.allwomenstalk.com/paintings-you-can-copy-for-your-own-house/)
+- [comfortable swings](https://diy.allwomenstalk.com/relaxing-porch-swings-for-your-relaxing-pleasure/)
+- [marquee letter lights diy](https://diy.allwomenstalk.com/beautiful-marquee-lights-to-make/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [7 Ways to Make Your Bedroom Chic for Less ...](https://allwomenstalk.com/7-ways-to-make-your-bedroom-chic-for-less/)
 

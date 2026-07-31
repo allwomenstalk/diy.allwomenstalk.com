@@ -58,16 +58,16 @@ Have you got a bottle of castor oil in your cupboard? No? Why not?
 
 ## Related Posts
 
-- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
-- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
-- [recipes with green tea](https://food.allwomenstalk.com/recipes-to-make-the-most-of-green-teas-health-giving-properties/)
-- [kohl rabbi](https://food.allwomenstalk.com/benefits-of-kohl-rabi/)
-- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
 - [one glass a day keeps the doctor away](https://health.allwomenstalk.com/why-a-glass-of-wine-a-day-keeps-the-doctor-away/)
-- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
+- [eating blueberries every day](https://food.allwomenstalk.com/reasons-to-eat-blueberries-every-day/)
+- [potato green recipe](https://food.allwomenstalk.com/reasons-you-should-be-eating-sweet-potato-greens/)
+- [carrot juice acne](https://food.allwomenstalk.com/health-tips-the-awesome-benefits-of-drinking-carrot-juice/)
+- [recipes with green tea](https://food.allwomenstalk.com/recipes-to-make-the-most-of-green-teas-health-giving-properties/)
 - [is himalayan salt radioactive](https://health.allwomenstalk.com/heres-why-you-should-buy-himalayan-pink-salt-this-week/)
 - [dogestive enzymes](https://health.allwomenstalk.com/reasons-coconut-water-should-be-your-drink-of-choice/)
-- [carrot juice acne](https://food.allwomenstalk.com/health-tips-the-awesome-benefits-of-drinking-carrot-juice/)
+- [coconut sugar walmart](https://food.allwomenstalk.com/you-wont-believe-all-the-benefits-of-coconut-sugar/)
+- [is eating pineapple good for your skin](https://beauty.allwomenstalk.com/why-you-should-be-using-pineapple-in-your-beauty-routine/)
+- [kohl rabbi](https://food.allwomenstalk.com/benefits-of-kohl-rabi/)
 - [7 Uses for Baby Oil ...](https://allwomenstalk.com/7-uses-for-baby-oil/)
 - [7 Ways to Use Essential Oils …](https://allwomenstalk.com/ways-to-use-essential-oils/)
 

@@ -124,16 +124,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
+- [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
 - [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
 - [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
-- [personalized father's day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
-- [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
 - [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
 - [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
+- [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
 - [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
-- [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
 - [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
+- [personalized father's day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
+- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
 - [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 

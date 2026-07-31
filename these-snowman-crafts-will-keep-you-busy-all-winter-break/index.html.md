@@ -186,14 +186,14 @@ Which one do you want to make today?
 ## Related Posts
 
 - [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
-- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
 - [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
+- [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
 - [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
 - [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
 - [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
-- [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
 - [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [8 Perfect Winter Hobbies ...](https://allwomenstalk.com/8-perfect-winter-hobbies/)

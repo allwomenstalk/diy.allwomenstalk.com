@@ -223,16 +223,16 @@ Are you ready to get crafting or are you sick of seeing pom poms? Pom poms add a
 
 ## Related Posts
 
-- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
-- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
-- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
-- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
+- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
+- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

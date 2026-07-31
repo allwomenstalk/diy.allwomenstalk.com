@@ -78,16 +78,16 @@ I hope that these DIY swimwear tutorials inspire you to start sewing soon. If yo
 
 ## Related Posts
 
-- [buying lingerie](https://fashion.allwomenstalk.com/tips-for-buying-lingerie/)
-- [best lingerie for small women](https://fashion.allwomenstalk.com/beautiful-lingerie-pieces-for-petite-women/)
-- [cutest tankinis](https://fashion.allwomenstalk.com/sultry-plus-size-swimsuits/)
-- [sexiest bra](https://fashion.allwomenstalk.com/fun-and-sexy-bras-to-make-you-feel-flirty/)
-- [beach belle plus size swimwear](https://fashion.allwomenstalk.com/flattering-bathing-suits-for-plus-sized-figures/)
-- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
-- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
-- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
 - [lingerie for bigger girls](https://fashion.allwomenstalk.com/sexy-lingerie-items-for-plus-size-girls/)
 - [very revealing swimwear](https://fashion.allwomenstalk.com/not-revealing-swimsuits-that-are-just-as-sexy/)
+- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
+- [best lingerie for small women](https://fashion.allwomenstalk.com/beautiful-lingerie-pieces-for-petite-women/)
+- [cutest tankinis](https://fashion.allwomenstalk.com/sultry-plus-size-swimsuits/)
+- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
+- [beach belle plus size swimwear](https://fashion.allwomenstalk.com/flattering-bathing-suits-for-plus-sized-figures/)
+- [sexiest bra](https://fashion.allwomenstalk.com/fun-and-sexy-bras-to-make-you-feel-flirty/)
+- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
+- [buying lingerie](https://fashion.allwomenstalk.com/tips-for-buying-lingerie/)
 - [7 Pretty Swim Suit Cover Ups ...](https://fashion.allwomenstalk.com/7-pretty-swim-suit-cover-ups/)
 - [9 Fabulous Swimsuits ...](https://swimwear.allwomenstalk.com/fabulous-swimsuits/)
 

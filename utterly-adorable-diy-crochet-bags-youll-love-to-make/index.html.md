@@ -68,16 +68,16 @@ So many bags, so little time! Crochet and knitting are becoming very popular amo
 
 ## Related Posts
 
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
 - [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
-- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
-- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
-- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
+- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
+- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
 - [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
 - [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
-- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
-- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
+- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
+- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
+- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Tutorials on Making Your Own, Super Stylish DIY ...](https://fashion.allwomenstalk.com/tutorials-on-making-your-own-super-stylish-diy-accessories/)
 

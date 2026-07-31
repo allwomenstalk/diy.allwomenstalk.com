@@ -68,16 +68,16 @@ I will now see if I have leather scraps somewhere because I need to make some of
 
 ## Related Posts
 
-- [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
 - [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
+- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
+- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
+- [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
 - [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
 - [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
-- [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
-- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
-- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [9 Gorgeous DIY Watches to Make ...](https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/)
 

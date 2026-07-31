@@ -116,16 +116,16 @@ Are you on board with the shabby chic trend or do you prefer a more polished aes
 
 ## Related Posts
 
-- [devi designs t.j. maxx](https://lifestyle.allwomenstalk.com/cutest-affordable-easter-decor-to-get-your-home-instagram-ready/)
-- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
-- [makeovers for girls](https://diy.allwomenstalk.com/ways-to-makeover-your-room-for-girls-looking-for-a-change/)
 - [do i look better in warm or cool colors](https://fashion.allwomenstalk.com/warm-or-cool-learn-to-find-your-best-colors/)
-- [gypsy decorating style](https://diy.allwomenstalk.com/boho-chic-bedroom-deco-tips-for-girls-with-a-gypsy-soul/)
-- [romantic bedroom decorating](https://diy.allwomenstalk.com/bedroom-decor-ideas-for-romantics/)
-- [drab room](https://diy.allwomenstalk.com/brighten-your-home-for-under-50-for-girls-bored-of-drab/)
 - [home decoration hacks](https://diy.allwomenstalk.com/designer-decor-hacks-you-can-fake-on-a-dime/)
-- [boho chic room decor](https://diy.allwomenstalk.com/boho-chic-decor-ideas/)
+- [romantic bedroom decorating](https://diy.allwomenstalk.com/bedroom-decor-ideas-for-romantics/)
 - [office inspo](https://money.allwomenstalk.com/awesome-home-office-inspo-for-people-working-from-home/)
+- [drab room](https://diy.allwomenstalk.com/brighten-your-home-for-under-50-for-girls-bored-of-drab/)
+- [gypsy decorating style](https://diy.allwomenstalk.com/boho-chic-bedroom-deco-tips-for-girls-with-a-gypsy-soul/)
+- [makeovers for girls](https://diy.allwomenstalk.com/ways-to-makeover-your-room-for-girls-looking-for-a-change/)
+- [diy assouline book](https://diy.allwomenstalk.com/wonderful-home-decor-projects-for-bookworms/)
+- [devi designs t.j. maxx](https://lifestyle.allwomenstalk.com/cutest-affordable-easter-decor-to-get-your-home-instagram-ready/)
+- [boho chic room decor](https://diy.allwomenstalk.com/boho-chic-decor-ideas/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 

@@ -142,16 +142,16 @@ How do you decorate for Halloween? I think each of these mantels are perfect! Wh
 
 ## Related Posts
 
-- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
-- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
-- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
-- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
-- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
-- [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
 - [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
+- [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
+- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
 - [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
 - [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
+- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
+- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
+- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 

@@ -34,16 +34,16 @@ Do have some fun getting crafty this Christmas
 
 ## Related Posts
 
-- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
-- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
-- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
 - [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
 - [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
+- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

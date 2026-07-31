@@ -262,16 +262,16 @@ Aren't people clever coming up with these great ideas? I've already got my tree 
 
 ## Related Posts
 
-- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
-- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
 - [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
-- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
-- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
 - [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
 - [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
-- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
 - [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
+- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
+- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
+- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
+- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
+- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
 - [13 Adorably Charming Christmas Gifts for Girls ...](https://lifestyle.allwomenstalk.com/adorably-charming-christmas-gifts-for-girls/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

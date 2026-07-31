@@ -156,16 +156,16 @@ Source: [etsy.com](http://www.etsy.com/listing/95890104/set-of-two-rustic-wood-a
 
 ## Related Posts
 
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
-- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
-- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
-- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
-- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
 - [Catchy Christmas Crafts: Delightful DIY Gifts & De...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
 - [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
+- [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
+- [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
+- [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
+- [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [17 Marvelous DIY Mini Christmas Trees ...](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [10 Delightful DIY Gift Boxes ...](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 

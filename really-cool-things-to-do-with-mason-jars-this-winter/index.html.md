@@ -56,16 +56,16 @@ There are plenty of other things to do with mason jars, too. How about a baking 
 
 ## Related Posts
 
+- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
+- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
 - [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
 - [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
-- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
-- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
-- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
-- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
-- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
 - [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
-- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
+- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
+- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
+- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
+- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [7 Creative Ways to Wrap Presents This Holiday Seas...](https://allwomenstalk.com/7-creative-ways-to-wrap-presents-this-holiday-season/)
 

@@ -262,16 +262,16 @@ Are you as amazed as I am with these dollar store crafts?
 
 ## Related Posts
 
-- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
-- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
-- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
-- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
-- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
+- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
 - [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
 - [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
-- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
 - [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
-- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
+- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
+- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
+- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
+- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
+- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

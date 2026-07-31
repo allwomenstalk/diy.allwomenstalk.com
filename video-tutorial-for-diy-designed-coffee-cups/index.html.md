@@ -29,16 +29,16 @@ Thank you for watching!
 
 ## Related Posts
 
-- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
-- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
-- [DIY Floating Storage for Organization That Doesn't...](https://diy.allwomenstalk.com/diy-floating-storage-for-organization-that-doesnt-take-up-tons-of-space/)
-- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
-- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
 - [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
-- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
-- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
+- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
 - [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
+- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
+- [DIY Floating Storage for Organization That Doesn't...](https://diy.allwomenstalk.com/diy-floating-storage-for-organization-that-doesnt-take-up-tons-of-space/)
+- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
+- [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
+- [DIY Kitchen Magnets ...](https://diy.allwomenstalk.com/diy-kitchen-magnets/)
 - [Make Your Own Custom Water Bottle Labels ...](https://diy.allwomenstalk.com/make-your-own-custom-water-bottle-labels/)
+- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
 - [Video Tutorial for Diy Dessert Cups 🥄 ...](https://diy.allwomenstalk.com/tutorial-for-diy-dessert-cups/)
 - [Video Tutorial for Personalized Wine Glasses ...](https://diy.allwomenstalk.com/tutorial-for-personalized-wine-glasses/)
 

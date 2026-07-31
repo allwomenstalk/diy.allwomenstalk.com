@@ -82,16 +82,16 @@ Top Photo Credit: [weheartit](https://weheartit.com/entry/2150074/via/capricho)
 
 ## Related Posts
 
+- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
 - [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
-- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
 - [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
-- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
 - [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
-- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
 - [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [8 Chunky Knit Socks to Wear around the House This ...](https://fashion.allwomenstalk.com/chunky-knit-socks-to-wear-around-the-house-this-winter/)
 - [9 Fun Ways to Re-Use Old Socks ...](https://lifestyle.allwomenstalk.com/fun-ways-to-re-use-old-socks/)
 

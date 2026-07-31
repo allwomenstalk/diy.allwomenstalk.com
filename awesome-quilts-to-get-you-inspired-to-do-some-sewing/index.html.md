@@ -382,16 +382,16 @@ Are you a quilter? Does this list make you want to be one? What is your favorite
 
 ## Related Posts
 
-- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
 - [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
-- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
-- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
 - [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
+- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Easy Sewing Projects for Beginners ...](https://allwomenstalk.com/5-easy-sewing-projects-for-beginners/)
 

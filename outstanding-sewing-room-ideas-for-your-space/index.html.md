@@ -159,15 +159,15 @@ What is your sewing space like? I'm using mine to make Christmas quilts at the m
 ## Related Posts
 
 - [glam furniture](https://diy.allwomenstalk.com/easy-ways-to-glam-up-cheap-furniture/)
-- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
-- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
 - [how to make london shades](https://diy.allwomenstalk.com/great-window-treatments-for-your-redecorating-project/)
-- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
-- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
-- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
-- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
 - [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
+- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
+- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
+- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
+- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
+- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [7 Romantic Decorating Ideas for Your Bedroom ...](https://allwomenstalk.com/7-romantic-decorating-ideas-for-your-bedroom/)
 

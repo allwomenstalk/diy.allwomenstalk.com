@@ -42,15 +42,15 @@ Art therapy can help you recover from your mental illness when it seems like the
 
 ## Related Posts
 
-- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
-- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
-- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
 - [mental health mantras](https://health.allwomenstalk.com/mantras-to-keep-in-mind-when-recovering-from-mental-illness/)
-- [unproductive work day](https://lifestyle.allwomenstalk.com/interesting-ways-to-rescue-an-unproductive-day/)
 - [how to listen to your body](https://health.allwomenstalk.com/effective-ways-to-listen-to-your-body/)
+- [how to deal with senioritis in high school](https://teen.allwomenstalk.com/tips-on-how-to-deal-with-senioritis/)
 - [grouch meaning](https://inspiration.allwomenstalk.com/helpful-hints-on-how-to-stop-being-a-grouch/)
 - [how to heal yourself emotionally](https://inspiration.allwomenstalk.com/ways-to-emotionally-heal-yourself-and-be-set-free/)
+- [you had a long day](https://health.allwomenstalk.com/very-useful-tips-on-how-to-recover-after-a-long-day-at-work/)
+- [unproductive work day](https://lifestyle.allwomenstalk.com/interesting-ways-to-rescue-an-unproductive-day/)
 - [how to stop a meltdown](https://parenting.allwomenstalk.com/ways-to-stop-a-meltdown-in-its-tracks/)
+- [depression tips and tricks](https://health.allwomenstalk.com/mental-tricks-to-fight-depression-that-really-do-work/)
 - [mental health approaches](https://health.allwomenstalk.com/therapeutic-approaches-to-overcoming-mental-illness/)
 - [7 Foods to Combat Stress ...](https://allwomenstalk.com/7-foods-to-combat-stress/)
 - [7 Ways to Feel Better ...](https://health.allwomenstalk.com/ways-to-feel-better/)

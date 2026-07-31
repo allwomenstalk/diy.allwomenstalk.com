@@ -76,16 +76,16 @@ Top Image Source: indulgy.com_
 
 ## Related Posts
 
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
 - [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
 - [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
+- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [8 Clever Uses for Plastic Bags ...](https://allwomenstalk.com/8-clever-uses-for-plastic-bags/)
 

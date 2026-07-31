@@ -35,16 +35,16 @@ Thank you for watching!
 
 ## Related Posts
 
-- [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
-- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
-- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
-- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
-- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
 - [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
+- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
+- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
+- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
 - [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
 - [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
+- [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
+- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
+- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
 - [koolaid lips](https://beauty.allwomenstalk.com/easy-diy-lip-balm-made-out-of-kool-aid/)
-- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
 - [7 Video Tutorials on Making Hats ...](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
 - [9 Fun Mug Makeovers ...](https://lifestyle.allwomenstalk.com/fun-mug-makeovers/)
 

@@ -133,15 +133,15 @@ Source: [Wrap Headphones Inside an Old](https://lifehacker.com/wrap-headphones-i
 ## Related Posts
 
 - [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
-- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
 - [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
-- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
-- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
+- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
 - [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
 - [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
-- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
+- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
 - [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
 - [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
+- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
+- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 - [15 Creative Ways to Display and Organize Your Jewe...](https://lifestyle.allwomenstalk.com/creative-ways-to-display-and-organize-your-jewelry/)
 

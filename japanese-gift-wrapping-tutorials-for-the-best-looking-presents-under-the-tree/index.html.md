@@ -38,16 +38,16 @@ Do have fun! Check out more Japanese gift wrapping tutorials on YouTube. It’s 
 
 ## Related Posts
 
-- [friendsmas quotes funny](https://lifestyle.allwomenstalk.com/how-to-celebrate-friendsmas/)
-- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
-- [thanks for girls](https://lifestyle.allwomenstalk.com/best-girls-stuff-to-buy-at-dollar-tree/)
-- [giving your boss a gift](https://lifestyle.allwomenstalk.com/should-you-buy-a-gift-for-your-boss/)
-- [meaningful christmas tree decorations](https://diy.allwomenstalk.com/diy-christmas-ornaments/)
 - [£10 stocking fillers](https://lifestyle.allwomenstalk.com/stocking-fillers-she-will-love/)
-- [diy father's day gifts](https://diy.allwomenstalk.com/diy-fathers-day-gifts/)
+- [giving your boss a gift](https://lifestyle.allwomenstalk.com/should-you-buy-a-gift-for-your-boss/)
 - [creative ways to wrap a present](https://diy.allwomenstalk.com/creative-ways-to-gift-wrap-presents/)
 - [share the joy of holiday presents](https://lifestyle.allwomenstalk.com/ways-to-share-holiday-joy/)
+- [meaningful christmas tree decorations](https://diy.allwomenstalk.com/diy-christmas-ornaments/)
 - [stocking filler ideas](https://lifestyle.allwomenstalk.com/simple-ideas-for-stocking-fillers-this-christmas/)
+- [friendsmas quotes funny](https://lifestyle.allwomenstalk.com/how-to-celebrate-friendsmas/)
+- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
+- [diy father's day gifts](https://diy.allwomenstalk.com/diy-fathers-day-gifts/)
+- [thanks for girls](https://lifestyle.allwomenstalk.com/best-girls-stuff-to-buy-at-dollar-tree/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 - [12 Beautiful DIY Holiday Wreaths ...](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 

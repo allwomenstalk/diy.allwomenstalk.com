@@ -78,16 +78,16 @@ We suggest doing more than one of the DIY sunglasses ideas above. Do three or mo
 
 ## Related Posts
 
-- [10 Swimwear Infographics for a Fun Summer!](https://fashion.allwomenstalk.com/swimwear-infographics-for-a-fun-summer/)
-- [30 Office-Ready Outfits for Summer ...](https://fashion.allwomenstalk.com/office-ready-outfits-for-summer/)
-- [Fabulous Flats You Need to Flaunt This Summer ...](https://shoes.allwomenstalk.com/fabulous-flats-you-need-to-flaunt-this-summer/)
-- [How to Add Some Fun to Your Summer Wardrobe ...](https://fashion.allwomenstalk.com/how-to-add-some-fun-to-your-summer-wardrobe/)
-- [Best Instagram Summer Looks to Steal ...](https://fashion.allwomenstalk.com/best-instagram-summer-looks-to-steal/)
-- [neon closet](https://fashion.allwomenstalk.com/neon-colors-you-need-in-your-closet-this-summer/)
 - [Tips for Wearing Maxi Dresses during the Hottest M...](https://fashion.allwomenstalk.com/tips-for-wearing-maxi-dresses-during-the-hottest-months-of-the-year/)
-- [These Make-up Colors Are so in This Summer ...](https://makeup.allwomenstalk.com/these-make-up-colors-are-so-in-this-summer/)
-- [diy high waisted shorts](https://diy.allwomenstalk.com/ways-to-make-gorgeous-and-stylish-diy-summer-shorts/)
+- [30 Office-Ready Outfits for Summer ...](https://fashion.allwomenstalk.com/office-ready-outfits-for-summer/)
+- [neon closet](https://fashion.allwomenstalk.com/neon-colors-you-need-in-your-closet-this-summer/)
 - [The Only Summer Outfit Inspiration You'll Need ...](https://fashion.allwomenstalk.com/the-only-summer-outfit-inspiration-youll-need/)
+- [10 Swimwear Infographics for a Fun Summer!](https://fashion.allwomenstalk.com/swimwear-infographics-for-a-fun-summer/)
+- [These Make-up Colors Are so in This Summer ...](https://makeup.allwomenstalk.com/these-make-up-colors-are-so-in-this-summer/)
+- [How to Add Some Fun to Your Summer Wardrobe ...](https://fashion.allwomenstalk.com/how-to-add-some-fun-to-your-summer-wardrobe/)
+- [Fabulous Flats You Need to Flaunt This Summer ...](https://shoes.allwomenstalk.com/fabulous-flats-you-need-to-flaunt-this-summer/)
+- [Best Instagram Summer Looks to Steal ...](https://fashion.allwomenstalk.com/best-instagram-summer-looks-to-steal/)
+- [diy high waisted shorts](https://diy.allwomenstalk.com/ways-to-make-gorgeous-and-stylish-diy-summer-shorts/)
 - [8 Ways to Fabulous Summer Feet ...](https://skincare.allwomenstalk.com/ways-to-fabulous-summer-feet/)
 - [8 Essentials for Seaside Style This Summer ...](https://fashion.allwomenstalk.com/essentials-for-seaside-style/)
 

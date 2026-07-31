@@ -56,16 +56,16 @@ How do you prep for photographs? Does this help you? I bet you’ll totally be r
 
 ## Related Posts
 
-- [you look fabulous](https://fashion.allwomenstalk.com/ways-to-look-fabulous-in-a-swimsuit/)
 - [transforming your body](https://fitness.allwomenstalk.com/things-to-remember-when-transforming-your-body/)
-- [how to be a pretty sleeper](https://beauty.allwomenstalk.com/ways-to-look-good-before-bed/)
-- [sculpted shoulders](https://fitness.allwomenstalk.com/ways-to-get-sculpted-shoulders-like-the-celebrities/)
 - [how to get a nice body](https://fitness.allwomenstalk.com/steps-to-a-great-body/)
-- [7 Essential Health Tips from Top Models ...](https://health.allwomenstalk.com/essential-health-tips-from-top-models/)
-- [beautiful traits](https://beauty.allwomenstalk.com/quirky-physical-traits-that-make-you-beautiful/)
+- [sculpted shoulders](https://fitness.allwomenstalk.com/ways-to-get-sculpted-shoulders-like-the-celebrities/)
+- [you look fabulous](https://fashion.allwomenstalk.com/ways-to-look-fabulous-in-a-swimsuit/)
+- [how to be a pretty sleeper](https://beauty.allwomenstalk.com/ways-to-look-good-before-bed/)
 - [kate middleton classy](https://celebs.allwomenstalk.com/ways-to-become-as-classy-as-kate-middleton/)
 - [how to look your best in 7 days](https://health.allwomenstalk.com/ways-to-look-and-feel-better-in-7-days/)
+- [beautiful traits](https://beauty.allwomenstalk.com/quirky-physical-traits-that-make-you-beautiful/)
 - [meaning of sophisticated woman](https://lifestyle.allwomenstalk.com/tips-on-how-to-feel-like-a-classy-sophisticated-lady/)
+- [7 Essential Health Tips from Top Models ...](https://health.allwomenstalk.com/essential-health-tips-from-top-models/)
 - [7 Great Tips on How to Look Good in Pictures ...](https://beauty.allwomenstalk.com/great-tips-on-how-to-look-good-in-pictures/)
 - [7 Tips on How to Be the Perfect Model for Your Pho...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-the-perfect-model-for-your-photographer/)
 

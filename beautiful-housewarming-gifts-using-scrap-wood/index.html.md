@@ -68,16 +68,16 @@ And here is some [additional reading](https://thatsweetgift.com/housewarming-gif
 
 ## Related Posts
 
-- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
-- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
 - [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
 - [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
+- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
 - [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
+- [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
 - [7 Ways to Decorate with Faux Wood ...](https://lifestyle.allwomenstalk.com/ways-to-decorate-with-faux-wood/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

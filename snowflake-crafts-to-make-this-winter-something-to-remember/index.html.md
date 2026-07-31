@@ -127,16 +127,16 @@ Are you ready to start constructing snowflakes at home? Which craft will you try
 
 ## Related Posts
 
+- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
+- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
 - [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
 - [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
-- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
-- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
-- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
-- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
-- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
-- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
-- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
 - [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
+- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
+- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
+- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
+- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
+- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

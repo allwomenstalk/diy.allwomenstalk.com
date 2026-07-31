@@ -56,16 +56,16 @@ I know you can consider travel a hobby in itself but there are hobbies that are 
 
 ## Related Posts
 
-- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
-- [what to visit in bermuda](https://travel.allwomenstalk.com/reasons-to-visit-bermuda-for-a-taste-of-island-life/)
 - [bays in new england](https://travel.allwomenstalk.com/fabulous-beaches-of-new-england/)
-- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
-- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
+- [budget cruises](https://travel.allwomenstalk.com/budget-cruises-you-can-afford/)
 - [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
 - [small island near italy](https://travel.allwomenstalk.com/small-islands-of-italy-for-perfect-escapes/)
-- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
-- [budget cruises](https://travel.allwomenstalk.com/budget-cruises-you-can-afford/)
+- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
+- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
 - [mcdonald flats campground](https://travel.allwomenstalk.com/campgrounds-in-the-rocky-mountains/)
+- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
+- [what to visit in bermuda](https://travel.allwomenstalk.com/reasons-to-visit-bermuda-for-a-taste-of-island-life/)
+- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 

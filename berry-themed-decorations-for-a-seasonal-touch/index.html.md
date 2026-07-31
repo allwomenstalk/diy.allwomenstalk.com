@@ -249,16 +249,16 @@ I’ve never dressed up the outside my house but some of these berry themed deco
 
 ## Related Posts
 
-- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
-- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
-- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
-- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
 - [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
 - [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
 - [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
-- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
-- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
 - [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
+- [coffee table crates](https://diy.allwomenstalk.com/diy-coffee-tables-to-spruce-up-your-living-room/)
+- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
+- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
+- [decorating bird cages](https://lifestyle.allwomenstalk.com/alternative-uses-for-bird-cages-that-you-will-fall-in-love-with/)
+- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
+- [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [8 Garden Decorating Ideas for the Holidays ...](https://gardening.allwomenstalk.com/garden-decorating-ideas-for-the-holidays/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 

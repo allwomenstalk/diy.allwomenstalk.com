@@ -90,16 +90,16 @@ Hope you enjoyed this list of **DIY wooden Christmas trees**! If you have more c
 
 ## Related Posts
 
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [10 Christmas Tree Decoration Ideas ...](https://allwomenstalk.com/10-christmas-tree-decoration-ideas/)
 

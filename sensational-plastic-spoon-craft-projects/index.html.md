@@ -76,16 +76,16 @@ I hope you enjoyed this list of **plastic spoon craft projects**. If you can thi
 
 ## Related Posts
 
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
-- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
 - [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
 - [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
+- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 

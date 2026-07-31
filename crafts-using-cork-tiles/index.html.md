@@ -124,16 +124,16 @@ What other cork tile crafts can you add to this list? Do you see a craft you wan
 
 ## Related Posts
 
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
-- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
 - [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
-- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
-- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
-- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
 - [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
+- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
+- [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
+- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
+- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [8 Gorgeous Arts and Crafts Supplies ...](https://allwomenstalk.com/8-gorgeous-arts-and-crafts-supplies/)
 

@@ -222,16 +222,16 @@ What does your pincushion look like? I have an owl and a cute little square. I a
 
 ## Related Posts
 
-- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
 - [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
-- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
-- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
+- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
 - [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
+- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
+- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
+- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
 - [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
 - [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
-- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
 - [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
-- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
+- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
 - [13 Adorable DIY Aprons to Sew ...](https://lifestyle.allwomenstalk.com/adorable-diy-aprons-to-sew/)
 - [9 More Adorable Pet Crafts ...](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
 

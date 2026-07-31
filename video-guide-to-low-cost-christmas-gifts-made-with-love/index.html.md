@@ -35,16 +35,16 @@ Lydia Senn's YouTube video is probably one of the best YouTube videos I have rev
 
 ## Related Posts
 
-- [dollarama gift ideas](https://diy.allwomenstalk.com/dollar-store-coffee-gift-basket-idea/)
-- [easy123art](https://lifestyle.allwomenstalk.com/birthday-gifts-for-the-mom-you-love/)
-- [pizza dough money gift](https://food.allwomenstalk.com/this-pizza-dough-mix-in-a-jar-makes-a-fantastic-gift-idea/)
-- [pen pal programs elderly uk](https://lifestyle.allwomenstalk.com/seriously-great-ways-to-give-back-this-christmas-in-the-uk/)
-- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
-- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
-- [hunting gift basket](https://diy.allwomenstalk.com/how-to-gift-wrap-a-basket-for-a-professional-look-at-home/)
-- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
 - [best hostess gifts for thanksgiving](https://lifestyle.allwomenstalk.com/thanksgiving-gifts-to-give-your-hostess/)
+- [easy123art](https://lifestyle.allwomenstalk.com/birthday-gifts-for-the-mom-you-love/)
+- [dollarama gift ideas](https://diy.allwomenstalk.com/dollar-store-coffee-gift-basket-idea/)
+- [pizza dough money gift](https://food.allwomenstalk.com/this-pizza-dough-mix-in-a-jar-makes-a-fantastic-gift-idea/)
+- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
+- [pen pal programs elderly uk](https://lifestyle.allwomenstalk.com/seriously-great-ways-to-give-back-this-christmas-in-the-uk/)
+- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
 - [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
+- [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
+- [hunting gift basket](https://diy.allwomenstalk.com/how-to-gift-wrap-a-basket-for-a-professional-look-at-home/)
 - [Save Your Cash This Christmas with These DIY Gifts...](https://diy.allwomenstalk.com/save-your-cash-this-christmas-with-these-diy-gifts/)
 - [Usefull Christmas Gifts under $5.00 for Girls Tigh...](https://lifestyle.allwomenstalk.com/christmas-gifts-under-5/)
 

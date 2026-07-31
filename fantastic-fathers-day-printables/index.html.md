@@ -118,16 +118,16 @@ This article was written in collaboration with editor Neecey Beresford.
 
 ## Related Posts
 
-- [lists for guys](https://love.allwomenstalk.com/things-on-your-guys-wish-list/)
+- [christmas gifts](https://money.allwomenstalk.com/smart-gifts-for-christmas-that-wont-break-the-bank/)
+- [simple christmas gifts for guys](https://diy.allwomenstalk.com/diy-christmas-gifts-for-men/)
 - [how to get 3ss in haze piece](https://lifestyle.allwomenstalk.com/christmas-present-ideas-for-seven-types-of-mother-in-laws/)
 - [pop up christmas cards diy](https://diy.allwomenstalk.com/cool-video-tutorials-for-christmas-cards/)
+- [a christmas blessing](https://lifestyle.allwomenstalk.com/ways-to-be-a-christmas-blessing/)
+- [best stores to shop for christmas](https://lifestyle.allwomenstalk.com/best-stores-for-holiday-shopping/)
 - [cute gift wrapping](https://lifestyle.allwomenstalk.com/cute-gift-wrapping-ideas/)
 - [old time christmas gifts](https://lifestyle.allwomenstalk.com/vintage-gift-ideas-for-the-holidays/)
+- [lists for guys](https://love.allwomenstalk.com/things-on-your-guys-wish-list/)
 - [fan gift ideas for celebrities](https://celebs.allwomenstalk.com/types-of-handmade-gifts-celebs-love-giveaway/)
-- [christmas gifts](https://money.allwomenstalk.com/smart-gifts-for-christmas-that-wont-break-the-bank/)
-- [best stores to shop for christmas](https://lifestyle.allwomenstalk.com/best-stores-for-holiday-shopping/)
-- [a christmas blessing](https://lifestyle.allwomenstalk.com/ways-to-be-a-christmas-blessing/)
-- [simple christmas gifts for guys](https://diy.allwomenstalk.com/diy-christmas-gifts-for-men/)
 - [9 Sweet Gifts to Make for Mother's Day ...](https://allwomenstalk.com/sweet-gifts-to-make-for-mothers-day/)
 - [10 Fun Father's Day Projects ...](https://allwomenstalk.com/fun-fathers-day-projects/)
 

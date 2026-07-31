@@ -42,16 +42,16 @@ What’s your favorite DIY YouTube channel? Anneorshine is definitely my favorit
 
 ## Related Posts
 
-- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
-- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
-- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
-- [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
-- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
-- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
-- [home dcor](https://diy.allwomenstalk.com/diy-videos-about-home-decor-on-a-budget/)
 - [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
+- [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
+- [home dcor](https://diy.allwomenstalk.com/diy-videos-about-home-decor-on-a-budget/)
+- [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
+- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
 - [body jewelry holder](https://jewelry.allwomenstalk.com/diy-jewelry-organizers-to-get-busy-making/)
+- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
+- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
+- [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
+- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

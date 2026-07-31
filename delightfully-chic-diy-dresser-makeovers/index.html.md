@@ -90,16 +90,16 @@ I hope you enjoyed this list of **DIY dresser makeovers**. If you can think of m
 
 ## Related Posts
 
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
+- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
-- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
-- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
-- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
+- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [10 Insanely Cool DIY Chandeliers ...](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

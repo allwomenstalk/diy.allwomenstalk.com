@@ -171,16 +171,16 @@ Which one will you send out this year?
 
 ## Related Posts
 
-- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
-- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
-- [halloween victoria's secret](https://lifestyle.allwomenstalk.com/sexy-victoria-secret-inspired-halloween-costumes/)
 - [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
-- [decoration halloween cupcake](https://food.allwomenstalk.com/the-spookiest-way-to-decorate-your-halloween-cupcakes/)
-- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
 - [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
-- [teenagers trick or treating](https://lifestyle.allwomenstalk.com/alternatives-to-trick-or-treating-for-teens/)
-- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
+- [decoration halloween cupcake](https://food.allwomenstalk.com/the-spookiest-way-to-decorate-your-halloween-cupcakes/)
+- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
 - [cute halloween face paint ideas](https://makeup.allwomenstalk.com/face-painting-ideas-that-will-take-your-costume-to-a-whole-new-level/)
+- [halloween victoria's secret](https://lifestyle.allwomenstalk.com/sexy-victoria-secret-inspired-halloween-costumes/)
+- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
+- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
+- [teenagers trick or treating](https://lifestyle.allwomenstalk.com/alternatives-to-trick-or-treating-for-teens/)
+- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 - [Awesome Invitations and a Little Inspiration ...](https://allwomenstalk.com/awesome-invitations-and-a-little-inspiration/)
 

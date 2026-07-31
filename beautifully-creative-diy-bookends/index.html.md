@@ -98,16 +98,16 @@ So there you have creative and clever **DIY bookends**. Which of these tickled y
 
 ## Related Posts
 
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
-- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
-- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
+- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)
 

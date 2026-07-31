@@ -44,15 +44,15 @@ Have fun creating and Merry Christmas! Thank you for watching!
 ## Related Posts
 
 - [koolaid lips](https://beauty.allwomenstalk.com/easy-diy-lip-balm-made-out-of-kool-aid/)
-- [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
-- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
-- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
-- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
-- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
-- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
 - [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
 - [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
+- [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
+- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
+- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
+- [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
+- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
+- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
 - [7 Creative Ways to Deck the Halls ...](https://allwomenstalk.com/7-creative-ways-to-deck-the-halls/)
 - [12 Beautiful DIY Holiday Wreaths ...](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 

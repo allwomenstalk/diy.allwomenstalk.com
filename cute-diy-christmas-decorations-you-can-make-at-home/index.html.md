@@ -56,16 +56,16 @@ I’m definitely getting into the festive spirit making these cute DIY Christmas
 
 ## Related Posts
 
-- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
 - [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
-- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
-- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
 - [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
-- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
-- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
+- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
 - [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
+- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
+- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
+- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
+- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
+- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 

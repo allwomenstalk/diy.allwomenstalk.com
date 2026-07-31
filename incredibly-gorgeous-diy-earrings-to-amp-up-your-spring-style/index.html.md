@@ -30,16 +30,16 @@ How gorgeous are these DIY earrings? This lovely pair showcases beads in mint gr
 
 ## Related Posts
 
-- [the henna tattoo](https://beauty.allwomenstalk.com/incredible-henna-tattoo-design-inspirations/)
-- [love couple skull tattoos](https://beauty.allwomenstalk.com/of-the-best-couples-tattoos-youll-ever-see/)
 - [pink skull meaning](https://jewelry.allwomenstalk.com/killer-pieces-of-skull-jewelry-to-indulge-your-rock-and-roll-side/)
-- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
+- [love couple skull tattoos](https://beauty.allwomenstalk.com/of-the-best-couples-tattoos-youll-ever-see/)
+- [kaira engagement ring](https://jewelry.allwomenstalk.com/perfect-engagement-ring-inspos-every-girl-will-love/)
+- [the henna tattoo](https://beauty.allwomenstalk.com/incredible-henna-tattoo-design-inspirations/)
+- [bohemian bracelet meaning](https://jewelry.allwomenstalk.com/boho-beauty-types-of-bohemian-themed-jewelry-to-enhance-your-summer-style/)
+- [pukka shells](https://diy.allwomenstalk.com/fabulous-diy-necklaces-that-will-rock-your-world/)
 - [neon earrings amazon](https://jewelry.allwomenstalk.com/pairs-of-neon-earrings-that-will-rock-your-world/)
 - [pandora bracelet minnie mouse](https://jewelry.allwomenstalk.com/the-prettiest-pieces-from-pandoras-disney-sweethearts-collection/)
-- [pukka shells](https://diy.allwomenstalk.com/fabulous-diy-necklaces-that-will-rock-your-world/)
-- [kaira engagement ring](https://jewelry.allwomenstalk.com/perfect-engagement-ring-inspos-every-girl-will-love/)
+- [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
 - [buzz lightyear tatoo](https://beauty.allwomenstalk.com/these-3-d-tattoos-are-totally-shocking-you-have-to-see-to-believe/)
-- [bohemian bracelet meaning](https://jewelry.allwomenstalk.com/boho-beauty-types-of-bohemian-themed-jewelry-to-enhance-your-summer-style/)
 - [9 Chic Ear Warmers ...](https://fashion.allwomenstalk.com/chic-ear-warmers/)
 - [8 Hottest Pieces of Jewelry This Spring ...](https://allwomenstalk.com/8-hottest-pieces-of-jewelry-this-spring/)
 

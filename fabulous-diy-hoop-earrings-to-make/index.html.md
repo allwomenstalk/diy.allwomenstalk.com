@@ -80,15 +80,15 @@ I am now ready to tackle my stash of beads and hoops. How about you? What will y
 
 ## Related Posts
 
-- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
-- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
-- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
 - [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
+- [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
 - [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
+- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [10 Beautiful Boho Accessories to Make ...](https://fashion.allwomenstalk.com/beautiful-boho-accessories-to-make/)

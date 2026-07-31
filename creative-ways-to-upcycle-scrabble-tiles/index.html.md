@@ -82,16 +82,16 @@ So there you have 9 fun **ways to upcycle Scrabble tiles**. Can you think of oth
 
 ## Related Posts
 
-- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
-- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
 - [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
 - [13 Winning Ways to Upcycle Wine Corks ...](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
 - [9 Terrific Ways to Repurpose Teapots and Tea Cups ...](https://lifestyle.allwomenstalk.com/terrific-ways-to-repurpose-teapots-and-tea-cups/)
 

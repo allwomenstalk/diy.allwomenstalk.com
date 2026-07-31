@@ -58,16 +58,16 @@ As you can see, there are many options when it comes to eco-friendly flooring. Y
 
 ## Related Posts
 
-- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
-- [decorations for a girl room](https://parenting.allwomenstalk.com/adorable-little-girl-bedroom-ideas-sure-to-impress-your-little-princess/)
-- [unique outdoor fountains](https://gardening.allwomenstalk.com/marvelous-backyard-fountains-for-you-to-enjoy-in-your-outdoor-space/)
-- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
-- [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
 - [cool aquarium tanks](https://lifestyle.allwomenstalk.com/inspiring-fish-tanks-for-the-aquatic-lover-in-you/)
-- [funky painted bookshelves](https://books.allwomenstalk.com/bookshelves-to-stun-and-amaze-you/)
-- [dorm room cork board](https://diy.allwomenstalk.com/diy-dorm-room-decor-projects-to-spice-up-your-room/)
+- [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
 - [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
+- [decorations for a girl room](https://parenting.allwomenstalk.com/adorable-little-girl-bedroom-ideas-sure-to-impress-your-little-princess/)
+- [dorm room cork board](https://diy.allwomenstalk.com/diy-dorm-room-decor-projects-to-spice-up-your-room/)
+- [unique outdoor fountains](https://gardening.allwomenstalk.com/marvelous-backyard-fountains-for-you-to-enjoy-in-your-outdoor-space/)
 - [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
+- [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
+- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
+- [funky painted bookshelves](https://books.allwomenstalk.com/bookshelves-to-stun-and-amaze-you/)
 - [5 Ways to Plan an Eco-Friendly Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/)
 - [7 Garden Landscaping Tips ...](https://gardening.allwomenstalk.com/7-garden-landscaping-tips/)
 

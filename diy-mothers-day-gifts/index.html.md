@@ -187,15 +187,15 @@ designsponge.com_
 ## Related Posts
 
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
 - [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
-- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [Mother's Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 - [Top 5 Mother's Day Gifts ...](https://allwomenstalk.com/top-5-mothers-day-gifts/)
 

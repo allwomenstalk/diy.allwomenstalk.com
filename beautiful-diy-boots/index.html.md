@@ -82,16 +82,16 @@ How awesome are these **DIY boots**? I am thinking of doing the Boho belted idea
 
 ## Related Posts
 
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
 - [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
 - [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
-- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [10 Stylish Ankle Boots ...](https://shoes.allwomenstalk.com/stylish-ankle-boots/)
 - [9 Beautiful Black Maloles Boots and Booties ...](https://shoes.allwomenstalk.com/beautiful-black-maloles-boots-and-booties/)
 

@@ -50,12 +50,12 @@ Spring cleaning can seem like a huge obstacle to tackle, but if you dedicate sep
 
 ## Related Posts
 
-- [findology](https://lifestyle.allwomenstalk.com/very-effective-tips-for-finding-misplaced-objects/)
-- [things to have in your bathroom](https://beauty.allwomenstalk.com/bathroom-essentials-every-busy-woman-should-have/)
 - [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
-- [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
-- [clean dorm](https://diy.allwomenstalk.com/ways-to-spring-clean-your-dorm-room/)
 - [dish soap ice pack](https://diy.allwomenstalk.com/neat-uses-for-dishwashing-soap-you-never-knew/)
+- [clean dorm](https://diy.allwomenstalk.com/ways-to-spring-clean-your-dorm-room/)
+- [findology](https://lifestyle.allwomenstalk.com/very-effective-tips-for-finding-misplaced-objects/)
+- [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
+- [things to have in your bathroom](https://beauty.allwomenstalk.com/bathroom-essentials-every-busy-woman-should-have/)
 - [upgrade your office](https://diy.allwomenstalk.com/simple-things-you-can-do-to-upgrade-your-office/)
 - [used for wd40](https://diy.allwomenstalk.com/uses-for-wd40-that-proves-its-magic-in-a-can/)
 - [why to clean makeup brushes](https://makeup.allwomenstalk.com/reasons-to-clean-your-makeup-brushes/)

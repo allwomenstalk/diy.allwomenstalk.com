@@ -74,16 +74,16 @@ Which of these shirt embellishment ideas tickle your fancy? I think I'll try the
 
 ## Related Posts
 
-- [white pants and shoes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-white-pants/)
-- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
-- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
-- [20s clothing style](https://fashion.allwomenstalk.com/fashion-tips-for-a-1920s-look/)
-- [how to wear a midi skirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-midi-skirt/)
-- [jackets to wear with overalls](https://streetstyle.allwomenstalk.com/fabulous-street-style-ways-to-wear-overalls/)
-- [dress less](https://fashion.allwomenstalk.com/ways-to-dress-for-less/)
-- [selena gomez cross necklace](https://diy.allwomenstalk.com/ways-to-diy-and-steal-selena-gomezs-bohemian-style/)
 - [it jeans dream diva](https://fashion.allwomenstalk.com/ways-to-rock-high-waisted-jeans/)
 - [street style kate moss](https://fashion.allwomenstalk.com/fabulous-ways-to-dress-like-kate-moss/)
+- [20s clothing style](https://fashion.allwomenstalk.com/fashion-tips-for-a-1920s-look/)
+- [dress less](https://fashion.allwomenstalk.com/ways-to-dress-for-less/)
+- [selena gomez cross necklace](https://diy.allwomenstalk.com/ways-to-diy-and-steal-selena-gomezs-bohemian-style/)
+- [white pants and shoes](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-white-pants/)
+- [how to wear a midi skirt](https://streetstyle.allwomenstalk.com/street-style-ways-to-wear-the-midi-skirt/)
+- [high waisted denim shorts](https://fashion.allwomenstalk.com/ways-to-wear-high-waist-denim-shorts-like-a-diva/)
+- [jackets to wear with overalls](https://streetstyle.allwomenstalk.com/fabulous-street-style-ways-to-wear-overalls/)
+- [celebrity cap](https://fashion.allwomenstalk.com/ways-to-wear-the-celeb-baseball-caps-trend/)
 - [10 Trendy Ways to Wear Belts ...](https://fashion.allwomenstalk.com/trendy-ways-to-wear-belts/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
 

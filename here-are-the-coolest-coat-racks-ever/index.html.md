@@ -228,16 +228,16 @@ Do you have a coat rack? Mine is covered in coats, hats and scarves, but it's un
 
 ## Related Posts
 
-- [flannel open or closed](https://fashion.allwomenstalk.com/the-best-flannel-looks-for-fall/)
-- [macys raincoats](https://fashion.allwomenstalk.com/make-it-rain-with-these-sexy-spring-raincoats/)
-- [how to make a poncho cape](https://diy.allwomenstalk.com/charming-and-stylish-diy-capes-or-ponchos/)
-- [cardigan tipis](https://fashion.allwomenstalk.com/feel-like-a-fashion-queen-with-these-cardigan-tips/)
-- [fall fashion shopping](https://fashion.allwomenstalk.com/the-best-websites-for-buying-fall-fashion-pieces/)
 - [leather bermuda shorts](https://diy.allwomenstalk.com/no-need-to-buy-new-fall-cardigans-embellish-old-ones-using-one-of-these-crafty-ideas/)
-- [scarf outfit ideas winter](https://fashion.allwomenstalk.com/summer-scarf-inspos-to-prove-theyre-not-just-for-winter/)
-- [costumes with beanies](https://fashion.allwomenstalk.com/the-sexiest-outfits-to-wear-with-a-beanie/)
+- [flannel open or closed](https://fashion.allwomenstalk.com/the-best-flannel-looks-for-fall/)
 - [cute spring jackets](https://fashion.allwomenstalk.com/light-spring-jackets-youll-go-crazy-for/)
 - [shoes to wear with leather mini skirt](https://fashion.allwomenstalk.com/simple-and-chic-mini-skirts-meant-for-fall/)
+- [macys raincoats](https://fashion.allwomenstalk.com/make-it-rain-with-these-sexy-spring-raincoats/)
+- [costumes with beanies](https://fashion.allwomenstalk.com/the-sexiest-outfits-to-wear-with-a-beanie/)
+- [fall fashion shopping](https://fashion.allwomenstalk.com/the-best-websites-for-buying-fall-fashion-pieces/)
+- [cardigan tipis](https://fashion.allwomenstalk.com/feel-like-a-fashion-queen-with-these-cardigan-tips/)
+- [how to make a poncho cape](https://diy.allwomenstalk.com/charming-and-stylish-diy-capes-or-ponchos/)
+- [scarf outfit ideas winter](https://fashion.allwomenstalk.com/summer-scarf-inspos-to-prove-theyre-not-just-for-winter/)
 - [8 Fashionable but Functional Winter Coats ...](https://fashion.allwomenstalk.com/fashionable-but-functional-winter-coats/)
 - [7 Exceptionally Chic and Colourful Statement Coats...](https://fashion.allwomenstalk.com/exceptionally-chic-and-colourful-statement-coats-to-wear-this-winter/)
 

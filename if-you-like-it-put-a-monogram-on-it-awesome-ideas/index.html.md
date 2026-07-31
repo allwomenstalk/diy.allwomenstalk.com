@@ -242,16 +242,16 @@ Do you see something you want? Thinking about jumping on the monogram bandwagon 
 
 ## Related Posts
 
-- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
-- [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
-- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
 - [pringles can height](https://diy.allwomenstalk.com/awesome-things-you-can-make-using-old-pringles-cans/)
 - [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
 - [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
 - [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
+- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
+- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
+- [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

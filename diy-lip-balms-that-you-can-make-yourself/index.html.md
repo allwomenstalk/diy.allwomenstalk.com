@@ -74,14 +74,14 @@ Go ahead and discard your store-bought tubes or tubs. Get yourself some beeswax 
 
 ## Related Posts
 
-- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
-- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
+- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
 - [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
 - [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
-- [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
-- [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
 - [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
-- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
+- [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
+- [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
+- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
 - [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
 - [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)

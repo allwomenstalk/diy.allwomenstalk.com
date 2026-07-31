@@ -92,16 +92,16 @@ Got other fun **party hat** ideas? We'd love to hear them. Please share via the 
 
 ## Related Posts
 
-- [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
-- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
-- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
 - [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
-- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
+- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
+- [halloween scary things to do](https://lifestyle.allwomenstalk.com/awesome-ways-to-make-your-house-scary-for-halloween/)
+- [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
+- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
 - [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
 - [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
 - [healthy halloween treats to hand out](https://food.allwomenstalk.com/best-healthy-halloween-treats-for-kids-to-hand-out-this-year/)
-- [halloween scary things to do](https://lifestyle.allwomenstalk.com/awesome-ways-to-make-your-house-scary-for-halloween/)
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
 - [5 Awesome Spooky Party Themes ...](https://twilight.allwomenstalk.com/5-awesome-spooky-party-themes/)
 - [7 Cute Cupcake Decorations ...](https://cooking.allwomenstalk.com/7-cute-cupcake-decorations/)
 

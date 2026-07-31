@@ -68,16 +68,16 @@ Don't these DIY peony projects make you think of all things spring? I cannot wai
 
 ## Related Posts
 
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 - [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
 - [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
 - [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
-- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
+- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
 - [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [8 Floral and Lovely Spring Projects ...](https://allwomenstalk.com/8-floral-and-lovely-spring-projects/)
 - [8 Pretty DIY Peplum Projects ...](https://fashion.allwomenstalk.com/pretty-diy-peplum-projects/)
 

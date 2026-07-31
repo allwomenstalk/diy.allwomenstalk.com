@@ -73,16 +73,16 @@ I hope you find a hobby you like! Have fun and do it frequently...you deserve it
 
 ## Related Posts
 
-- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
-- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
-- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
 - [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
 - [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
+- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
+- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

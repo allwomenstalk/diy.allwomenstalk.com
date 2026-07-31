@@ -83,16 +83,16 @@ We'd love to hear other **DIY closet organizer** ideas. Have you got some? Have 
 
 ## Related Posts
 
-- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
 - [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
-- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
-- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
+- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

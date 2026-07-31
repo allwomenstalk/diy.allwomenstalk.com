@@ -68,16 +68,16 @@ These fun little projects will help you find a use for some of those odds and en
 
 ## Related Posts
 
+- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
+- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
 - [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
-- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
-- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
-- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
 - [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
+- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [8 Ways to Use up Fabric Scraps …](https://allwomenstalk.com/ways-to-use-up-fabric-scraps/)
 

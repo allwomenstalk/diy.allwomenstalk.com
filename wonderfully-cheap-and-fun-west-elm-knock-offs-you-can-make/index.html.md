@@ -84,16 +84,16 @@ Have you ever made something inspired by a West Elm product? Tell us about it!
 
 ## Related Posts
 
-- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
-- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
 - [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
+- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
 - [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
 - [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
 - [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
+- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Ways to Make Cheap Gifts Look Chic ...](https://allwomenstalk.com/7-ways-to-make-cheap-gifts-look-chic/)
 

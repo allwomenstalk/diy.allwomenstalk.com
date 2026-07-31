@@ -56,16 +56,16 @@ When you are redecorating a room, there are so many different things to consider
 
 ## Related Posts
 
+- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
+- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
+- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
 - [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
-- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
+- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
 - [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
 - [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
-- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
-- [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
-- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
-- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
-- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

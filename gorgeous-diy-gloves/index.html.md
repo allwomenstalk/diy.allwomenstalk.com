@@ -94,16 +94,16 @@ Now you'll have no reason to go out in the cold without hand protection; these p
 
 ## Related Posts
 
+- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
 - [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
-- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
 - [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
+- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
+- [make a coat rack](https://diy.allwomenstalk.com/creative-diy-coat-racks/)
 - [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
 - [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [10 Lovely Lace Fashion DIY Projects ...](https://fashion.allwomenstalk.com/lovely-lace-fashion-diy-projects/)
 - [12 Gorgeous DIY Lace Crafts ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
 

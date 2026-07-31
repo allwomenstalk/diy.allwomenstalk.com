@@ -164,16 +164,16 @@ What does your favorite lamp look like? I hope that you've found some great idea
 
 ## Related Posts
 
-- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
-- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
+- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
+- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
+- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
+- [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
 - [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
 - [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
 - [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
-- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
-- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
+- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
+- [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
 - [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
-- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
-- [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [10 Insanely Cool DIY Chandeliers ...](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)
 

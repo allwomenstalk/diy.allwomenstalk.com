@@ -86,16 +86,16 @@ Hope you enjoyed this list of D**IY capes** to sew! Make one or two for you and 
 
 ## Related Posts
 
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
 - [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
+- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
 - [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
-- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
-- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 - [10 Beautiful Ways to Upcycle Bottle Caps ...](https://lifestyle.allwomenstalk.com/beautiful-ways-to-upcycle-bottle-caps/)
 - [13 Lovely DIY Headbands to Make ...](https://hair.allwomenstalk.com/lovely-diy-headbands-to-make/)
 

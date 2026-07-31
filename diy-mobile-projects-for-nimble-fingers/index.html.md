@@ -243,16 +243,16 @@ Are you inspired to let your crafty fingers to work on your own DIY mobile? Whic
 
 ## Related Posts
 
-- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
-- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
 - [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
 - [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
-- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
 - [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
+- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
 - [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

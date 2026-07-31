@@ -91,15 +91,15 @@ I hope you haven't gone batty over these **DIY bat Halloween crafts**! Which of 
 ## Related Posts
 
 - [halloween owl decorations](https://diy.allwomenstalk.com/awesome-diy-halloween-owl-crafts/)
-- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
 - [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
-- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
-- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
+- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
+- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [10 Awesome Owl Craft Projects ...](https://lifestyle.allwomenstalk.com/awesome-owl-craft-projects/)
 

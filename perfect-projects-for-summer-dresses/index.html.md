@@ -64,14 +64,14 @@ There are so many gorgeous dress patterns that it was tough to pick out just a f
 
 - [outdoor concert what to wear](https://fashion.allwomenstalk.com/cool-accessories-to-wear-to-a-summer-concert/)
 - [sizzle dress](https://fashion.allwomenstalk.com/ways-to-wear-red-and-sizzle-your-way-in-to-this-summer/)
+- [types of sunglasses](https://streetstyle.allwomenstalk.com/types-of-sunglasses-that-are-perfect-for-any-streetstyle-look/)
+- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
+- [spring dresses teen](https://teen.allwomenstalk.com/spring-dresses-for-teens-to-soak-up-the-sun/)
 - [festivals looks](https://streetstyle.allwomenstalk.com/fashionable-real-girl-looks-from-summer-music-festivals/)
 - [wear camo day](https://fashion.allwomenstalk.com/fabulous-ways-to-wear-camo-this-summer/)
-- [spring dresses teen](https://teen.allwomenstalk.com/spring-dresses-for-teens-to-soak-up-the-sun/)
-- [types of sunglasses](https://streetstyle.allwomenstalk.com/types-of-sunglasses-that-are-perfect-for-any-streetstyle-look/)
 - [adidas cropped leggings](https://fitness.allwomenstalk.com/the-best-summer-running-tights/)
-- [pinnafore](https://fashion.allwomenstalk.com/playful-pinafores-to-wear-this-season/)
-- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
 - [eco fashion dress](https://fashion.allwomenstalk.com/eco-friendly-summer-dresses-to-stock-up-on/)
+- [pinnafore](https://fashion.allwomenstalk.com/playful-pinafores-to-wear-this-season/)
 - [7 Gorgeous Wrap Dresses for Summer ...](https://fashion.allwomenstalk.com/gorgeous-wrap-dresses-for-summer/)
 - [12 Must Own Summer Dresses ...](https://allwomenstalk.com/twelve-must-own-summer-dresses/)
 

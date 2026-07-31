@@ -84,16 +84,16 @@ Whether you're looking for a** DIY owl craft** to wear, hang up, or scrapbook, I
 
 ## Related Posts
 
+- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
+- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
+- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
 - [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
 - [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
-- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
-- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
-- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
-- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

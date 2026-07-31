@@ -56,16 +56,16 @@ I hope you enjoyed some of these fantastic fashion crafts for teens! Remember, y
 
 ## Related Posts
 
-- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
-- [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
-- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
-- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
-- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
-- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
+- [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
+- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
+- [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
+- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
 - [7 Ways to Learn New Craft Skills ...](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

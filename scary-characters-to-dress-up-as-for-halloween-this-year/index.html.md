@@ -55,15 +55,15 @@ These scary characters to dress up as for Halloween are party hits. If you want 
 ## Related Posts
 
 - [halloween scary things to do](https://lifestyle.allwomenstalk.com/awesome-ways-to-make-your-house-scary-for-halloween/)
-- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
-- [creepy food for halloween](https://food.allwomenstalk.com/creepy-snacks-to-serve-at-your-halloween-party/)
-- [tim burton animated movies in order](https://movies.allwomenstalk.com/tim-burton-movies-to-get-you-in-the-halloween-spirit/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
-- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
 - [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
-- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
-- [healthy halloween treats to hand out](https://food.allwomenstalk.com/best-healthy-halloween-treats-for-kids-to-hand-out-this-year/)
 - [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
+- [healthy halloween treats to hand out](https://food.allwomenstalk.com/best-healthy-halloween-treats-for-kids-to-hand-out-this-year/)
+- [tim burton animated movies in order](https://movies.allwomenstalk.com/tim-burton-movies-to-get-you-in-the-halloween-spirit/)
+- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
+- [creepy food for halloween](https://food.allwomenstalk.com/creepy-snacks-to-serve-at-your-halloween-party/)
+- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
 - [7 Celebrity Horror Outfits ...](https://allwomenstalk.com/7-celebrity-horror-outfits/)
 - [7 Clever Halloween Costumes for Boys ...](https://allwomenstalk.com/7-clever-halloween-costumes-for-boys/)
 

@@ -86,14 +86,14 @@ How gorgeous are these DIY giant wall clocks? If you don't want the idea of list
 
 - [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
 - [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
+- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
 - [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
 - [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
-- [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
-- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
-- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
 - [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
-- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
+- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
+- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
 - [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
+- [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
 - [7 Quirky Wall Decorations ...](https://allwomenstalk.com/quirky-wall-decorations/)
 - [10 Insanely Cool DIY Chandeliers ...](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)
 

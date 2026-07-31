@@ -56,16 +56,16 @@ I hope you will consider reusing your crib instead of junking it. Your child’s
 
 ## Related Posts
 
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
 - [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [8 Ways to Revamp Old Furniture ...](https://allwomenstalk.com/8-ways-to-revamp-old-furniture/)
 - [10 Incredible Ways to Upcycle a Bicycle ...](https://lifestyle.allwomenstalk.com/incredible-ways-to-upcycle-a-bicycle/)
 

@@ -3,7 +3,7 @@ title: "11 Genius DIY Mud Room or Entryway Projects ..."
 description: "Smiling Mud Room; Welded Console; Hanging Branch; Mantel and Hooks; Slim Shelf; More ..."
 url: "https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 11 Genius DIY Mud Room or Entryway Projects ...
@@ -100,16 +100,16 @@ I hope that these **DIY mud room or entryway projects** inspire you to start spr
 
 ## Related Posts
 
-- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
-- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
 - [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
-- [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
-- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
+- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
 - [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
+- [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
+- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

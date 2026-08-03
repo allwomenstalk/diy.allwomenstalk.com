@@ -3,7 +3,7 @@ title: "Spend Snowy Days Knitting with These Pretty Patterns ..."
 description: "Elegant Ribbon Lace Scarf with Beads; Reversible Cabled Blanket; Downton Abbey Hat; Honeylicious Sweater; Easy-Peasy Leg Warmers; More ..."
 url: "https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Spend Snowy Days Knitting with These Pretty Patterns ...
@@ -146,16 +146,16 @@ So, what have you got on your needles?
 
 ## Related Posts
 
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
 - [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
 - [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
 - [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
 - [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
-- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
 - [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
 - [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
 - [9 More Adorable Pet Crafts ...](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
 - [12 Sweet DIY Snowflake Craft Projects ...](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 

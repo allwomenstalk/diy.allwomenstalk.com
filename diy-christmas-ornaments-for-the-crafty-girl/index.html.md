@@ -3,7 +3,7 @@ title: "DIY Christmas Ornaments for the Crafty Girl ..."
 description: "Pimped up Styrofoam Balls; Christmas Messages; Blingy Baubles; Designer Inspired; This Grinch Didn't Steal Crhistmas; More ..."
 url: "https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # DIY Christmas Ornaments for the Crafty Girl ...
@@ -178,16 +178,16 @@ How to: [thehomelessfinch.blogspot.com.au](https://goo.gl/QUJgfv)
 
 ## Related Posts
 
-- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
 - [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 

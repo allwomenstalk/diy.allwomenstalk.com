@@ -3,7 +3,7 @@ title: "Death Star DIYs for Diehard Star Wars Fans ..."
 description: "Concrete Death Star Planters and Candle Mold; Death Star Paper Lantern; Death Star LED Art; Death Star Disco Ball; Death Star Ring; More ..."
 url: "https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Death Star DIYs for Diehard Star Wars Fans ...
@@ -63,15 +63,15 @@ Although you will be crafting the Empire's good-for-nothing space station, we le
 ## Related Posts
 
 - [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
-- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
-- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
-- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
-- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
-- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
-- [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
 - [coffee filter peonies](https://diy.allwomenstalk.com/diy-peony-projects-for-women-who-love-floral/)
 - [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
+- [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
+- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
+- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
+- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
+- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
 - [knick-knacks](https://lifestyle.allwomenstalk.com/cute-knick-knacks-that-double-as-conversation-starters/)
+- [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

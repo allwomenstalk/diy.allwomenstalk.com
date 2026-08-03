@@ -3,7 +3,7 @@ title: "Nesting Doll DIY Projects to Keep You Occupied ..."
 description: "Painted Plain Dolls; Matryoshka Plaque; Nesting Dolls Ornaments; Pompom Russian Dolls; Nesting Doll Eggs; More ..."
 url: "https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Nesting Doll DIY Projects to Keep You Occupied ...
@@ -67,14 +67,14 @@ I am off to buy blank nesting dolls. Hopefully, I can get them locally. How abou
 ## Related Posts
 
 - [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
-- [coffee filter peonies](https://diy.allwomenstalk.com/diy-peony-projects-for-women-who-love-floral/)
 - [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
-- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
 - [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
-- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
 - [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
-- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
+- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
+- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
 - [knick-knacks](https://lifestyle.allwomenstalk.com/cute-knick-knacks-that-double-as-conversation-starters/)
+- [coffee filter peonies](https://diy.allwomenstalk.com/diy-peony-projects-for-women-who-love-floral/)
+- [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
 - [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [12 Fantastic DIY Projects for Easter ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-for-easter/)

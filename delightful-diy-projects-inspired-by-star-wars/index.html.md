@@ -3,7 +3,7 @@ title: "Delightful DIY Projects Inspired by Star Wars ..."
 description: "Obi Wan Kenobi Robes; R2D2 Apron; Jabba the Hut Wind Chimes; Lego Specimen Art; No-sew Ewok Dog Costume; More ..."
 url: "https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Delightful DIY Projects Inspired by Star Wars ...
@@ -68,16 +68,16 @@ Don't forget, give these to the recipients with the words, May the Force be With
 
 ## Related Posts
 
-- [Video Guide to DIY 🥄Cookies in a Jar ...](https://diy.allwomenstalk.com/cookies-in-a-jar-recipes/)
-- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
-- [Video Guide for How to Make a DIY Pamper Me Jar .....](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-jar/)
-- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
-- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
-- [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
+- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
 - [valentine's day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
 - [Video Guide to Making Inexpensive DIY Gift Jars .....](https://diy.allwomenstalk.com/how-to-make-a-diy-gift-jar/)
+- [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
+- [Video Guide for How to Make a DIY Pamper Me Jar .....](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-jar/)
 - [How to Make a Designer Bouquet for under $30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
-- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
+- [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
+- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
+- [Video Guide to DIY 🥄Cookies in a Jar ...](https://diy.allwomenstalk.com/cookies-in-a-jar-recipes/)
+- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 - [12 Fantastic DIY Projects for Easter ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-for-easter/)
 

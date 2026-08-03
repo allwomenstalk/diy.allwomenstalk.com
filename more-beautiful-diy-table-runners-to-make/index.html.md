@@ -3,7 +3,7 @@ title: "11 More Beautiful DIY Table Runners to Make ..."
 description: "Hanky; Bias Tape; Rainbow Felt; Quilted Carrot; Painted Stripes; More ..."
 url: "https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 11 More Beautiful DIY Table Runners to Make ...
@@ -102,16 +102,16 @@ Got other ideas on how to beautify a dinner or buffet table? Share, share!
 
 ## Related Posts
 
+- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
+- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
-- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
-- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 - [7 Fabulous Ideas to Dress up Your Dinner Table ...](https://cooking.allwomenstalk.com/7-fabulous-ideas-to-dress-up-your-dinner-table/)
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
 

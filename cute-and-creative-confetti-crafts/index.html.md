@@ -3,7 +3,7 @@ title: "10 Cute and Creative Confetti Crafts ..."
 description: "Earrings; Plates; Cards; Tumblers; Linen Napkins; More ..."
 url: "https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/"
 category: "diy"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 10 Cute and Creative Confetti Crafts ...
@@ -90,16 +90,16 @@ Hope you found this list of **DIY confetti crafts** useful! For your next party,
 
 ## Related Posts
 
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
-- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
 - [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
-- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
-- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
 - [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
+- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
+- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [Top 10 Crafts for Your Child ...](https://allwomenstalk.com/top-10-crafts-for-your-child/)
 

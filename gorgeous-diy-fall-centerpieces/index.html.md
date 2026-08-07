@@ -3,7 +3,7 @@ title: "12 Gorgeous DIY Fall Centerpieces ..."
 description: "Lantern; Owl; Foam Cones; Green; Jars; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/"
 category: "diy"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
 # 12 Gorgeous DIY Fall Centerpieces ...
@@ -110,16 +110,16 @@ Hope you fine craft inspiration from this list of** DIY fall centerpieces**! Tel
 
 ## Related Posts
 
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Decorating Ideas for Fall ...](https://lifestyle.allwomenstalk.com/decorating-ideas-for-fall/)
 

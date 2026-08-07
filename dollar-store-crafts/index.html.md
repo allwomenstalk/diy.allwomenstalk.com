@@ -3,7 +3,7 @@ title: "7 Delightful Dollar Store Crafts to Try Now ..."
 description: "Cupcake Stand; Cheap and Easy Focal Point Mirror; Candy Dish; Floral Centerpiece; Stone Shower; More ..."
 url: "https://diy.allwomenstalk.com/dollar-store-crafts/"
 category: "diy"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
 # 7 Delightful Dollar Store Crafts to Try Now ...
@@ -66,16 +66,16 @@ Now that you’ve seen these awesome dollar store crafts, it is time to head on 
 
 ## Related Posts
 
-- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
-- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
-- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
-- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
-- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
-- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
-- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
-- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
 - [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
+- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
+- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
+- [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
+- [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
 

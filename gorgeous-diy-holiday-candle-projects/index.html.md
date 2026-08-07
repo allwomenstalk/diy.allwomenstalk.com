@@ -3,7 +3,7 @@ title: "10+ Gorgeous DIY Holiday Candle Projects ..."
 description: "Junk Mail Snowflakes; Hanging Shakers; Tin; Crocheted; Mantelscape; More ..."
 url: "https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/"
 category: "diy"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
 # 10+ Gorgeous DIY Holiday Candle Projects ...
@@ -88,16 +88,16 @@ Aren't these **DIY holiday candle projects** delightful? They're so fun, I say y
 
 ## Related Posts
 
-- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
 - [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
 - [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
-- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
+- [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
+- [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

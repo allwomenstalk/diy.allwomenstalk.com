@@ -1,50 +1,67 @@
 ---
-title: "9 Adorable and Stylish Fabric Bracelets to Make ..."
+title: "9 Adorable DIY Fabric Bracelets to Make with Fabric Scraps"
 description: "Yo-yo; Fabric Rope; Braided; Bejeweled; Simple Bangle Wrap; More ..."
 url: "https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/"
 category: "diy"
-last_updated: "2026-08-03"
+last_updated: "2026-08-07"
 ---
 
-# 9 Adorable and Stylish Fabric Bracelets to Make ...
+# 9 Adorable DIY Fabric Bracelets to Make with Fabric Scraps
 
-If you have a scary pile of fabric scraps somewhere in your home, we are here to offer assistance in the form of fabric bracelets to make. These DIY accessories will prove useful in two ways: they will amp up your style and help you make a dent on your fabric scrap stash. Hope you like these pretty fabric bracelets!
+If you have a scary pile of fabric scraps somewhere in your home, we are here to offer assistance in the form of stylish fabric bracelets to make. Learning how to make a cloth bracelet is one of the most rewarding craft projects. These DIY accessories will prove useful in two ways: they will amp up your style and help you make a dent on your fabric scrap stash. Explore our favorite ideas on the [DIY AllWomenStalk](https://diy.allwomenstalk.com/) craft section and start turning left-over textiles into cute diy bracelets! Hope you like these pretty fabric bracelets!
 
 ## 1. Yo-yo
 
 ![Yo-yo](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/1_yo-yo_320x214.jpg)
 
-Yo-yos are small flower-like things and they can be used in making DIY fabric bracelets. They are so easy and fun to make. After you construct the yo-yos, you simply attach them to a thin bangle, glue a strip of felt to the underside, let dry, and you're done.
+Yo-yos are small flower-like things made from circular fabric cuts, and they can be used in making charming DIY fabric bracelets. They are so easy and fun to make. After you construct the yo-yos, you simply attach them to a thin bangle, glue a strip of felt to the underside for comfort, let dry, and you're done. For a detailed step-by-step guide, check out [Always Expect Moore](https://alwaysexpectmoore.com/2011/07/yo-yo-bangle-bracelet.html).
 
 ## 2. Fabric Rope
 
 ![Fabric Rope](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/2_fabric-rope_600x600.jpg)
 
-The raw edges add wonderful visual appeal to this lovely fabric bracelet. Making this is a bit like forming a weave, with the strips of fabric used as the main material. Finish off with a fancy button or bead for closure.
+The raw edges add wonderful visual appeal to this lovely fabric bracelet. Making this is a bit like forming a weave, with the strips of fabric used as the main material. Finish off with a fancy button or bead for closure. If you enjoy textured accessories like this, you might also like the [braided fabric bracelet](#3) technique.
+
+**Essential DIY Bracelet Materials to Have on Hand:**
+
+- Assorted cotton fabric scraps or colorful fabric strips
+
+- Strong fabric glue or hot glue gun
+
+- Jewelry findings (lobster clasps, ribbon crimps, toggle locks)
+
+- Decorative accents like beads, faux pearls, or loose cabochons
 
 ## 3. Braided
 
 ![Braided](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/3_braided_600x439.jpg)
 
-This is one of the more popular ways to make bracelets out of fabric. What you do is use three strips of fabric with one end secured with a ribbon crimp. You then braid these strips and secure the other end with another ribbon crimp. Attach a lobster clasp and that's it.
+This is one of the more popular ways to make bracelets out of fabric. What you do is use three strips of fabric with one end secured with a ribbon crimp. You then braid these strips and secure the other end with another ribbon crimp. Attach a lobster clasp and that's it. Woven cloth bracelets like this make wonderful gifts for friends.
 
 ## 4. Bejeweled
 
 ![Bejeweled](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/4_bejeweled_550x383.jpg)
 
-This lovely DIY accessory is Anthro-inspired. The original piece costs more than a hundred bucks. The amount is certainly insane, especially if you are the crafty kind. Because why buy when you can DIY, right? With this particular fabric bracelet, you will simply construct the band out of fabric and then add beads and stones. You can do this in so many colors!
+This lovely DIY accessory is Anthro-inspired. The original piece costs more than a hundred bucks. The amount is certainly insane, especially if you are the crafty kind. Because why buy when you can DIY, right? With this particular material bracelet, you will simply construct the band out of fabric and then add beads and stones. You can do this in so many colors! See an amazing example tutorial at [Flamingo Toes](https://flamingotoes.com/anthro-knockoff-fori-bracelet/).
 
 ## 5. Simple Bangle Wrap
 
 ![Simple Bangle Wrap](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/5_simple-bangle-wrap_600x250.jpg)
 
-This is another easy accessory that you can DIY using fabric scraps. Basically, what you do is cut a strip of fabric and wrap it around a bangle. This bangle can be the round kind or something with flat sides; any type will do. To secure the fabric strips, use glue.
+This is another easy accessory that you can DIY using fabric scraps. Basically, what you do is cut a strip of fabric and wrap it around a bangle. This bangle can be the round kind or something with flat sides; any type will do. To secure the fabric strips, use glue. If you like structured wrapped pieces, compare it with the [yo-yo bangle](#1) style.
+
+| Bracelet Style | Key Materials | Skill Level |
+| --- | --- | --- |
+| Yo-Yo Bangle | Fabric circles, felt strip, thin bangle | Beginner |
+| Braided Scrap | Cotton strips, ribbon crimps, lobster clasp | Beginner |
+| Bejeweled Cuff | Fabric band, sparkling beads, fabric glue | Intermediate |
+| Cabochon Velvet | Velvet strip, loose cabochons, strong glue | Beginner |
 
 ## 6. Rose Cuff
 
 ![Rose Cuff](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/6_rose-cuff_600x276.jpg)
 
-How pretty! Not only will this be great as an everyday bracelet, I think this will also be a lovely accessory for bridesmaids. To make this, you will first have to assemble the base. It can be made of felt or a white strip of fabric. You then attach fabric flowers, embellishing the center with faux pearls as you go along. You can get these fabric flowers from the dollar store.
+How pretty! Not only will this be great as an everyday bracelet, I think this will also be a lovely accessory for bridesmaids. To make this, you will first have to assemble the base. It can be made of felt or a white strip of fabric. You then attach fabric flowers, embellishing the center with faux pearls as you go along. You can get these fabric flowers from craft suppliers or dollar stores.
 
 ## 7. Printed Bow
 
@@ -56,7 +73,15 @@ This is a DIY fabric bracelet tutorial that I cooked up myself. These bow bracel
 
 ![Cabochon Velvet](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/diy/2013/05/8_cabochon-velvet_600x450.jpg)
 
-Oh, hey, another Antropologie knockoff! And so pretty, too! This is so easy to make, I bet you'll end up DIYing a batch to give to your girl friends. This is also a perfect way to craft with that bowl of loose cabochons gathering dust on your dresser.
+Oh, hey, another Anthropologie knockoff! And so pretty, too! This is so easy to make, I bet you'll end up DIYing a batch to give to your friends. This is also a perfect way to craft with that bowl of loose cabochons gathering dust on your dresser. Explore more craft ideas at [DIY & Crafts](https://www.diyncrafts.com/).
+
+**Quick Tips for Working with Velvet & Cabochons:**
+
+- Use clear jewelry glue for invisible holding power.
+
+- Allow cabochons to set completely for 24 hours before wearing.
+
+- Pair rich velvet textures with vintage-style toggle clasps, as seen in the [wrap-around style](#9).
 
 ## 9. Wrap-around
 
@@ -64,22 +89,20 @@ Oh, hey, another Antropologie knockoff! And so pretty, too! This is so easy to m
 
 This is a darling DIY fabric bracelet that you can make using a strip of fabric and a toggle lock. That heart thing you see is the toggle lock; they come in many designs and for this particular DIY, you will want to pick something that has quite the chic appeal.
 
-Ready to make your fabric bracelets now? Go ahead, face that pile of fabric scraps with crafty intent and DIY your heart out.
-
-**Sources:** [alwaysexpectmoore.com](https://alwaysexpectmoore.com/2011/07/yo-yo-bangle-bracelet.html), [deiaies.blogspot.com.es](http://deiaies.blogspot.com/2012/03/diy-rope-bracelet.html), [linesacross.com](http://www.linesacross.com/2012/06/braided-fabric-bracelets.html/), [flamingotoes.com](https://flamingotoes.com/anthro-knockoff-fori-bracelet/), [typennington.com](http://typennington.com/diy-design-fabric-jewelry/), [rufflesandstuff.com](http://www.rufflesandstuff.com/2010/04/rose-cuff-bracelet.html), [boredandcrafty.com](https://www.diyncrafts.com/), [flamingotoes.com](https://flamingotoes.com/anthro-cabochon-velvet-bracelet-knockoff/), [handmadebyhilani.blogspot.com](http://handmadebyhilani.blogspot.com/2012/04/fabric-bracelet-tutorial-for-beginners.html)
+Ready to make your fabric bracelets now? Go ahead, face that pile of fabric scraps with crafty intent and DIY your heart out with these fun bracelets to make!
 
 ## Related Posts
 
-- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
-- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
-- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
 - [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
-- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
-- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
 - [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
+- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
+- [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
 - [A Fashionista's Style Guide to Wearing Bracelets ....](https://allwomenstalk.com/fashionistas-style-guide-to-wearing-bracelets/)
 - [9 Unbelievably Stylish Fashion Must-Haves to Wish ...](https://fashion.allwomenstalk.com/unbelievably-stylish-fashion-must-haves-to-wish-for/)
 

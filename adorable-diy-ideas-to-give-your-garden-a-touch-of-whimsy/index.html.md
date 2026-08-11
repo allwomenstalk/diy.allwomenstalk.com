@@ -3,7 +3,7 @@ title: "7 Adorable DIY Ideas to Give Your Garden a Touch of Whimsy ..."
 description: "Plant Succulents in a Cage; Turn Your Pots Fruity; Repurpose a Clock to Make a Birdhouse; Make a Teapot Garden Décor; Paint Some Rock Markers; More ..."
 url: "https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/"
 category: "diy"
-last_updated: "2026-08-07"
+last_updated: "2026-08-11"
 ---
 
 # 7 Adorable DIY Ideas to Give Your Garden a Touch of Whimsy ...
@@ -68,14 +68,14 @@ I do not have a green thumb. However, these DIY whimsical garden ideas are somew
 
 ## Related Posts
 
+- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
-- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
-- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
+- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
 - [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
-- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
-- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
+- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
+- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
 - [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
 - [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)

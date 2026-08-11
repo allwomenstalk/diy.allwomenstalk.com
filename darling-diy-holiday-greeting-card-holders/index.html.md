@@ -3,7 +3,7 @@ title: "9 Darling DIY Holiday Greeting Card Holders ..."
 description: "Ribbon; Wood Pallet + Twine Star; Wire Frame; Patchwork Tree; Painted Canvas; More ..."
 url: "https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/"
 category: "diy"
-last_updated: "2026-08-07"
+last_updated: "2026-08-11"
 ---
 
 # 9 Darling DIY Holiday Greeting Card Holders ...
@@ -82,16 +82,16 @@ Top Photo Credit: [weheartit](https://weheartit.com/entry/5559845/via/lisamanuel
 
 ## Related Posts
 
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
 - [4 DIY Wedding Card Ideas ...](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
 - [6 Ideas for Making Lovely Homemade Cards ...](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 

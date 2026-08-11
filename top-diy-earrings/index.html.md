@@ -3,7 +3,7 @@ title: "Top 10 DIY Earrings ..."
 description: "Swarovski Bow Crystal Earrings; Dolce & Gabbana Pasta Earrings; Hoop Earrings; Chandelier Earrings; Dream Catcher Earrings; More ..."
 url: "https://diy.allwomenstalk.com/top-diy-earrings/"
 category: "diy"
-last_updated: "2026-08-07"
+last_updated: "2026-08-11"
 ---
 
 # Top 10 DIY Earrings ...
@@ -63,14 +63,14 @@ Did you like my list of DIY earrings? Which ones do you plan on doing this weeke
 ## Related Posts
 
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
 - [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [10 Insanely Cool DIY Chandeliers ...](https://lifestyle.allwomenstalk.com/insanely-cool-diy-chandeliers/)

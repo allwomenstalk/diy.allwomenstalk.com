@@ -82,16 +82,16 @@ For your next party or for your dream wedding, revisit these DIY floral centerpi
 
 ## Related Posts
 
-- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
-- [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
-- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
-- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
-- [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
-- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
-- [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
-- [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
 - [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
 - [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
+- [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
+- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
+- [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
+- [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
+- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
+- [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
+- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
+- [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Ideas for Table Centerpieces ...](https://lifestyle.allwomenstalk.com/ideas-for-table-centerpieces/)
 

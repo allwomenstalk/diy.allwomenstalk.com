@@ -219,16 +219,16 @@ Ready to raid your fabric stash and get crafting?
 
 ## Related Posts
 
-- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
-- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
-- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
-- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
-- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
 - [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
-- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
 - [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
+- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
+- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
+- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
 - [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
+- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
+- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
+- [embroidery techniques](https://diy.allwomenstalk.com/embroidery-patterns-you-are-going-to-love/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 - [13 Terrific DIY Trivets to Make ...](https://lifestyle.allwomenstalk.com/terrific-diy-trivets-to-make/)
 

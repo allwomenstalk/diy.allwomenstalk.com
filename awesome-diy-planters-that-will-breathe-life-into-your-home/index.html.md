@@ -58,16 +58,16 @@ All of these planters would look great in your home, give it a try!
 
 ## Related Posts
 
-- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
 - [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
-- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
-- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
-- [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
+- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
 - [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)
-- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
+- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
+- [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
 - [5 Awesome Ideas on Decorating with Plants ...](https://gardening.allwomenstalk.com/5-awesome-ideas-on-decorating-with-plants/)
 - [7 Spring Plants to Grow in Your Garden ...](https://gardening.allwomenstalk.com/spring-plants-to-grow-in-your-garden/)
 

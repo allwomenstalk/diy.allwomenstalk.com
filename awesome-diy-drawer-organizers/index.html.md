@@ -78,16 +78,16 @@ I hope that these **DIY drawer organizers** inspired you to do smart cleaning fo
 
 ## Related Posts
 
-- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
 - [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
 - [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

@@ -134,16 +134,16 @@ Top Image Source: _theberry.com_
 
 ## Related Posts
 
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
-- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
-- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
 - [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
+- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

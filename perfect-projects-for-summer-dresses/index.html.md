@@ -62,16 +62,16 @@ There are so many gorgeous dress patterns that it was tough to pick out just a f
 
 ## Related Posts
 
-- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
-- [adidas cropped leggings](https://fitness.allwomenstalk.com/the-best-summer-running-tights/)
+- [eco fashion dress](https://fashion.allwomenstalk.com/eco-friendly-summer-dresses-to-stock-up-on/)
+- [outdoor concert what to wear](https://fashion.allwomenstalk.com/cool-accessories-to-wear-to-a-summer-concert/)
 - [sizzle dress](https://fashion.allwomenstalk.com/ways-to-wear-red-and-sizzle-your-way-in-to-this-summer/)
 - [festivals looks](https://streetstyle.allwomenstalk.com/fashionable-real-girl-looks-from-summer-music-festivals/)
-- [types of sunglasses](https://streetstyle.allwomenstalk.com/types-of-sunglasses-that-are-perfect-for-any-streetstyle-look/)
-- [eco fashion dress](https://fashion.allwomenstalk.com/eco-friendly-summer-dresses-to-stock-up-on/)
-- [wear camo day](https://fashion.allwomenstalk.com/fabulous-ways-to-wear-camo-this-summer/)
 - [spring dresses teen](https://teen.allwomenstalk.com/spring-dresses-for-teens-to-soak-up-the-sun/)
+- [types of sunglasses](https://streetstyle.allwomenstalk.com/types-of-sunglasses-that-are-perfect-for-any-streetstyle-look/)
+- [wear camo day](https://fashion.allwomenstalk.com/fabulous-ways-to-wear-camo-this-summer/)
+- [what to wear with a sundress](https://fashion.allwomenstalk.com/lovely-reasons-to-wear-sundresses-this-spring/)
+- [adidas cropped leggings](https://fitness.allwomenstalk.com/the-best-summer-running-tights/)
 - [pinnafore](https://fashion.allwomenstalk.com/playful-pinafores-to-wear-this-season/)
-- [outdoor concert what to wear](https://fashion.allwomenstalk.com/cool-accessories-to-wear-to-a-summer-concert/)
 - [7 Gorgeous Wrap Dresses for Summer ...](https://fashion.allwomenstalk.com/gorgeous-wrap-dresses-for-summer/)
 - [12 Must Own Summer Dresses ...](https://allwomenstalk.com/twelve-must-own-summer-dresses/)
 

@@ -269,15 +269,15 @@ Do you have tile in your kitchen? One of my next projects is to tile my floor. W
 ## Related Posts
 
 - [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
-- [maximize space in small bathroom](https://lifestyle.allwomenstalk.com/ways-to-maximize-space-in-a-small-bathroom/)
-- [diy hanging photo display](https://diy.allwomenstalk.com/perfect-ideas-for-photo-display/)
 - [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
-- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
+- [diy hanging photo display](https://diy.allwomenstalk.com/perfect-ideas-for-photo-display/)
+- [sw 6452](https://diy.allwomenstalk.com/awesome-paint-color-palettes-to-inspire-your-next-project/)
 - [fall bushel basket ideas](https://inspiration.allwomenstalk.com/fabulous-fall-decorating-ideas/)
 - [home industrial style](https://diy.allwomenstalk.com/stunning-examples-of-industrial-style-homes/)
+- [maximize space in small bathroom](https://lifestyle.allwomenstalk.com/ways-to-maximize-space-in-a-small-bathroom/)
+- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
 - [awesome above ground pools](https://gardening.allwomenstalk.com/stunning-backyard-pools-to-enhance-the-look-of-your-yard/)
 - [paris bedroom decor](https://diy.allwomenstalk.com/amazing-themes-for-your-bedroom/)
-- [sw 6452](https://diy.allwomenstalk.com/awesome-paint-color-palettes-to-inspire-your-next-project/)
 - [8 Colourful Kitchen Appliances ...](https://cooking.allwomenstalk.com/8-colourful-kitchen-appliances/)
 - [8 Simple Ways to Cheer up Your Kitchen ...](https://allwomenstalk.com/8-simple-ways-to-cheer-up-your-kitchen/)
 

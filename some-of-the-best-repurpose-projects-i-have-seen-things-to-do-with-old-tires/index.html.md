@@ -162,16 +162,16 @@ What do you think? Ingenious makeover or throw them on landfill?
 
 ## Related Posts
 
-- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
 - [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
 - [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
-- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
-- [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
 - [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
 - [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
+- [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
 - [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
+- [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
 - [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
+- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
 - [10 Ways to Repurpose Old Jeans ...](https://lifestyle.allwomenstalk.com/ways-to-repurpose-old-jeans/)
 - [10 Incredible Ways to Upcycle a Bicycle ...](https://lifestyle.allwomenstalk.com/incredible-ways-to-upcycle-a-bicycle/)
 

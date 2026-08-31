@@ -52,16 +52,16 @@ Have you tried this Pinterest trend yet? What would your DIY sharpie mug have on
 
 ## Related Posts
 
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
-- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
 - [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
 - [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
-- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
 - [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
 - [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
+- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

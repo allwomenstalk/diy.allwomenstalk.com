@@ -23,15 +23,15 @@ Have a Merry Christmas!
 ## Related Posts
 
 - [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
-- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
-- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
 - [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
-- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
 - [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
 - [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
+- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
 - [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
+- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
+- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
 - [Save Your Cash This Christmas with These DIY Gifts...](https://diy.allwomenstalk.com/save-your-cash-this-christmas-with-these-diy-gifts/)
 - [DIY Christmas Ornaments for the Crafty Girl ...](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 

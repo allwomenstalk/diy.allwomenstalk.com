@@ -160,14 +160,14 @@ Via [How to Make a Disco ...](https://tikkido.com/blog/disco-ball-pinata)
 
 ## Related Posts
 
-- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
-- [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
 - [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
+- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
 - [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
+- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
 - [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
 - [woodland onesies](https://diy.allwomenstalk.com/incredibly-cute-diy-baby-onesie-designs-that-you-can-print-yourself/)
-- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
-- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
+- [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
+- [penguin felt pattern](https://diy.allwomenstalk.com/super-cute-felt-animals-you-can-make/)
 - [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
 - [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
 - [12 Fantastic DIY Projects for Easter ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-for-easter/)

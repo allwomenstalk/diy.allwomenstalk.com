@@ -124,16 +124,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
-- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
-- [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
-- [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
-- [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
 - [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
-- [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
-- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
 - [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
+- [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
+- [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
+- [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
+- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
+- [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
 - [personalized father's day mancave gifts for dad](https://lifestyle.allwomenstalk.com/fathers-day-gifts-your-dad-will-love/)
+- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
+- [unusual mothers day gifts](https://lifestyle.allwomenstalk.com/unique-gift-ideas-for-mothers-day/)
 - [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 

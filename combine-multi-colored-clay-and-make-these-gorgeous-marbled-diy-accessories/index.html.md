@@ -64,16 +64,16 @@ I enjoyed knowing the different ways to create the marbled effect on polymer cla
 
 ## Related Posts
 
-- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
-- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
-- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
-- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
-- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
-- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
-- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
 - [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
-- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
+- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
+- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
+- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
+- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
 - [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
+- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
+- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [10 Beautiful Boho Accessories to Make ...](https://fashion.allwomenstalk.com/beautiful-boho-accessories-to-make/)
 - [12 Gorgeous DIY Lace Crafts ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
 

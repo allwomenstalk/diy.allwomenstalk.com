@@ -63,16 +63,16 @@ There are so many fantastic Easter egg projects out there and all I want is to d
 
 ## Related Posts
 
-- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
-- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
-- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
-- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
 - [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
-- [25 Decorative DIY Coasters You'll Be Proud to Show...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
 - [7 DIY Easter Projects That Are Fun and Festive ...](https://diy.allwomenstalk.com/diy-easter-projects-that-are-fun-and-festive/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
+- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
+- [25 Decorative DIY Coasters You'll Be Proud to Show...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 

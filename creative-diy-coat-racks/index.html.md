@@ -104,15 +104,15 @@ I hope you enjoyed this list of **DIY coat racks** as much as I loved making it!
 
 ## Related Posts
 
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
 - [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
 - [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
-- [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [diy valentines wreaths](https://diy.allwomenstalk.com/lovely-diy-valentines-day-wreaths/)
 - [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
 - [12 Cute Craft Room Decor Ideas ...](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)

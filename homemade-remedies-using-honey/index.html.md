@@ -216,16 +216,16 @@ As you can see, honey is a very special ingredient and has lots of uses. Even ju
 
 ## Related Posts
 
-- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
-- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
-- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
-- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
-- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
-- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
+- [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
+- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [bearable app](https://health.allwomenstalk.com/that-time-of-the-month-heres-how-to-make-your-period-more-bearable/)
 - [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
+- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
+- [exercises to help with period cramps](https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/)
+- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
+- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
+- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
 - [9 Unique Ways to Use Baking Soda ...](https://cooking.allwomenstalk.com/unique-ways-to-use-baking-soda/)
 - [30 Mind Blowing Natural Remedies That Will Give Yo...](https://hair.allwomenstalk.com/natural-remedies-to-make-your-hair-grow-faster/)
 

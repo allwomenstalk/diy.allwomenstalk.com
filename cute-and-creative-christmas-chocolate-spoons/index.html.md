@@ -20,16 +20,16 @@ So, as that little something to go along with your hot drink mix gift, attach a 
 
 ## Related Posts
 
-- [fritos candy](https://food.allwomenstalk.com/delicious-chocolate-fritos-candy/)
-- [homemade treats for valentine's day](https://food.allwomenstalk.com/simple-and-sweet-homemade-valentines-day-treats/)
-- [ranch pinwheels allrecipes](https://food.allwomenstalk.com/tasty-party-pinwheels-your-guests-will-enjoy/)
-- [cranberry hazelnut cookies](https://food.allwomenstalk.com/recipe-for-cranberry-and-hazelnut-cookies/)
 - [holiday creamers](https://food.allwomenstalk.com/homemade-holiday-coffee-creamers-for-edible-christmas-gifts/)
 - [diy party treats](https://food.allwomenstalk.com/quick-and-easy-diy-fall-snacks-and-party-treats/)
-- [no bake fruit cake recipe](https://food.allwomenstalk.com/no-bake-holiday-fruit-cake-recipe/)
-- [best microwave pralines](https://food.allwomenstalk.com/super-simple-microwaveable-pralines/)
+- [cranberry hazelnut cookies](https://food.allwomenstalk.com/recipe-for-cranberry-and-hazelnut-cookies/)
 - [mason jar cheesecakes](https://food.allwomenstalk.com/minute-protein-mason-jar-cheesecakes-for-girls-in-a-hurry/)
+- [no bake fruit cake recipe](https://food.allwomenstalk.com/no-bake-holiday-fruit-cake-recipe/)
+- [ranch pinwheels allrecipes](https://food.allwomenstalk.com/tasty-party-pinwheels-your-guests-will-enjoy/)
+- [fritos candy](https://food.allwomenstalk.com/delicious-chocolate-fritos-candy/)
+- [homemade treats for valentine's day](https://food.allwomenstalk.com/simple-and-sweet-homemade-valentines-day-treats/)
 - [british trifle](https://food.allwomenstalk.com/delicious-english-trifle-recipe/)
+- [best microwave pralines](https://food.allwomenstalk.com/super-simple-microwaveable-pralines/)
 - [7 Marvelously Delicious Cupcake Decorating Ideas f...](https://food.allwomenstalk.com/cupcake-decorating-ideas-for-the-holidays/)
 - [10 Scrumptiously Delicious Christmas Canapés for t...](https://food.allwomenstalk.com/scrumptiously-delicious-christmas-canapes-for-the-holidays/)
 

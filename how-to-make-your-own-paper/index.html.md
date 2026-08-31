@@ -63,16 +63,16 @@ Basically, just have fun and let those creative juices flow and feel good about 
 
 ## Related Posts
 
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
-- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
-- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
+- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
+- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
+- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
 - [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [5 Tips on Making Your Own Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-bird-feeder/)
 

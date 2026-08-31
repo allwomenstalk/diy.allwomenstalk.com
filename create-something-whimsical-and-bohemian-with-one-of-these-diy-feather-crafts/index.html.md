@@ -78,16 +78,16 @@ Excuse me while I make some feather leather jewelry. I love all ideas here but I
 
 ## Related Posts
 
+- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
+- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
 - [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
 - [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
-- [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
-- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
 - [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
+- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
+- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
 - [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
 - [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
-- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
-- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
 - [12 Gorgeous DIY Lace Crafts ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-lace-crafts/)
 - [10 Magically Beautiful DIY Moss Crafts ...](https://lifestyle.allwomenstalk.com/magically-beautiful-diy-moss-crafts/)
 

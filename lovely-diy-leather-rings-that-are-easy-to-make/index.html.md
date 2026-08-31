@@ -68,16 +68,16 @@ I will now see if I have leather scraps somewhere because I need to make some of
 
 ## Related Posts
 
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
 - [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
 - [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
 - [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
-- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
 - [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
-- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
 - [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
+- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
 - [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 - [9 Gorgeous DIY Watches to Make ...](https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/)
 

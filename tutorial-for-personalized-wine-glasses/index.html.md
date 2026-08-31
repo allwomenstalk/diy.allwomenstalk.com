@@ -56,16 +56,16 @@ How about you?
 
 ## Related Posts
 
-- [Video Guide to Making a Gift Bow in under a Minute...](https://diy.allwomenstalk.com/how-to-make-a-gift-bow-in-one-minute/)
-- [cups tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-designed-coffee-cups/)
-- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
-- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
-- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
 - [DIY Floating Storage for Organization That Doesn't...](https://diy.allwomenstalk.com/diy-floating-storage-for-organization-that-doesnt-take-up-tons-of-space/)
-- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
-- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
-- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
+- [Video Guide to Making a Gift Bow in under a Minute...](https://diy.allwomenstalk.com/how-to-make-a-gift-bow-in-one-minute/)
+- [This DIY Gift Idea is Pure Genius ...](https://diy.allwomenstalk.com/this-diy-gift-idea-is-pure-genius/)
 - [loreal paris color stylo smoky garnet](https://diy.allwomenstalk.com/diy-t-shirt-pillows-for-a-fun-craft/)
+- [dollar store thanksgiving crafts](https://diy.allwomenstalk.com/thanksgiving-diy-crafts/)
+- [diy coffee gift basket](https://diy.allwomenstalk.com/diy-coffee-gift-basket/)
+- [cups tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-designed-coffee-cups/)
+- [Video Tutorial for DIY Coffee Bean Crafts ...](https://diy.allwomenstalk.com/video-tutorial-for-diy-coffee-bean-crafts/)
+- [jar cups](https://diy.allwomenstalk.com/easy-diy-mason-jar-cups/)
+- [DIY Coffee Cup Goodie Gift Idea ...](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift-idea/)
 - [UpCycle Old Wine Bottles for Creative Home Decor ....](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [A Step by Step Guide to Gorgeous Gift Wrapping ...](https://diy.allwomenstalk.com/a-step-by-step-guide-to-gorgeous-gift-wrapping/)
 

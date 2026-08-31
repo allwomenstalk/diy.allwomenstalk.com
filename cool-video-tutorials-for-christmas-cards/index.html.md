@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/3778808434523643
 
 ## Related Posts
 
-- [fan gift ideas for celebrities](https://celebs.allwomenstalk.com/types-of-handmade-gifts-celebs-love-giveaway/)
 - [international women's day swag](https://lifestyle.allwomenstalk.com/budget-friendly-gifts-for-international-womens-day/)
-- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
-- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
-- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
+- [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
 - [how to make your mom happy](https://lifestyle.allwomenstalk.com/ways-to-make-mum-smile-on-mothers-day/)
 - [how to help a broken hearted friend](https://love.allwomenstalk.com/gift-ideas-for-a-broken-hearted-friend/)
 - [diy valentine's day gifts](https://diy.allwomenstalk.com/diy-valentines-day-gifts-to-give/)
-- [can you send food to military overseas](https://lifestyle.allwomenstalk.com/items-to-put-in-care-packages-for-soldiers-overseas/)
+- [sweet anniversary gifts for him](https://love.allwomenstalk.com/sweet-anniversary-gifts-for-him/)
+- [fan gift ideas for celebrities](https://celebs.allwomenstalk.com/types-of-handmade-gifts-celebs-love-giveaway/)
 - [lovely bridesmaid gifts](https://wedding.allwomenstalk.com/lovely-bridesmaids-gifts/)
+- [diy halloween gift baskets](https://lifestyle.allwomenstalk.com/easter-basket-ideas-for-men/)
+- [your girl friend](https://lifestyle.allwomenstalk.com/birthday-gift-ideas-for-your-girl-friend/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Cute Kitsch Christmas Gifts ...](https://lifestyle.allwomenstalk.com/cute-kitsch-christmas-gifts/)
 

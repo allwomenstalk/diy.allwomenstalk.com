@@ -42,15 +42,15 @@ The next time you have some bubble wrap, don’t play with it – put it to some
 
 ## Related Posts
 
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
 - [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
+- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
 - [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
 - [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
 - [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
+- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
 - [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
-- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
 - [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
 - [7 Crafts to do at Home ...](https://allwomenstalk.com/7-crafts-to-do-at-home/)
 - [7 Ways to Use Milk Cartons ...](https://allwomenstalk.com/7-ways-to-use-milk-cartons/)

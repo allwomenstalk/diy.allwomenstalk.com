@@ -42,16 +42,16 @@ These are some tips to help you not spend the whole weekend cleaning when you wo
 
 ## Related Posts
 
-- [organizing shelves with baskets](https://diy.allwomenstalk.com/storage-baskets-that-will-make-you-want-to-organize-your-whole-house/)
-- [spotless results](https://lifestyle.allwomenstalk.com/all-it-takes-is-minutes-a-day-results-a-spotless-place-to-call-home/)
-- [chicken caesar salad mason jar recipe](https://food.allwomenstalk.com/reasons-to-keep-a-few-mason-jars-in-your-cupboard/)
+- [scotch tape for eye makeup](https://fashion.allwomenstalk.com/unbelievably-useful-scotch-tape-hacks-for-common-fashion-problems/)
+- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
 - [daily free printable to do lists to get organized](https://lifestyle.allwomenstalk.com/get-organized-free-printable-to-do-lists-to-keep-you-on-top-of-everything/)
 - [pantry and laundry room combo](https://diy.allwomenstalk.com/heres-what-your-laundry-room-should-look-like/)
-- [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
+- [spotless results](https://lifestyle.allwomenstalk.com/all-it-takes-is-minutes-a-day-results-a-spotless-place-to-call-home/)
+- [chicken caesar salad mason jar recipe](https://food.allwomenstalk.com/reasons-to-keep-a-few-mason-jars-in-your-cupboard/)
 - [makeshift iron](https://diy.allwomenstalk.com/no-iron-no-stress-ways-to-remove-wrinkles-from-clothes/)
-- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
-- [scotch tape for eye makeup](https://fashion.allwomenstalk.com/unbelievably-useful-scotch-tape-hacks-for-common-fashion-problems/)
 - [planchador dry cleaning](https://diy.allwomenstalk.com/heres-how-to-make-your-laundry-room-look-better-than-most-peoples-living-room/)
+- [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
+- [organizing shelves with baskets](https://diy.allwomenstalk.com/storage-baskets-that-will-make-you-want-to-organize-your-whole-house/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 - [7 Ways to Get "Me" Time ...](https://allwomenstalk.com/7-ways-to-get-me-time/)
 

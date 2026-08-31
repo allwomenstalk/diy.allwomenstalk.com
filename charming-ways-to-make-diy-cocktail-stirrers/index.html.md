@@ -82,13 +82,13 @@ Aren't these DIY cocktail stirrers delightful? Go ahead, make these and make you
 
 ## Related Posts
 
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
-- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
-- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
 - [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
-- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
+- [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
 - [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)

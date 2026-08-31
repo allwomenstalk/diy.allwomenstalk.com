@@ -116,16 +116,16 @@ These work for humans, too.
 
 ## Related Posts
 
-- [halloween victoria's secret](https://lifestyle.allwomenstalk.com/sexy-victoria-secret-inspired-halloween-costumes/)
+- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
+- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
 - [tv show halloween costumes](https://lifestyle.allwomenstalk.com/halloween-costumes-based-on-your-favorite-television-shows/)
 - [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
 - [skanky halloween costumes](https://lifestyle.allwomenstalk.com/the-sexiest-halloween-costume-ideas/)
 - [bigger monster meme](https://lifestyle.allwomenstalk.com/happy-hallo-meme-preposterous-pop-culture-costumes/)
-- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
-- [spooky birthday party invitations](https://diy.allwomenstalk.com/send-out-these-creative-halloween-party-invitations/)
-- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
-- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
 - [decoration halloween cupcake](https://food.allwomenstalk.com/the-spookiest-way-to-decorate-your-halloween-cupcakes/)
+- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
+- [halloween victoria's secret](https://lifestyle.allwomenstalk.com/sexy-victoria-secret-inspired-halloween-costumes/)
+- [spooky birthday party invitations](https://diy.allwomenstalk.com/send-out-these-creative-halloween-party-invitations/)
 - [12 Creatively Unique DIY Pumpkin Craft Projects .....](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 - [12 Fabulously Creative DIY Halloween Wreaths ...](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 

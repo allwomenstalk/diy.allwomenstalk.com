@@ -58,14 +58,14 @@ Decorating for Halloween is one of the best parts about the holiday. You can be 
 
 - [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
 - [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
-- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
+- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
 - [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
+- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
 - [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
 - [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
-- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [8 Ideas on How to Celebrate Halloween ...](https://lifestyle.allwomenstalk.com/ideas-on-how-to-celebrate-halloween/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

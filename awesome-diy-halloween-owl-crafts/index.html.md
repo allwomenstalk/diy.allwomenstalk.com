@@ -90,16 +90,16 @@ Whooo is ready for a day of **owl craft projects**? Share your other **DIY Hallo
 
 ## Related Posts
 
-- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
-- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
 - [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
+- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
+- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
 - [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
 - [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 - [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

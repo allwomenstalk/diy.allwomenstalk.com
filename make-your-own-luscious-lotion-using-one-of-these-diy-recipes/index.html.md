@@ -82,15 +82,15 @@ Whether you want to make lotion only for your hands or for your whole body, the 
 
 ## Related Posts
 
-- [young living hand cream](https://skincare.allwomenstalk.com/diy-hand-creams-and-lotions-for-beautiful-hands/)
+- [how do you use bb cream for beginners](https://makeup.allwomenstalk.com/bb-creams-for-beginners/)
+- [weirdest makeup products](https://skincare.allwomenstalk.com/weird-ingredients-in-your-beauty-products/)
 - [cute hand creams](https://skincare.allwomenstalk.com/the-best-hand-creams-for-when-the-cold-hits/)
+- [sephora tony moly](https://beauty.allwomenstalk.com/hide-your-holiday-party-skin-sins-with-these-fab-face-masks/)
+- [how to get smooth skin like korean](https://skincare.allwomenstalk.com/korean-skincare-tips-for-soft-smooth-skin/)
+- [quotidien skincare](https://skincare.allwomenstalk.com/keep-these-skincare-products-on-your-nightstand/)
 - [affordable anti aging skin care](https://skincare.allwomenstalk.com/anti-aging-skin-care-that-doesnt-cost-much/)
 - [skin pampering](https://skincare.allwomenstalk.com/products-to-use-to-pamper-your-skin/)
-- [how do you use bb cream for beginners](https://makeup.allwomenstalk.com/bb-creams-for-beginners/)
-- [quotidien skincare](https://skincare.allwomenstalk.com/keep-these-skincare-products-on-your-nightstand/)
-- [weirdest makeup products](https://skincare.allwomenstalk.com/weird-ingredients-in-your-beauty-products/)
-- [how to get smooth skin like korean](https://skincare.allwomenstalk.com/korean-skincare-tips-for-soft-smooth-skin/)
-- [sephora tony moly](https://beauty.allwomenstalk.com/hide-your-holiday-party-skin-sins-with-these-fab-face-masks/)
+- [young living hand cream](https://skincare.allwomenstalk.com/diy-hand-creams-and-lotions-for-beautiful-hands/)
 - [top blotting papers](https://skincare.allwomenstalk.com/the-best-oil-blotting-products-for-pesky-skin/)
 - [8 Luxurious Body Lotions ...](https://skincare.allwomenstalk.com/8-luxurious-body-lotions/)
 - [21 All-natural DIY Beauty Products You'll Love ...](https://beauty.allwomenstalk.com/all-natural-diy-beauty-products-youll-love/)

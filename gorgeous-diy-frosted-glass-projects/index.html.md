@@ -76,16 +76,16 @@ I have posted only 8 **gorgeous DIY frosted glass projects** here but there is a
 
 ## Related Posts
 
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
 - [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 - [8 Beach-Themed Projects for the Home ...](https://allwomenstalk.com/beach-themed-projects-for-the-home/)
 

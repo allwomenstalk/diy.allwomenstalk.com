@@ -78,16 +78,16 @@ See, there is a way to make taxidermy décor cute and non-creepy. No offense to 
 
 ## Related Posts
 
-- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
 - [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
-- [vlone shirt roblox](https://diy.allwomenstalk.com/fresh-diy-ways-to-update-a-plain-t-shirt/)
-- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
-- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
 - [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
+- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
+- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
+- [vlone shirt roblox](https://diy.allwomenstalk.com/fresh-diy-ways-to-update-a-plain-t-shirt/)
 - [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
-- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
+- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
+- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

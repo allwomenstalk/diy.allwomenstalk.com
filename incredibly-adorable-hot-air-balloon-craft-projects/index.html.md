@@ -84,16 +84,16 @@ What a fantastic set of craft inspiration! Would you be making something from th
 
 ## Related Posts
 
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
 - [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
 - [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 

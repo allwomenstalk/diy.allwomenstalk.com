@@ -92,15 +92,15 @@ I hope that these **DIY hoodie makeovers** make you more ready for the cold days
 
 ## Related Posts
 
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
 - [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [8 Craftabulous Shirts for a Crafty Lady ...](https://allwomenstalk.com/8-craftabulous-shirts-for-a-crafty-lady/)
 - [8 Stylish Ways to Upcycle an Old Shirt ...](https://lifestyle.allwomenstalk.com/stylish-ways-to-upcycle-an-old-shirt/)

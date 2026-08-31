@@ -134,16 +134,16 @@ Which one do you want to make the most? Where will you put it when you're done?
 
 ## Related Posts
 
-- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
-- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
-- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
-- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
-- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
 - [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
+- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
+- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
+- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
+- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
+- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

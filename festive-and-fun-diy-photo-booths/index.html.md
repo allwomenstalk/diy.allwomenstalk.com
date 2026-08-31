@@ -86,16 +86,16 @@ Feeling less stressed about your NYE party now? I hope we were able to help via 
 
 ## Related Posts
 
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
 - [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
 - [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [10 Great Photo Display Ideas ...](https://allwomenstalk.com/10-great-photo-display-ideas/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 

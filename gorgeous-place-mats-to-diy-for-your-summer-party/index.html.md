@@ -70,16 +70,16 @@ You're on your way to becoming Best Hostess in your neighborhood once you make t
 
 ## Related Posts
 
-- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
-- [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
-- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
 - [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
+- [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
+- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
 - [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
+- [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
 - [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
 - [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
+- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 Gorgeous Holiday Table Runners ...](https://allwomenstalk.com/7-gorgeous-holiday-table-runners/)
 

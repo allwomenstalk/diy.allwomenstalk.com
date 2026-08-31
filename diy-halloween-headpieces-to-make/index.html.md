@@ -123,16 +123,16 @@ We hope you enjoyed this handpicked collection of creative **DIY Halloween headp
 
 ## Related Posts
 
-- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
-- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
 - [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
-- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
-- [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
-- [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
-- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
 - [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
+- [hilarious costumes for adults](https://lifestyle.allwomenstalk.com/funny-halloween-costumes-for-adults-that-youve-got-to-try-this-year/)
+- [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
 - [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
+- [should halloween be celebrated in schools](https://lifestyle.allwomenstalk.com/ways-to-celebrate-halloween-in-the-classroom/)
+- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)
 - [13 Lovely DIY Headbands to Make ...](https://hair.allwomenstalk.com/lovely-diy-headbands-to-make/)
 

@@ -68,15 +68,15 @@ Oh the many ways to make DIY ear cuffs! Would you be making some following the i
 
 ## Related Posts
 
-- [lisa gosling jewellery](https://jewelry.allwomenstalk.com/super-quirky-earrings-you-have-to-see-to-believe/)
-- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
-- [greatergoodnetwork](https://jewelry.allwomenstalk.com/of-our-favorite-accessories-that-benefit-causes-we-love/)
-- [do ear cuffs fall off easily](https://jewelry.allwomenstalk.com/dazzling-statement-ear-cuffs-to-shake-up-your-look-this-fall/)
-- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
-- [how to wear knuckle rings](https://diy.allwomenstalk.com/diy-knuckle-rings-that-will-knock-your-socks-off/)
 - [watch arm candy](https://jewelry.allwomenstalk.com/funky-watches-for-some-serious-arm-candy/)
-- [complement your style](https://fashion.allwomenstalk.com/spectacular-polka-dot-pieces-that-will-compliment-your-style/)
+- [watch the fashionistas](https://jewelry.allwomenstalk.com/wonderful-watches-for-fashionistas-on-a-budget/)
 - [worthy watch](https://jewelry.allwomenstalk.com/splurge-worthy-beautiful-watches-to-flaunt-this-season/)
+- [do ear cuffs fall off easily](https://jewelry.allwomenstalk.com/dazzling-statement-ear-cuffs-to-shake-up-your-look-this-fall/)
+- [complement your style](https://fashion.allwomenstalk.com/spectacular-polka-dot-pieces-that-will-compliment-your-style/)
+- [lisa gosling jewellery](https://jewelry.allwomenstalk.com/super-quirky-earrings-you-have-to-see-to-believe/)
+- [greatergoodnetwork](https://jewelry.allwomenstalk.com/of-our-favorite-accessories-that-benefit-causes-we-love/)
+- [barbed wire tattoo](https://lifestyle.allwomenstalk.com/very-feminine-spots-for-a-tattoo/)
+- [how to wear knuckle rings](https://diy.allwomenstalk.com/diy-knuckle-rings-that-will-knock-your-socks-off/)
 - [best music accessories](https://music.allwomenstalk.com/adorable-accessories-for-music-lovers/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
 - [7 Super Trendy Hair Jewelry ...](https://allwomenstalk.com/7-super-trendy-hair-jewelry/)

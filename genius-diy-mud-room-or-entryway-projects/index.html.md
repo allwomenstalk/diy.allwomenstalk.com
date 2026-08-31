@@ -100,16 +100,16 @@ I hope that these **DIY mud room or entryway projects** inspire you to start spr
 
 ## Related Posts
 
-- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
 - [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
-- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
-- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
 - [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
-- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
 - [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
+- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
+- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

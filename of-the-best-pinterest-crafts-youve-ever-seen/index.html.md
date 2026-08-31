@@ -157,15 +157,15 @@ Would you make any of these? Which one? What other cool crafts have you found on
 
 ## Related Posts
 
-- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
-- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
-- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
-- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
-- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
-- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
 - [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
-- [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
 - [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
+- [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
+- [how to make a coin bank](https://diy.allwomenstalk.com/take-saving-to-the-next-level-with-these-diy-piggy-banks/)
+- [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
+- [jean items](https://diy.allwomenstalk.com/make-these-cute-items-for-the-home-using-an-old-pair-of-jeans/)
+- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
+- [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
 - [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)

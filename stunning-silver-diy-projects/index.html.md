@@ -98,16 +98,16 @@ Have fun with these **silver DIY craft projects**! If you have other creative **
 
 ## Related Posts
 
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)
 

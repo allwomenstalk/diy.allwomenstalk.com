@@ -67,14 +67,14 @@ There are boring drawers in my studio screaming for a new look. I will be using 
 ## Related Posts
 
 - [cool thing to make at home](https://diy.allwomenstalk.com/awesome-wire-crafts-to-make-cool-stuff/)
-- [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
 - [how to make homemade henna without henna powder or...](https://diy.allwomenstalk.com/love-tattoos-but-dont-want-to-get-inked-try-these-fabulous-diy-temporary-tattoos/)
-- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
 - [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
 - [diy tea cup](https://diy.allwomenstalk.com/cuteness-overload-these-teacup-crafts-are-adorable/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
+- [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
 - [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
+- [harry potter quotes for graduation](https://diy.allwomenstalk.com/diy-graduation-caps-your-classmates-will-adore/)
 - [diy wooden bracelets](https://diy.allwomenstalk.com/simply-amazing-ways-to-give-wooden-bangles-a-crafty-makeover-2/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [6 Amazing Furniture Makeovers ...](https://allwomenstalk.com/6-amazing-furniture-makeovers/)

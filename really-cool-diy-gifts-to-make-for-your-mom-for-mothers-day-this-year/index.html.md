@@ -292,16 +292,16 @@ What are you getting your mom for Mother's Day this year? Would she love anythin
 
 ## Related Posts
 
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
-- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
-- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
 - [diy hook rack](https://diy.allwomenstalk.com/adorable-hook-diys-youll-use-every-day/)
 - [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
-- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
 - [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
-- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
 - [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
 - [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
+- [diy beaded necklace ideas](https://diy.allwomenstalk.com/super-cool-diy-jewelry-ideas-that-lets-you-use-up-all-your-leftover-buttons/)
+- [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
+- [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
+- [t shirt halter top diy](https://fashion.allwomenstalk.com/hate-sewing-check-out-these-brilliant-no-sew-diy-ideas/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [Mother's Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 

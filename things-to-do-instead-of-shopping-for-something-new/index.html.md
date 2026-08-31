@@ -42,15 +42,15 @@ Shopping can be really fun, but so can other alternatives that give the same fee
 
 ## Related Posts
 
-- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
-- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
-- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
-- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
-- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
-- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
 - [vivian v boyfriend](https://parenting.allwomenstalk.com/ways-to-cut-down-on-prom-costs/)
 - [reasonable college budget](https://money.allwomenstalk.com/places-to-shop-on-a-college-budget/)
+- [what is a refurbished computer](https://money.allwomenstalk.com/ways-to-save-money-when-buying-a-computer/)
 - [girls night out accessories](https://lifestyle.allwomenstalk.com/inexpensive-but-fun-girls-night-out-ideas/)
+- [how do you spend your allowance](https://money.allwomenstalk.com/worst-ways-to-spend-your-allowance/)
+- [one frugal girl](https://money.allwomenstalk.com/reasons-why-you-shouldnt-apologize-for-being-frugal/)
+- [best cheap shoes](https://shoes.allwomenstalk.com/reasons-buying-cheap-shoes-is-a-false-economy/)
+- [living on a small budget](https://money.allwomenstalk.com/amazing-ways-to-live-large-on-a-small-budget/)
+- [how to stop going out to eat](https://food.allwomenstalk.com/best-tricks-and-ways-to-eat-out-for-cheap/)
 - [enjoy the culture](https://lifestyle.allwomenstalk.com/ways-to-enjoy-culture-cheaply/)
 - [7 Ways to save Money While Spending It ...](https://money.allwomenstalk.com/ways-to-save-money-while-spending-it/)
 - [7 Surprisingly Useful Tips to Frugal Shopping ...](https://money.allwomenstalk.com/surprisingly-useful-tips-to-frugal-shopping/)

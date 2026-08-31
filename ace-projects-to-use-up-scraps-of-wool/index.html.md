@@ -82,16 +82,16 @@ These fun little projects will help you find a use for all those odds and ends o
 
 ## Related Posts
 
-- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
+- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
 - [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
+- [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
 - [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
 - [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
-- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
-- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [8 Ways to Use up Fabric Scraps …](https://allwomenstalk.com/ways-to-use-up-fabric-scraps/)
 

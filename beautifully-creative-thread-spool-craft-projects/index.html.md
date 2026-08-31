@@ -88,16 +88,16 @@ Aren't these **spool craft projects** fun? I think I will be giving the **DIY th
 
 ## Related Posts
 
-- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
+- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
+- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
 - [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
-- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [paper mobile diy](https://diy.allwomenstalk.com/cute-diy-rain-cloud-mobiles/)
-- [easter decorations ideas](https://diy.allwomenstalk.com/easter-decoration-ideas/)
-- [wedding drink stirrers](https://diy.allwomenstalk.com/charming-ways-to-make-diy-cocktail-stirrers/)
 - [game of thrones pumpkin carving](https://diy.allwomenstalk.com/amazing-game-of-thrones-craft-projects/)
-- [cool crafts for teen](https://diy.allwomenstalk.com/fashion-crafts-for-teens/)
+- [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

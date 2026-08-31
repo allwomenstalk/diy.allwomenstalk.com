@@ -68,16 +68,16 @@ Make a DIY zen garden and place in your office desk. When the going gets tough, 
 
 ## Related Posts
 
-- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
-- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
-- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
-- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
-- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
-- [fairy garden landscape](https://gardening.allwomenstalk.com/these-fairy-gardens-will-make-your-yard-look-magical-af/)
-- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
-- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
 - [miniature live plants](https://gardening.allwomenstalk.com/tiny-plants-you-can-put-anywhere-no-matter-how-small-your-space/)
+- [tiny house landscaping ideas](https://gardening.allwomenstalk.com/tiny-gardens-that-fit-into-any-space/)
+- [coolest looking succulents](https://gardening.allwomenstalk.com/ways-to-have-fun-with-succulents/)
+- [easy summer flowers](https://gardening.allwomenstalk.com/beautiful-summer-flowers-that-are-easy-to-grow/)
+- [garden kneeler target](https://gardening.allwomenstalk.com/items-to-buy-to-create-the-best-garden-around/)
 - [hacksall](https://gardening.allwomenstalk.com/clever-gardening-hacks/)
+- [small plant shop ideas](https://gardening.allwomenstalk.com/these-plants-will-purify-your-home-and-make-you-more-beautiful/)
+- [tropical flowering shrub](https://gardening.allwomenstalk.com/best-tropical-flowers-for-temperate-gardens/)
+- [how to create a microclimate](https://gardening.allwomenstalk.com/plants-that-create-a-microclimate-for-better-health-in-your-home/)
+- [fairy garden landscape](https://gardening.allwomenstalk.com/these-fairy-gardens-will-make-your-yard-look-magical-af/)
 - [5 Ways to Motivate Yourself to Make a Garden ...](https://gardening.allwomenstalk.com/5-ways-to-motivate-yourself-to-make-a-garden/)
 - [5 Tips on a Zen Garden ...](https://gardening.allwomenstalk.com/5-tips-on-a-zen-garden/)
 

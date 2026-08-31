@@ -177,14 +177,14 @@ Whether you are an experienced do-it-yourself-er or are trying your hand at wrea
 
 ## Related Posts
 
-- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
-- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
-- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
-- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
+- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
+- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
+- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
 - [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
 - [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)

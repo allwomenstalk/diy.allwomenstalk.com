@@ -151,16 +151,16 @@ These summer DIY projects will be helpful in getting through the rest of the sum
 
 ## Related Posts
 
-- [summer roll ideas](https://food.allwomenstalk.com/summer-roll-recipes-that-are-sure-to-satisfy-any-craving/)
-- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
-- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
 - [things to do for senior year](https://lifestyle.allwomenstalk.com/things-to-do-the-summer-after-your-senior-year/)
 - [reconnect with friends](https://lifestyle.allwomenstalk.com/ways-to-reconnect-with-friends-after-the-summer-2/)
+- [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
+- [summer roll ideas](https://food.allwomenstalk.com/summer-roll-recipes-that-are-sure-to-satisfy-any-craving/)
+- [aspen tourist attractions](https://travel.allwomenstalk.com/attractions-of-aspen-in-the-summertime/)
+- [non-dairy popsicle recipes](https://food.allwomenstalk.com/dairy-free-popsicle-recipes-to-beat-the-summer-heat/)
+- [summer activities for 1 year old](https://parenting.allwomenstalk.com/super-fun-things-to-do-with-a-one-year-old-in-the-summer/)
 - [what makes something a fruit?](https://food.allwomenstalk.com/genius-ways-to-use-summer-fruit-to-make-something-tasty/)
 - [brighton tourist attractions](https://travel.allwomenstalk.com/fun-things-to-do-in-brighton-in-the-summer/)
-- [skinny salad](https://food.allwomenstalk.com/summer-salads-to-help-you-slim-down/)
 - [summer is come](https://lifestyle.allwomenstalk.com/reasons-why-you-shouldnt-be-upset-that-summer-is-coming-to-an-end/)
-- [summer activities for 1 year old](https://parenting.allwomenstalk.com/super-fun-things-to-do-with-a-one-year-old-in-the-summer/)
 - [7 Ideas to Keep Kids Occupied during Summer Break ...](https://parenting.allwomenstalk.com/7-ideas-to-keep-kids-occupied-during-summer-break/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 

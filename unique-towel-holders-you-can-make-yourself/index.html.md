@@ -64,16 +64,16 @@ _marthastewart.com_
 
 ## Related Posts
 
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
-- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
-- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
+- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
 - [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
-- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
-- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
+- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
+- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
 - [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
+- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

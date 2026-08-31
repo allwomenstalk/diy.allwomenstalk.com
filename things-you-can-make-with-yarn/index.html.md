@@ -56,16 +56,16 @@ What do you do with yarn? Will you try any of these projects? Let me know how th
 
 ## Related Posts
 
-- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
+- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
 - [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
+- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

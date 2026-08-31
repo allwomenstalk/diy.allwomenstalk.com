@@ -239,16 +239,16 @@ I don't know about you, but now I'm in the decorating mood! Remember, pumpkins a
 
 ## Related Posts
 
-- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
-- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
 - [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
-- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
-- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
 - [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
+- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
+- [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
 - [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
+- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [7 Fun and Creative Pumpkin Carving Ideas ...](https://lifestyle.allwomenstalk.com/fun-and-creative-pumpkin-carving-ideas/)
 

@@ -70,16 +70,16 @@ Sources: [thecentsiblelife.com](https://www.thecentsiblelife.com/lego-friendship
 
 ## Related Posts
 
-- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
-- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
 - [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
-- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
-- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
 - [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
 - [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
 - [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
+- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
+- [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
 - [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [10 Coolest Chunky Bracelets ...](https://allwomenstalk.com/10-coolest-chunky-bracelets/)
 

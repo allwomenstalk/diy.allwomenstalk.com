@@ -66,16 +66,16 @@ I hope that these throws have inspired you to make your own creations. Every thr
 
 ## Related Posts
 
-- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
-- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
-- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
-- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
-- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
 - [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
-- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
 - [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
+- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
+- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
+- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
+- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
+- [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

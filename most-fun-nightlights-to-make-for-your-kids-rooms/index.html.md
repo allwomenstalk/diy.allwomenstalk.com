@@ -163,16 +163,16 @@ Well ladies, these are the lights that I think would go great in any kid's room 
 
 ## Related Posts
 
-- [the revamp rooms](https://lifestyle.allwomenstalk.com/ways-to-revamp-a-room-on-a-tight-budget/)
+- [whimsical pillows](https://lifestyle.allwomenstalk.com/whimsical-decorative-pillows-for-home-decorating/)
 - [autumn candle decorations](https://lifestyle.allwomenstalk.com/illuminating-decorative-candles-for-fall/)
-- [thanksgiving decoration](https://diy.allwomenstalk.com/simple-thanksgiving-decorations-for-your-apartment/)
-- [how to make your house look classy](https://lifestyle.allwomenstalk.com/ways-to-make-your-place-look-classy/)
 - [bathtub romantic ideas](https://lifestyle.allwomenstalk.com/bathroom-upgrades-to-make-your-friends-jealous/)
 - [ways to make your room more cozy](https://diy.allwomenstalk.com/ways-to-make-your-home-more-cozy-and-feel-less-cluttered/)
-- [decorated globes](https://lifestyle.allwomenstalk.com/globe-inspired-home-decor-to-make-your-house-more-worldly/)
+- [how to make your house look classy](https://lifestyle.allwomenstalk.com/ways-to-make-your-place-look-classy/)
+- [the revamp rooms](https://lifestyle.allwomenstalk.com/ways-to-revamp-a-room-on-a-tight-budget/)
 - [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
+- [thanksgiving decoration](https://diy.allwomenstalk.com/simple-thanksgiving-decorations-for-your-apartment/)
+- [decorated globes](https://lifestyle.allwomenstalk.com/globe-inspired-home-decor-to-make-your-house-more-worldly/)
 - [how to spice up your room](https://lifestyle.allwomenstalk.com/quick-and-easy-ways-to-spice-up-any-room/)
-- [whimsical pillows](https://lifestyle.allwomenstalk.com/whimsical-decorative-pillows-for-home-decorating/)
 - [7 Ways to Decorate Your Daughter's Room ...](https://parenting.allwomenstalk.com/7-ways-to-decorate-your-daughters-room/)
 - [8 Tips on Decorating a Child's Room ...](https://allwomenstalk.com/8-tips-on-decorating-a-childs-room/)
 

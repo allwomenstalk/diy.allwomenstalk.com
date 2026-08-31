@@ -47,16 +47,16 @@ There are a lot of very creative ways to use cardboard. I just mentioned a few b
 
 ## Related Posts
 
-- [Here Are the Most Popular Google Searches of 2014 ...](https://lifestyle.allwomenstalk.com/here-are-the-most-popular-google-searches-of-did-you-look-these-up/)
-- [best bargain websites](https://money.allwomenstalk.com/discount-websites-for-scoring-hot-deals/)
-- [This Epic SmartPhone Case Prints Your Photos Right...](https://apps.allwomenstalk.com/this-epic-smartphone-case-prints-your-photos-right-on-the-spot/)
 - [best websites you didn't know about](https://lifestyle.allwomenstalk.com/websites-you-didnt-know-you-needed-in-your-life-until-now/)
-- [24 Super Sweet IPad Covers You Are Going to Love ....](https://gadgets.allwomenstalk.com/super-sweet-ipad-covers-you-are-going-to-love/)
 - [beyond premium wine chiller](https://food.allwomenstalk.com/equip-your-wine-with-balls-of-steel/)
-- [retailmenot champs](https://lifestyle.allwomenstalk.com/retailmenot-roundup-gray-thursday-black-friday-action/)
-- [7 Classic Pieces Worth the Splurge ...](https://fashion.allwomenstalk.com/classic-pieces-worth-the-splurge/)
 - [loreal stylo shadow amour](https://running.allwomenstalk.com/handy-ways-to-keep-your-stuff-secure-while-you-run/)
+- [7 Classic Pieces Worth the Splurge ...](https://fashion.allwomenstalk.com/classic-pieces-worth-the-splurge/)
+- [best bargain websites](https://money.allwomenstalk.com/discount-websites-for-scoring-hot-deals/)
+- [24 Super Sweet IPad Covers You Are Going to Love ....](https://gadgets.allwomenstalk.com/super-sweet-ipad-covers-you-are-going-to-love/)
 - [7 Items to Buy in the Post-Christmas Sales ...](https://money.allwomenstalk.com/post-christmas-sales-to-take-advantage-of/)
+- [Here Are the Most Popular Google Searches of 2014 ...](https://lifestyle.allwomenstalk.com/here-are-the-most-popular-google-searches-of-did-you-look-these-up/)
+- [This Epic SmartPhone Case Prints Your Photos Right...](https://apps.allwomenstalk.com/this-epic-smartphone-case-prints-your-photos-right-on-the-spot/)
+- [retailmenot champs](https://lifestyle.allwomenstalk.com/retailmenot-roundup-gray-thursday-black-friday-action/)
 - [Some Fun Stuff....](https://allwomenstalk.com/some-fun-stuff/)
 - [9 Ways to Bring out Your Inner Kid ...](https://allwomenstalk.com/9-ways-to-bring-out-your-inner-kid/)
 

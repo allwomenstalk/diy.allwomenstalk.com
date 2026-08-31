@@ -56,15 +56,15 @@ How do you decorate your house like Chip and Joanna on Fixer Upper? Will you fol
 
 ## Related Posts
 
-- [collage on wall ideas](https://diy.allwomenstalk.com/collage-walls-thatll-make-your-home-feel-even-homier/)
 - [light colored couches](https://diy.allwomenstalk.com/colorful-couches-to-brighten-up-your-dull-living-room/)
 - [riche stylo glistening](https://books.allwomenstalk.com/how-to-style-your-bookcase-to-look-its-best/)
-- [fixer upper farmhouse](https://diy.allwomenstalk.com/fixer-upper-farmhouse-homes-youll-want-to-live-in/)
 - [cute address signs](https://diy.allwomenstalk.com/unique-ways-to-display-your-address-on-your-home/)
-- [certaintely](https://diy.allwomenstalk.com/diy-decorating-tips-thatll-turn-your-house-into-a-home/)
-- [lovely inspiration](https://diy.allwomenstalk.com/get-decor-inspiration-from-these-lovely-living-rooms/)
 - [top icicle lights](https://lifestyle.allwomenstalk.com/epic-christmas-lights-youll-want-to-copy/)
 - [tasteful christmas tree](https://diy.allwomenstalk.com/check-out-these-cute-christmas-trees-to-inspire-your-own/)
+- [certaintely](https://diy.allwomenstalk.com/diy-decorating-tips-thatll-turn-your-house-into-a-home/)
+- [collage on wall ideas](https://diy.allwomenstalk.com/collage-walls-thatll-make-your-home-feel-even-homier/)
+- [fixer upper farmhouse](https://diy.allwomenstalk.com/fixer-upper-farmhouse-homes-youll-want-to-live-in/)
+- [lovely inspiration](https://diy.allwomenstalk.com/get-decor-inspiration-from-these-lovely-living-rooms/)
 - [dcor e gift](https://diy.allwomenstalk.com/how-can-you-get-chic-home-decor-for-a-fraction-of-the-price/)
 - [8 Ideas to Make a House Look Brighter ...](https://allwomenstalk.com/8-ideas-to-make-a-house-look-brighter/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)

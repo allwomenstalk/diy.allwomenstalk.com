@@ -52,14 +52,14 @@ It has to be one of my least favorite jobs, but it has to be done! How often to 
 
 - [draino shower drain](https://diy.allwomenstalk.com/alternative-ways-to-clear-a-clogged-drain-when-you-dont-have-draino/)
 - [amazing gadgets](https://lifestyle.allwomenstalk.com/amazing-gadgets-for-quick-cleaning/)
-- [why to clean makeup brushes](https://makeup.allwomenstalk.com/reasons-to-clean-your-makeup-brushes/)
+- [homemade dental floss](https://diy.allwomenstalk.com/uses-for-dental-floss-you-probably-never-thought-of/)
 - [how to organize a swap party](https://fashion.allwomenstalk.com/tips-for-organising-a-clothes-swap-party/)
 - [funny quotes about spring cleaning](https://diy.allwomenstalk.com/tips-for-spring-cleaning-your-bedroom/)
-- [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
-- [homemade dental floss](https://diy.allwomenstalk.com/uses-for-dental-floss-you-probably-never-thought-of/)
-- [clean dorm](https://diy.allwomenstalk.com/ways-to-spring-clean-your-dorm-room/)
 - [how to stop a cat from scratching](https://lifestyle.allwomenstalk.com/ways-to-stop-your-cat-from-scratching-your-furniture/)
+- [why to clean makeup brushes](https://makeup.allwomenstalk.com/reasons-to-clean-your-makeup-brushes/)
 - [upgrade your office](https://diy.allwomenstalk.com/simple-things-you-can-do-to-upgrade-your-office/)
+- [clean dorm](https://diy.allwomenstalk.com/ways-to-spring-clean-your-dorm-room/)
+- [7 Cleaning Tricks Using Items in Your Pantry or Me...](https://food.allwomenstalk.com/cleaning-tricks-using-items-in-your-pantry-or-medicine-chest/)
 - [8 Simple Steps to Clean a Microwave ...](https://cooking.allwomenstalk.com/8-simple-steps-to-clean-a-microwave/)
 - [9 Unique Ways to Use Baking Soda ...](https://cooking.allwomenstalk.com/unique-ways-to-use-baking-soda/)
 

@@ -92,16 +92,16 @@ Of course you could always go out and buy a case, but DIY cases are great for gi
 
 ## Related Posts
 
-- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
-- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [wall basket ideas](https://diy.allwomenstalk.com/clever-ways-to-upcycle-baskets/)
+- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [easy penny drawing](https://diy.allwomenstalk.com/amazingly-cool-penny-crafts/)
 - [plates diy](https://diy.allwomenstalk.com/lovely-diy-decorative-plates/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
-- [craft with plastic spoons](https://diy.allwomenstalk.com/sensational-plastic-spoon-craft-projects/)
+- [crafts with thread](https://diy.allwomenstalk.com/beautifully-creative-thread-spool-craft-projects/)
+- [valentine animal crafts](https://parenting.allwomenstalk.com/valentine-themed-animal-crafts-for-kids/)
 - [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [diy wire spool holder](https://diy.allwomenstalk.com/cool-and-clever-cable-spool-diy-projects/)
 - [13 Stunning DIY Room Dividers ...](https://lifestyle.allwomenstalk.com/stunning-diy-room-dividers/)
 - [15 Chic and Cool DIY Clocks ...](https://lifestyle.allwomenstalk.com/chic-and-cool-diy-clocks/)
 

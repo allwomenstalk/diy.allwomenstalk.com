@@ -181,16 +181,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
-- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
 - [ways to use magnets](https://diy.allwomenstalk.com/creative-ways-to-use-magnets/)
-- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
-- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
-- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
-- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
 - [awesome iphone cases](https://diy.allwomenstalk.com/cute-diy-iphone-cases/)
-- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [supreme bookends](https://diy.allwomenstalk.com/beautifully-creative-diy-bookends/)
+- [hula hoop chandelier](https://diy.allwomenstalk.com/clever-ways-to-reuse-hula-hoops/)
+- [old scrabble tiles](https://diy.allwomenstalk.com/creative-ways-to-upcycle-scrabble-tiles/)
+- [do it yourself drawer organizers](https://diy.allwomenstalk.com/awesome-diy-drawer-organizers/)
+- [glass vase wedding centerpieces](https://diy.allwomenstalk.com/simple-diy-wedding-centerpieces/)
 - [diy bib necklace](https://jewelry.allwomenstalk.com/awesome-bib-necklace-tutorials/)
+- [arrow ideas](https://diy.allwomenstalk.com/super-adorable-arrow-diy-ideas/)
+- [ideas for old cribs](https://diy.allwomenstalk.com/up-cycle-ideas-for-outgrown-cribs/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [13 Fun Valentine Crafts ...](https://diy.allwomenstalk.com/fun-valentine-crafts/)
 

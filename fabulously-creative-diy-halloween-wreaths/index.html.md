@@ -104,16 +104,16 @@ I bet you have more ideas for making **DIY Halloween wreaths**. Share them with 
 
 ## Related Posts
 
-- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [11 Fantastic DIY Fall Wreaths ...](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [12 Creatively Unique DIY Pumpkin Craft Projects .....](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 

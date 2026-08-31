@@ -68,16 +68,16 @@ If you have a decorating tip to share, don’t hide it from me! What’s your be
 
 ## Related Posts
 
-- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
 - [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
-- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
-- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
-- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
 - [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
-- [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
-- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
-- [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
 - [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
+- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
+- [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
+- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
+- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
+- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
+- [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
+- [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
 - [5 Tips on Decorating for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-for-the-holidays/)
 - [10 Decorating Ideas for Your New Home ...](https://interior.allwomenstalk.com/decorating-ideas-for-your-new-home/)
 

@@ -77,16 +77,16 @@ Jars are not only super-adorable, but they’re also incredibly convenient for c
 
 ## Related Posts
 
-- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
-- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
 - [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
 - [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
 - [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
 - [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
 - [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

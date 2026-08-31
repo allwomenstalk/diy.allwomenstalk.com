@@ -68,16 +68,16 @@ Aren't these doily stencil projects fun? Hope you find inspiration from this lis
 
 ## Related Posts
 
-- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
-- [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
 - [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
-- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
-- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
-- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
 - [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
+- [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
+- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
+- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
 - [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
+- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [9 Charming Craft Projects for a Beach Holiday ...](https://lifestyle.allwomenstalk.com/charming-craft-projects-for-a-beach-holiday/)
 - [9 Charming and Chic DIY Trays ...](https://lifestyle.allwomenstalk.com/charming-and-chic-diy-trays/)
 

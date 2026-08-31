@@ -61,16 +61,16 @@ What are you making this Easter? I think I’m going to try out my glitter eggs 
 
 ## Related Posts
 
-- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
-- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
-- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
-- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
-- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
-- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
-- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
-- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
-- [25 Decorative DIY Coasters You'll Be Proud to Show...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
 - [Inventive Things to do with Your Christmas Tree af...](https://diy.allwomenstalk.com/things-to-do-with-your-christmas-tree-after-the-holidays/)
+- [uses for ice cube trays](https://diy.allwomenstalk.com/great-unconventional-uses-for-an-ice-cube-tray/)
+- [28 Glitzy Gold-dipped Craft Projects for Your Home...](https://diy.allwomenstalk.com/glitzy-gold-dipped-craft-projects-for-your-home/)
+- [finger knitting bracelets](https://jewelry.allwomenstalk.com/easy-diy-jewelry-tutorials-for-accessories-unique-to-you/)
+- [best crochet projects for beginners](https://diy.allwomenstalk.com/perfect-crochet-projects-for-beginners/)
+- [39 Stylish Examples of DIY Wall Art ...](https://interior.allwomenstalk.com/stylish-examples-of-diy-wall-art/)
+- [spring diys](https://diy.allwomenstalk.com/fresh-diy-ideas-perfect-for-spring/)
+- [hand print crab](https://parenting.allwomenstalk.com/kids-crafts-to-keep-your-kids-entertained-for-hours/)
+- [25 Decorative DIY Coasters You'll Be Proud to Show...](https://diy.allwomenstalk.com/decorative-diy-coasters-youll-be-proud-to-show-off/)
+- [27 Wonderful Washi Tape Crafts That You Won't Be A...](https://diy.allwomenstalk.com/wonderful-washi-tape-crafts-that-you-wont-be-able-to-get-enough-of/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 

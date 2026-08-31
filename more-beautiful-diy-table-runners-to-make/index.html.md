@@ -102,16 +102,16 @@ Got other ideas on how to beautify a dinner or buffet table? Share, share!
 
 ## Related Posts
 
-- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
-- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
+- [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
+- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
 - [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
-- [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
-- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
 - [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
+- [diy outdoor fall garland](https://diy.allwomenstalk.com/stunning-diy-fall-garlands/)
 - [7 Fabulous Ideas to Dress up Your Dinner Table ...](https://cooking.allwomenstalk.com/7-fabulous-ideas-to-dress-up-your-dinner-table/)
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
 

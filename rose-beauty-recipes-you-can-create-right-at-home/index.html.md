@@ -84,16 +84,16 @@ I cannot wait to make the rosewater toner. I might even try the scrub, too. Whic
 
 ## Related Posts
 
-- [prone girls](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-who-are-acne-prone/)
 - [two ingredient face mask](https://skincare.allwomenstalk.com/two-ingredient-face-masks-you-can-make-right-at-home/)
-- [what are the best neck creams](https://skincare.allwomenstalk.com/the-best-neck-creams-for-girls-afraid-of-saggy-skin/)
 - [things to put in bath](https://skincare.allwomenstalk.com/get-better-skin-by-bringing-these-things-into-your-bath/)
-- [retinol candid](https://skincare.allwomenstalk.com/improve-your-skin-by-purchasing-these-retinol-products/)
-- [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
-- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
 - [anti redness foundation](https://skincare.allwomenstalk.com/amazing-products-for-women-that-struggle-with-skin-redness/)
-- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
+- [retinol candid](https://skincare.allwomenstalk.com/improve-your-skin-by-purchasing-these-retinol-products/)
 - [shea moisture head to toe](https://skincare.allwomenstalk.com/skincare-products-that-look-lovely-on-black-ladies/)
+- [light foundation oily skin](https://makeup.allwomenstalk.com/lightweight-foundations-for-oily-skin-to-buy-this-summer/)
+- [prone girls](https://skincare.allwomenstalk.com/diy-face-masks-for-girls-who-are-acne-prone/)
+- [crave skincare](https://skincare.allwomenstalk.com/homemade-lotion-recipes-thatll-give-you-smoother-skin/)
+- [what are the best neck creams](https://skincare.allwomenstalk.com/the-best-neck-creams-for-girls-afraid-of-saggy-skin/)
+- [in-shower lotion bar recipe](https://diy.allwomenstalk.com/girls-who-prefer-natural-skincare-can-make-these-lotion-bars-at-home/)
 - [8 Quickie DIY All-natural Beauty Products ...](https://beauty.allwomenstalk.com/quickie-diy-all-natural-beauty-products/)
 - [21 All-natural DIY Beauty Products You'll Love ...](https://beauty.allwomenstalk.com/all-natural-diy-beauty-products-youll-love/)
 

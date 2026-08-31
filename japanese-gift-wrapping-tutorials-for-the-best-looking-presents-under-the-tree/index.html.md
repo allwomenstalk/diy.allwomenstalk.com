@@ -38,16 +38,16 @@ Do have fun! Check out more Japanese gift wrapping tutorials on YouTube. It’s 
 
 ## Related Posts
 
-- [meaningful christmas tree decorations](https://diy.allwomenstalk.com/diy-christmas-ornaments/)
-- [share the joy of holiday presents](https://lifestyle.allwomenstalk.com/ways-to-share-holiday-joy/)
-- [giving your boss a gift](https://lifestyle.allwomenstalk.com/should-you-buy-a-gift-for-your-boss/)
 - [£10 stocking fillers](https://lifestyle.allwomenstalk.com/stocking-fillers-she-will-love/)
-- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
-- [stocking filler ideas](https://lifestyle.allwomenstalk.com/simple-ideas-for-stocking-fillers-this-christmas/)
-- [thanks for girls](https://lifestyle.allwomenstalk.com/best-girls-stuff-to-buy-at-dollar-tree/)
-- [creative ways to wrap a present](https://diy.allwomenstalk.com/creative-ways-to-gift-wrap-presents/)
-- [diy father's day gifts](https://diy.allwomenstalk.com/diy-fathers-day-gifts/)
 - [friendsmas quotes funny](https://lifestyle.allwomenstalk.com/how-to-celebrate-friendsmas/)
+- [stocking filler ideas](https://lifestyle.allwomenstalk.com/simple-ideas-for-stocking-fillers-this-christmas/)
+- [share the joy of holiday presents](https://lifestyle.allwomenstalk.com/ways-to-share-holiday-joy/)
+- [diy father's day gifts](https://diy.allwomenstalk.com/diy-fathers-day-gifts/)
+- [giving your boss a gift](https://lifestyle.allwomenstalk.com/should-you-buy-a-gift-for-your-boss/)
+- [thanks for girls](https://lifestyle.allwomenstalk.com/best-girls-stuff-to-buy-at-dollar-tree/)
+- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
+- [meaningful christmas tree decorations](https://diy.allwomenstalk.com/diy-christmas-ornaments/)
+- [creative ways to wrap a present](https://diy.allwomenstalk.com/creative-ways-to-gift-wrap-presents/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 - [12 Beautiful DIY Holiday Wreaths ...](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 

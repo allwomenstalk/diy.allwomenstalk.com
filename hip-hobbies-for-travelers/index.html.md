@@ -56,16 +56,16 @@ I know you can consider travel a hobby in itself but there are hobbies that are 
 
 ## Related Posts
 
-- [small island near italy](https://travel.allwomenstalk.com/small-islands-of-italy-for-perfect-escapes/)
-- [what to visit in bermuda](https://travel.allwomenstalk.com/reasons-to-visit-bermuda-for-a-taste-of-island-life/)
-- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
 - [budget cruises](https://travel.allwomenstalk.com/budget-cruises-you-can-afford/)
-- [mcdonald flats campground](https://travel.allwomenstalk.com/campgrounds-in-the-rocky-mountains/)
-- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
-- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
-- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
 - [best adriatic beaches](https://travel.allwomenstalk.com/outstanding-beaches-of-the-adriatic-to-catch-the-rays/)
+- [womens hostels](https://travel.allwomenstalk.com/best-female-hostels-for-girls-on-tour/)
+- [what to visit in bermuda](https://travel.allwomenstalk.com/reasons-to-visit-bermuda-for-a-taste-of-island-life/)
+- [mcdonald flats campground](https://travel.allwomenstalk.com/campgrounds-in-the-rocky-mountains/)
 - [bays in new england](https://travel.allwomenstalk.com/fabulous-beaches-of-new-england/)
+- [book popular tours](https://travel.allwomenstalk.com/tours-for-book-lovers/)
+- [small island near italy](https://travel.allwomenstalk.com/small-islands-of-italy-for-perfect-escapes/)
+- [reasons to visit seychelles](https://travel.allwomenstalk.com/top-reasons-to-visit-the-seychelles/)
+- [places to travel with your best friend](https://travel.allwomenstalk.com/summer-travel-destinations-for-best-friends/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Awesome Ways to Travel on a Budget ...](https://travel.allwomenstalk.com/awesome-ways-to-travel-on-a-budget/)
 

@@ -263,16 +263,16 @@ Are you inspired to pick up a needle and thread - or some fabric and Mod Podge? 
 
 ## Related Posts
 
-- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
-- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
 - [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
-- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
-- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
+- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
+- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
+- [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
 - [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
 - [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
-- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
-- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
+- [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
+- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

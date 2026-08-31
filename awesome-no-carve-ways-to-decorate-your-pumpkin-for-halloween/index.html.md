@@ -74,16 +74,16 @@ Which of these is your favorite?
 
 ## Related Posts
 
-- [cat jack-o'-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
-- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
 - [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
 - [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
-- [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
-- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [cat jack-o'-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 

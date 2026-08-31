@@ -18,16 +18,16 @@ So, consider this tutorial for a festive decoration that takes little time and l
 
 ## Related Posts
 
-- [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
-- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
-- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
-- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
 - [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
-- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
-- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
-- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
-- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
+- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
 - [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
+- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
+- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
+- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
+- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
+- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
+- [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
+- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [7 Great Pieces of Snowman Decor ...](https://allwomenstalk.com/7-great-pieces-of-snowman-decor/)
 - [11 Fantastic DIY Fall Wreaths ...](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 

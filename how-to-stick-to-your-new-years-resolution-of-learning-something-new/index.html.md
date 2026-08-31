@@ -56,16 +56,16 @@ Have you set a **New Year’s resolution to learn something new**?
 
 ## Related Posts
 
-- [17 Realistic New Year's Resolutions for ...](https://inspiration.allwomenstalk.com/realistic-new-years-resolutions/)
 - [Make a Difference in 2019 with These Meaningful Re...](https://inspiration.allwomenstalk.com/make-a-difference-in-with-these-meaningful-resolutions/)
-- [Websites That Will Help You Keep Your New Year's R...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
-- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
-- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
-- [17 New Year's Resolutions That'll Make You Happier...](https://inspiration.allwomenstalk.com/new-years-resolutions-thatll-make-you-happier/)
 - [Check out These Websites to Boost Brain Power 🤓 ....](https://7fun.net/want-to-be-smarter-check-out-these-websites/)
+- [17 New Year's Resolutions That'll Make You Happier...](https://inspiration.allwomenstalk.com/new-years-resolutions-thatll-make-you-happier/)
 - [The Science of Motivation ...](https://inspiration.allwomenstalk.com/the-science-of-motivation/)
-- [Rules for Setting New Year's Resolutions That You'...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
 - [10 Habits That'll Start Your Year off the Right Wa...](https://health.allwomenstalk.com/habits-thatll-start-your-year-off-the-right-way/)
+- [Rules for Setting New Year's Resolutions That You'...](https://inspiration.allwomenstalk.com/rules-for-setting-new-years-resolutions-that-youll-actually-keep/)
+- [Websites That Will Help You Keep Your New Year's R...](https://lifestyle.allwomenstalk.com/websites-that-will-help-keep-your-new-years-resolutions/)
+- [17 Realistic New Year's Resolutions for ...](https://inspiration.allwomenstalk.com/realistic-new-years-resolutions/)
+- [best list maker](https://lifestyle.allwomenstalk.com/become-a-list-maker-and-reap-the-rewards/)
+- [energy makeover](https://health.allwomenstalk.com/the-total-energy-makeover-thatll-change-your-life/)
 - [January Jumpstart: Start the New Year off Right wi...](https://inspiration.allwomenstalk.com/things-to-do-in-january-for-a-great-start-to-the-new-year/)
 - [Small but Vital Changes to Improve Your Life in th...](https://inspiration.allwomenstalk.com/small-changes-to-improve-your-life-in-the-new-year/)
 

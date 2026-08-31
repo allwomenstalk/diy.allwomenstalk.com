@@ -226,16 +226,16 @@ To see more Sugar & Cloth DIY projects, follow @sugarandcloth on Instagram.
 
 ## Related Posts
 
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
 - [hobbies.for.women](https://diy.allwomenstalk.com/empowering-hobbies-for-women/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
-- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
-- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
-- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
-- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
 - [simple to make christmas cards](https://diy.allwomenstalk.com/simple-diy-christmas-cards-that-are-cheap-and-personal/)
+- [grace tkor](https://diy.allwomenstalk.com/christmas-diy/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
+- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
+- [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [10 Cool DIY Dip Dye Craft Projects ...](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 

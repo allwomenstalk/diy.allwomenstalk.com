@@ -56,16 +56,16 @@ I hope you give some of these projects a try! They are great ways to recycle all
 
 ## Related Posts
 
-- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
+- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
+- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
+- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
 - [make own rubber stamp](https://diy.allwomenstalk.com/diy-rubber-stamps-to-get-you-started-on-a-new-craft/)
-- [handkerchief ideas](https://diy.allwomenstalk.com/fabulous-ways-to-repurpose-beautiful-vintage-handkerchiefs/)
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
-- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
 - [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
-- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
-- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
+- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
+- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
 - [7 Creative Things to do with Your Child's Artwork ...](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

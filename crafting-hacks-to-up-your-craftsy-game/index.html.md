@@ -126,16 +126,16 @@ You can even pull it from the center!
 
 ## Related Posts
 
-- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
-- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
-- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
-- [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
-- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
 - [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
 - [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [7 Ways to Learn New Craft Skills ...](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
 

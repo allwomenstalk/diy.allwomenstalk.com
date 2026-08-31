@@ -132,16 +132,16 @@ Which one is your favorite? Will you put it up in your house today?
 
 ## Related Posts
 
-- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
+- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
+- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
 - [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
 - [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
 - [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
-- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
+- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
 - [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
-- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
-- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [10 Great Photo Display Ideas ...](https://allwomenstalk.com/10-great-photo-display-ideas/)
 

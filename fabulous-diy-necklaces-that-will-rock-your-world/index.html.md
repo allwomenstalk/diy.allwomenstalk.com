@@ -244,16 +244,16 @@ Are you inspired to make your own jewelry now? Which project are you going to st
 
 ## Related Posts
 
-- [neon earrings amazon](https://jewelry.allwomenstalk.com/pairs-of-neon-earrings-that-will-rock-your-world/)
 - [pandora bracelet minnie mouse](https://jewelry.allwomenstalk.com/the-prettiest-pieces-from-pandoras-disney-sweethearts-collection/)
 - [summer statement necklaces](https://jewelry.allwomenstalk.com/statement-necklaces-to-complete-your-summery-look/)
-- [buzz lightyear tatoo](https://beauty.allwomenstalk.com/these-3-d-tattoos-are-totally-shocking-you-have-to-see-to-believe/)
 - [are feather earrings cultural appropriation](https://fashion.allwomenstalk.com/this-is-why-feathers-are-the-coolest-accessory-you-could-ever-own/)
 - [inner helix ear](https://jewelry.allwomenstalk.com/types-of-ear-piercings/)
 - [kaira engagement ring](https://jewelry.allwomenstalk.com/perfect-engagement-ring-inspos-every-girl-will-love/)
+- [buzz lightyear tatoo](https://beauty.allwomenstalk.com/these-3-d-tattoos-are-totally-shocking-you-have-to-see-to-believe/)
+- [neon earrings amazon](https://jewelry.allwomenstalk.com/pairs-of-neon-earrings-that-will-rock-your-world/)
 - [festival flower headband](https://hair.allwomenstalk.com/fabulous-coachella-inspired-flower-headbands-and-crowns/)
-- [laser cut gold jewelry](https://jewelry.allwomenstalk.com/the-loveliest-pieces-of-laser-cut-jewelry/)
 - [what tattoos symbolize friendship](https://beauty.allwomenstalk.com/best-friend-tattoos-youll-be-dying-to-have/)
+- [laser cut gold jewelry](https://jewelry.allwomenstalk.com/the-loveliest-pieces-of-laser-cut-jewelry/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [8 Gorgeous Layering Necklaces ...](https://jewelry.allwomenstalk.com/gorgeous-layering-necklaces/)
 

@@ -120,16 +120,16 @@ For the times you need to write things down.
 
 ## Related Posts
 
-- [sparkle and shine carpet cleaning](https://lifestyle.allwomenstalk.com/spring-cleaning-tips-thatll-make-your-house-sparkle/)
-- [handy house cleaning](https://lifestyle.allwomenstalk.com/these-handy-spring-cleaning-infographics-will-help-you-declutter/)
-- [spring clean app](https://apps.allwomenstalk.com/apps-thatll-motivate-you-to-actually-start-your-spring-cleaning/)
-- [how to organise kitchen](https://diy.allwomenstalk.com/organize-your-kitchen-with-these-helpful-products/)
-- [wall storage for crafts](https://diy.allwomenstalk.com/use-these-storage-ideas-to-organize-your-craft-supplies/)
 - [how to avoid makeup caking](https://makeup.allwomenstalk.com/the-trick-to-stopping-your-foundation-from-caking/)
-- [upcycle bags](https://diy.allwomenstalk.com/how-to-upcycle-your-grocery-bags/)
 - [la maximalist eyeshadow blinged brilliant](https://diy.allwomenstalk.com/diy-ways-to-make-your-home-smell-fresh-on-a-budget/)
+- [spring clean app](https://apps.allwomenstalk.com/apps-thatll-motivate-you-to-actually-start-your-spring-cleaning/)
+- [wall storage for crafts](https://diy.allwomenstalk.com/use-these-storage-ideas-to-organize-your-craft-supplies/)
+- [upcycle bags](https://diy.allwomenstalk.com/how-to-upcycle-your-grocery-bags/)
 - [unsubscribe best buy emails](https://lifestyle.allwomenstalk.com/how-to-get-rid-of-all-the-pesky-spam-in-your-inbox/)
+- [handy house cleaning](https://lifestyle.allwomenstalk.com/these-handy-spring-cleaning-infographics-will-help-you-declutter/)
+- [how to organise kitchen](https://diy.allwomenstalk.com/organize-your-kitchen-with-these-helpful-products/)
 - [house cleaning calendar](https://lifestyle.allwomenstalk.com/the-cleaning-calendar-you-can-follow-all-year-long/)
+- [sparkle and shine carpet cleaning](https://lifestyle.allwomenstalk.com/spring-cleaning-tips-thatll-make-your-house-sparkle/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

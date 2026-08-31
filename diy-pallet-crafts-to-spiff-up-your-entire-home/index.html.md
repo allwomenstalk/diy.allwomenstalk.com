@@ -311,16 +311,16 @@ Do you see anything you love? I have a stack of pallets I found, but I can't dec
 
 ## Related Posts
 
-- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
-- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
+- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
+- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
 - [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
+- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
 - [bracelets to make for your bf](https://diy.allwomenstalk.com/amazing-diy-bracelets-you-have-to-check-out/)
 - [cute fall mason jar crafts](https://diy.allwomenstalk.com/marvelous-mason-jar-crafts-you-wont-be-able-to-get-enough-of/)
-- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
-- [schtroumpf crochet](https://diy.allwomenstalk.com/amazing-amigurumi-creations-that-youll-fall-in-love-with/)
-- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
-- [diy skills to learn for beginners](https://diy.allwomenstalk.com/essential-diy-skills-you-should-have/)
+- [essential oil reed diffuser diy](https://diy.allwomenstalk.com/tips-for-making-your-own-reed-diffuser/)
 - [wedding diy invitations](https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/)
+- [good bridesmaid gift ideas](https://wedding.allwomenstalk.com/awesome-diy-bridal-party-gift-ideas/)
+- [teapot birdhouse ideas](https://gardening.allwomenstalk.com/absolutely-fantastic-birdhouses-to-make-your-garden-a-birds-haven/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

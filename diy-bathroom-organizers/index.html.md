@@ -57,12 +57,12 @@ Incorporate all of these creative storage ideas into your bathroom and soon enou
 ## Related Posts
 
 - [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
-- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
 - [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
-- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
+- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
 - [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
 - [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
+- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
 - [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)

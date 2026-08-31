@@ -92,16 +92,16 @@ Ready for some witchy Halloween fun? Give some of these **witch-inspired Hallowe
 
 ## Related Posts
 
-- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
-- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
-- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
-- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
 - [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
-- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [diy halloween decorations ghost](https://diy.allwomenstalk.com/cute-and-creepy-diy-ghost-halloween-decor/)
 - [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [diy halloween mask](https://diy.allwomenstalk.com/diy-halloween-masks-to-make/)
+- [scary cleopatra makeup](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
+- [printable halloween treat boxes](https://diy.allwomenstalk.com/delightful-diy-halloween-treat-boxes-and-wrappers/)
 - [positively glittered](https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/)
+- [what is the most popular halloween costume](https://parenting.allwomenstalk.com/perfectly-classic-halloween-costumes-for-kids/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)
 - [7 Cool Ideas for Pumpkin Decorating This Halloween...](https://allwomenstalk.com/7-cool-ideas-for-pumpkins-this-halloween/)
 

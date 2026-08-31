@@ -398,16 +398,16 @@ So – what do you think? Is origami something you’re going to give a try?
 
 ## Related Posts
 
+- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
+- [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
+- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
 - [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
 - [journal structure ideas](https://diy.allwomenstalk.com/ideas-for-diy-journals-diaries-smash-books-and-all-the-extras/)
-- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
-- [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
-- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

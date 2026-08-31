@@ -196,16 +196,16 @@ Source: [Pinterest Challenge: Gold Leaf Map](https://www.uglyducklinghouse.com/g
 
 ## Related Posts
 
-- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
-- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
-- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
+- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
 - [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
 - [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
-- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
-- [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
-- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
-- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
+- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
+- [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
 - [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
+- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
+- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
+- [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
+- [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
 - [10 Glitzy Pieces to Make You Sparkle on a New Year...](https://allwomenstalk.com/10-glitzy-pieces-to-make-you-sparkle-on-a-new-years-eve/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)
 

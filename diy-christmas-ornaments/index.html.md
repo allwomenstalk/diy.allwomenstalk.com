@@ -64,16 +64,16 @@ Instructions: [allthingsgd.com](https://www.allthingsgd.com/2014/11/mini-gift-bo
 
 ## Related Posts
 
-- [friendsmas quotes funny](https://lifestyle.allwomenstalk.com/how-to-celebrate-friendsmas/)
-- [stocking filler ideas](https://lifestyle.allwomenstalk.com/simple-ideas-for-stocking-fillers-this-christmas/)
-- [what mom's want for mother's day](https://lifestyle.allwomenstalk.com/what-real-moms-want-for-mothers-day/)
 - [thanks for girls](https://lifestyle.allwomenstalk.com/best-girls-stuff-to-buy-at-dollar-tree/)
+- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
+- [brighten people's day](https://lifestyle.allwomenstalk.com/ways-to-brighten-someones-day-2/)
+- [friendsmas quotes funny](https://lifestyle.allwomenstalk.com/how-to-celebrate-friendsmas/)
+- [what mom's want for mother's day](https://lifestyle.allwomenstalk.com/what-real-moms-want-for-mothers-day/)
 - [diy father's day gifts](https://diy.allwomenstalk.com/diy-fathers-day-gifts/)
 - [creative ways to wrap a present](https://diy.allwomenstalk.com/creative-ways-to-gift-wrap-presents/)
-- [brighten people's day](https://lifestyle.allwomenstalk.com/ways-to-brighten-someones-day-2/)
-- [outlander gift ideas](https://love.allwomenstalk.com/outlander-inspired-valentine-s-day-gifts-for-her/)
 - [gift basket assembly](https://diy.allwomenstalk.com/tips-for-creating-gift-baskets-with-a-wow-factor/)
 - [share the joy of holiday presents](https://lifestyle.allwomenstalk.com/ways-to-share-holiday-joy/)
+- [stocking filler ideas](https://lifestyle.allwomenstalk.com/simple-ideas-for-stocking-fillers-this-christmas/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 

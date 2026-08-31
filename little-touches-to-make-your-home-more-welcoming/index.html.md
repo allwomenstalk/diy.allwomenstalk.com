@@ -58,15 +58,15 @@ There are a lot of things you can do to make your home more welcoming. I just me
 
 ## Related Posts
 
-- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
-- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
-- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
 - [homemade thanksgiving centerpieces](https://diy.allwomenstalk.com/stunning-thanksgiving-centerpieces-for-your-dining-room-table/)
-- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
-- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
+- [retropieces](https://lifestyle.allwomenstalk.com/calling-all-90s-kids-retro-pieces-thatll-spice-up-your-pad/)
 - [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
-- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
 - [centerpiecesinspo](https://diy.allwomenstalk.com/ways-to-style-a-thanksgiving-table/)
+- [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
+- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
+- [reviews for article furniture](https://lifestyle.allwomenstalk.com/awesome-couches-for-your-living-room/)
+- [cozy house blankets](https://lifestyle.allwomenstalk.com/cozy-throw-blankets-for-any-spot-in-your-house/)
+- [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
 - [zebra wingback chair](https://lifestyle.allwomenstalk.com/awesome-wingback-chairs-to-make-life-better/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)
 - [10 Pretty Details to Add to Your Home ...](https://allwomenstalk.com/10-pretty-details-to-add-to-your-home/)

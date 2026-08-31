@@ -208,16 +208,16 @@ Fall is such a wonderful time of year that it deserves recognition! The best way
 
 ## Related Posts
 
-- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
-- [leaf placemats ikea](https://diy.allwomenstalk.com/fantastic-ways-to-decorate-with-fall-leaves/)
-- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
-- [sewing room inspo](https://diy.allwomenstalk.com/outstanding-sewing-room-ideas-for-your-space/)
-- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
-- [glam furniture](https://diy.allwomenstalk.com/easy-ways-to-glam-up-cheap-furniture/)
-- [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
 - [how to make london shades](https://diy.allwomenstalk.com/great-window-treatments-for-your-redecorating-project/)
+- [glam furniture](https://diy.allwomenstalk.com/easy-ways-to-glam-up-cheap-furniture/)
+- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
+- [light and dark furniture in same room](https://diy.allwomenstalk.com/home-decor-schemes-incorporating-dark-walls/)
 - [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
+- [sewing room inspo](https://diy.allwomenstalk.com/outstanding-sewing-room-ideas-for-your-space/)
+- [first apartment decor ideas](https://lifestyle.allwomenstalk.com/decorations-for-your-first-apartment/)
+- [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
+- [leaf placemats ikea](https://diy.allwomenstalk.com/fantastic-ways-to-decorate-with-fall-leaves/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)
 - [8 Decorating Ideas for Fall ...](https://lifestyle.allwomenstalk.com/decorating-ideas-for-fall/)
 

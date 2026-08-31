@@ -52,16 +52,16 @@ I know that some of these DIY yard games might cost more than if you bought a re
 
 ## Related Posts
 
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
-- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
 - [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
 - [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
-- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
 - [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
 - [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
+- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Fun Garden Activities for Kids ...](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
 

@@ -56,16 +56,16 @@ So tell me, which of these duct tape crafts for kids is your favorite?
 
 ## Related Posts
 
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
-- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
-- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
-- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
-- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
+- [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
+- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
+- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
+- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

@@ -96,14 +96,14 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 - [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
+- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
 - [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
+- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
-- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
 - [Valentine Project #3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
+- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
-- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
-- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 

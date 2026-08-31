@@ -78,16 +78,16 @@ I love these DIY fairy gardens! I have bowls and tea cups that I want to transfo
 
 ## Related Posts
 
-- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
-- [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
-- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
+- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
 - [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
+- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
+- [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
 - [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
+- [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
+- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
 - [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
 - [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
-- [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

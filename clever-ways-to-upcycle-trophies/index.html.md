@@ -90,15 +90,15 @@ I'm sure you have even more ideas for **repurposing old trophies**. If you canno
 ## Related Posts
 
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
 - [8 Clever Uses for Plastic Bags ...](https://allwomenstalk.com/8-clever-uses-for-plastic-bags/)
 - [8 Ways to Revamp Old Furniture ...](https://allwomenstalk.com/8-ways-to-revamp-old-furniture/)
 

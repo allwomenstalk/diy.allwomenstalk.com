@@ -44,16 +44,16 @@ Borax is an inexpensive product that has been around for ages, and it is easy to
 
 ## Related Posts
 
-- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
-- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [how to prevent muscle fatigue](https://fitness.allwomenstalk.com/ways-to-ease-muscle-fatigue/)
-- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
-- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
-- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
 - [poses that help with period cramps](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
-- [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
+- [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
+- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
 - [fruits and vegetables highest in vitamin c](https://food.allwomenstalk.com/sources-of-vitamin-c-to-help-you-cope-with-stress/)
+- [ayurvedic spices for digestion](https://health.allwomenstalk.com/ayurvedic-spices-that-will-put-an-end-to-your-tummy-troubles/)
+- [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
 - [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
+- [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
+- [how to prevent muscle fatigue](https://fitness.allwomenstalk.com/ways-to-ease-muscle-fatigue/)
+- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
 - [9 Unique Ways to Use Baking Soda ...](https://cooking.allwomenstalk.com/unique-ways-to-use-baking-soda/)
 - [7 Unique Uses for Toothpaste ...](https://allwomenstalk.com/7-unique-uses-for-toothpaste/)
 

@@ -3,7 +3,7 @@ title: "7 Creative Things to Do with Vintage Doilies: Easy DIY Crafts & Decor Id
 description: "Turn Doilies into a Pendant Lamp; Make a Doily Bowl; Give a Tank Top a Doily Makeover; Make Lovely Doily Luminaries; Create a Gorgeous Doily Necklace; More ..."
 url: "https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/"
 category: "diy"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Creative Things to Do with Vintage Doilies: Easy DIY Crafts & Decor Ideas
@@ -76,13 +76,13 @@ The next time you visit a local flea market or unearth a box of old doilies at y
 
 - [how much is pirate glass worth](https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/)
 - [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
-- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
 - [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
-- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
-- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
-- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
-- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
 - [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
+- [flower bashing](https://diy.allwomenstalk.com/fresh-flower-projects-that-are-blooming-awesome/)
+- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
+- [strawberry centerpiece ideas](https://diy.allwomenstalk.com/super-cute-strawberry-inspired-diy-projects/)
+- [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
+- [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
 - [decorating with tulle ideas](https://diy.allwomenstalk.com/things-you-can-make-with-tulle-that-is-not-a-skirt/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)

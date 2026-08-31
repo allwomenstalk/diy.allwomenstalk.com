@@ -3,7 +3,7 @@ title: "10 Adorable Cat DIY Projects ..."
 description: "Black Cat Pillows; Cat Skirt; Cat Shirt; Cat Sweater; Sock Cat; More ..."
 url: "https://diy.allwomenstalk.com/adorable-cat-diy-projects/"
 category: "diy"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 10 Adorable Cat DIY Projects ...
@@ -90,15 +90,15 @@ How delightful are these **cat DIYs**? If you end up making something from this 
 
 ## Related Posts
 
-- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
-- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
-- [9 Cute Ways to Upcycle around Your House ...](https://diy.allwomenstalk.com/cute-ways-to-upcycle-around-your-house/)
-- [11 Cute and Creative DIY Cup Cozies ...](https://diy.allwomenstalk.com/cute-and-creative-diy-cup-cozies/)
+- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
+- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
 - [9 Pretty DIY Wreaths You Can Easily Make Yourself ...](https://diy.allwomenstalk.com/pretty-diy-wreaths-you-can-easily-make-yourself/)
+- [9 Cute Ways to Upcycle around Your House ...](https://diy.allwomenstalk.com/cute-ways-to-upcycle-around-your-house/)
 - [8 Projects for a Beautiful DIY Necklace ...](https://diy.allwomenstalk.com/projects-for-a-beautiful-diy-necklace/)
 - [10 Gorgeous DIY Gilded Craft Projects ...](https://lifestyle.allwomenstalk.com/gorgeous-diy-gilded-craft-projects/)
-- [7 Creative DIY Sneaker Tutorials ...](https://shoes.allwomenstalk.com/creative-diy-sneaker-tutorials/)
-- [8 Incredible DIYs with Polymer Clay ...](https://diy.allwomenstalk.com/incredible-diys-with-polymer-clay/)
+- [11 Cute and Creative DIY Cup Cozies ...](https://diy.allwomenstalk.com/cute-and-creative-diy-cup-cozies/)
+- [crafts using autumn leaves](https://diy.allwomenstalk.com/fun-crafts-using-autumn-leaves/)
+- [8 Kid-Friendly Holiday Crafts to Try ...](https://diy.allwomenstalk.com/kid-friendly-holiday-crafts-to-try/)
 - [loreal color riche eye shadow smoldering](https://diy.allwomenstalk.com/easy-diy-home-decorations/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)

@@ -3,7 +3,7 @@ title: "35 Ways to Recycle Old CDs ..."
 description: "CD Mosaic Mirror; Mosaic Tile Birdbath; CD Art; Mosaic Address Plaque; Votive; More ..."
 url: "https://diy.allwomenstalk.com/ways-to-recycle-old-cds/"
 category: "diy"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 35 Ways to Recycle Old CDs ...
@@ -259,16 +259,16 @@ I’m precious about my CDs and won’t be getting rid of them! I still have all
 
 ## Related Posts
 
-- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
 - [drawer organization ideas](https://diy.allwomenstalk.com/easy-examples-of-drawer-organization-that-will-make-your-life-easier/)
-- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
-- [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
-- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
-- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
-- [the desk apprentice rotating desk organizer](https://lifestyle.allwomenstalk.com/desk-organizers-to-keep-your-stuff-in-order/)
-- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
 - [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
+- [how to fix a zipper on a wallet](https://diy.allwomenstalk.com/things-that-will-unstick-a-stuck-zipper/)
 - [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
+- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
+- [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
+- [the desk apprentice rotating desk organizer](https://lifestyle.allwomenstalk.com/desk-organizers-to-keep-your-stuff-in-order/)
+- [storage bins dollar general](https://diy.allwomenstalk.com/a-trip-to-the-dollar-store-and-you-can-get-your-whole-house-organized/)
+- [cat isn't using litter box](https://lifestyle.allwomenstalk.com/tips-to-try-if-your-cat-isnt-using-his-litter-box/)
+- [sea turtle soap dispenser](https://beauty.allwomenstalk.com/soap-dispensers-to-clean-up-your-act/)
 - [7 Ways to Be Eco-friendly ...](https://lifestyle.allwomenstalk.com/ways-to-be-eco-friendly/)
 - [8 Ways to Pass on Old Books ...](https://allwomenstalk.com/8-ways-to-pass-on-old-books/)
 

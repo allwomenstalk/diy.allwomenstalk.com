@@ -3,7 +3,7 @@ title: "8 Amazing Uses for Old CDs ..."
 description: "Coasters; Room Divider; Clock; Lamp; Disco Ball; More ..."
 url: "https://diy.allwomenstalk.com/amazing-uses-for-old-cds/"
 category: "diy"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 8 Amazing Uses for Old CDs ...
@@ -56,16 +56,16 @@ Top Image Source: [favim.com](https://goo.gl/aBzJzo)
 
 ## Related Posts
 
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
+- [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
 - [7 Ways to Use Milk Cartons ...](https://allwomenstalk.com/7-ways-to-use-milk-cartons/)
 - [7 Cool Uses for Plastic Bags ...](https://allwomenstalk.com/7-cool-uses-for-plastic-bags/)
 

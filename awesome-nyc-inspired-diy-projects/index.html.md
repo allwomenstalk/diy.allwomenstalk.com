@@ -88,16 +88,16 @@ Aren't these **New York-inpsired DIYs** fun? What will you be making from this l
 
 ## Related Posts
 
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
-- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
-- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
-- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
+- [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
+- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
+- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
+- [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
+- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 - [10 Great Travel DIY Projects ...](https://travel.allwomenstalk.com/great-travel-diy-projects/)
 

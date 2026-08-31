@@ -70,16 +70,16 @@ Oh man, these **DIY garden paths** are making me wish that I have a yard or a ga
 
 ## Related Posts
 
-- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
+- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
 - [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
-- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
 - [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
+- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
 - [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
-- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
+- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
 - [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
-- [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [cardboard letters 3d letter decoration ideas](https://diy.allwomenstalk.com/ways-to-craft-with-cardboard-letters/)
 - [5 Amazing Ideas for a Backyard Garden ...](https://gardening.allwomenstalk.com/5-amazing-ideas-for-a-backyard-garden/)
 - [5 Cool Gardening Ideas ...](https://gardening.allwomenstalk.com/5-cool-gardening-ideas/)
 

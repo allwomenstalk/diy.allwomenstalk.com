@@ -286,16 +286,16 @@ Did you know there were such great ways to use ribbons? Do you have a stash just
 
 ## Related Posts
 
-- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
-- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
-- [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
-- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
-- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [initial ideas](https://diy.allwomenstalk.com/initial-crafts-to-make-your-mark-with/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [snow globes diy](https://diy.allwomenstalk.com/diy-snow-globes-to-make-before-christmas/)
+- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [tin man pumpkin ideas](https://diy.allwomenstalk.com/amazing-diy-pumpkins-to-dress-up-your-home/)
 - [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [pilgrim bonnet](https://parenting.allwomenstalk.com/fun-pilgrim-crafts-for-kids-this-thanksgiving/)
+- [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [10 Funky Yarns for Crafters ...](https://allwomenstalk.com/10-funky-yarns-for-crafters/)
 

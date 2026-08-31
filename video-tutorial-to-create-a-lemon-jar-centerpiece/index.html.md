@@ -20,16 +20,16 @@ I hope you like!
 
 ## Related Posts
 
-- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
-- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
-- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
-- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
-- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
-- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
-- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
+- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
 - [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
+- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
+- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
+- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
 - [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
+- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
+- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
+- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

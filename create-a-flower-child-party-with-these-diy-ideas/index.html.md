@@ -83,16 +83,16 @@ Take note, you can also tackle these floral DIY projects even if you are not org
 
 ## Related Posts
 
-- [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
+- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
+- [knick-knacks](https://lifestyle.allwomenstalk.com/cute-knick-knacks-that-double-as-conversation-starters/)
+- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
 - [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
-- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
-- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
-- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
-- [knick-knacks](https://lifestyle.allwomenstalk.com/cute-knick-knacks-that-double-as-conversation-starters/)
 - [decorate for easter](https://diy.allwomenstalk.com/different-ways-to-decorate-your-easter-eggs/)
-- [russian doll painting ideas](https://diy.allwomenstalk.com/nesting-doll-diy-projects-to-keep-you-occupied/)
-- [forest themed party](https://diy.allwomenstalk.com/diy-ideas-for-throwing-a-woodland-themed-party/)
+- [eight pieces dress](https://diy.allwomenstalk.com/pieces-of-baby-clothes-you-can-sew-yourself/)
+- [bracelet for boyfriend diy](https://jewelry.allwomenstalk.com/create-these-diy-bracelets-asap/)
+- [diy birdhouse](https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/)
+- [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
 - [10 Ways to Decorate Your Garden Parties ...](https://allwomenstalk.com/10-ways-to-decorate-your-garden-parties/)
 - [7 Playful Party Decorations ...](https://allwomenstalk.com/7-playful-party-decorations/)
 

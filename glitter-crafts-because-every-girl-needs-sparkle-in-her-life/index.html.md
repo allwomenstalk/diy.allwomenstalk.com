@@ -340,14 +340,14 @@ I'm all sparkled out! What are you going to add glitter to?
 
 - [ferm living remix blanket](https://lifestyle.allwomenstalk.com/give-the-special-lady-in-your-life-the-special-gift-she-deserves/)
 - [mother gift baskets](https://diy.allwomenstalk.com/creative-gift-basket-ideas-for-mom-on-mothers-day/)
-- [portraits of the mind: visualizing the brain from ...](https://lifestyle.allwomenstalk.com/gifts-to-satisfy-any-curious-mind/)
+- [gifts for athletes](https://lifestyle.allwomenstalk.com/gifts-to-get-your-athletes-adrenaline-pumping/)
+- [gifts for ocd men](https://lifestyle.allwomenstalk.com/best-gifts-for-friends-with-obsessive-compulsive-disorder-and-minimalists/)
 - [adventure seeker gifts for him](https://lifestyle.allwomenstalk.com/these-awesome-gifts-are-worthy-of-any-adventure-seeker/)
 - [what gift for teacher appreciation day](https://teen.allwomenstalk.com/teachers-appreciation-day-is-almost-here-gift-ideas-for-your-greatest-professor/)
+- [portraits of the mind: visualizing the brain from ...](https://lifestyle.allwomenstalk.com/gifts-to-satisfy-any-curious-mind/)
 - [typical graduation gifts](https://teen.allwomenstalk.com/the-best-graduation-gifts-that-arent-at-all-cliche/)
-- [gifts for athletes](https://lifestyle.allwomenstalk.com/gifts-to-get-your-athletes-adrenaline-pumping/)
-- [turtle wine pourer](https://lifestyle.allwomenstalk.com/these-are-gifts-worthy-of-any-art-lover/)
 - [practical person](https://lifestyle.allwomenstalk.com/stop-buying-gifts-nobodys-going-to-use-gifts-for-the-practical-person-in-your-life/)
-- [gifts for ocd men](https://lifestyle.allwomenstalk.com/best-gifts-for-friends-with-obsessive-compulsive-disorder-and-minimalists/)
+- [turtle wine pourer](https://lifestyle.allwomenstalk.com/these-are-gifts-worthy-of-any-art-lover/)
 - [Affordable Mother's Day Gifts for Tech Savvy Moms ...](https://allwomenstalk.com/affordable-mothers-day-gifts-for-tech-savvy-moms/)
 - [Mother's Day Gift Ideas ...](https://allwomenstalk.com/mothers-day-gift-ideas/)
 

@@ -80,16 +80,16 @@ How fun are these 3D monogram craft projects? If you have even more ideas, we'd 
 
 ## Related Posts
 
-- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
-- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
-- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
-- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
 - [felt accessories](https://diy.allwomenstalk.com/charming-diy-felt-accessories/)
+- [ways to display kid art](https://diy.allwomenstalk.com/diy-ways-to-display-kids-art/)
 - [flapper beads](https://diy.allwomenstalk.com/steps-to-making-a-diy-flapper-style-long-necklace/)
+- [how to make a cupcake stand from dollar tree](https://diy.allwomenstalk.com/dollar-store-crafts/)
+- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
+- [lego craft](https://diy.allwomenstalk.com/cute-and-fun-diy-lego-craft-projects/)
+- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
 - [summer wreaths for front door diy](https://diy.allwomenstalk.com/delightfully-beautiful-diy-summer-wreaths/)
 - [diy gladiator shoes](https://diy.allwomenstalk.com/sassy-diy-sandal-makeovers/)
-- [wood ball floor lamp](https://diy.allwomenstalk.com/beautifully-unique-diy-floor-lamps/)
-- [fabric bracelet cloth](https://diy.allwomenstalk.com/adorable-and-stylish-fabric-bracelets-to-make/)
+- [diy bracelets ideas](https://diy.allwomenstalk.com/diy-bracelets-to-make-for-your-arm-party/)
 - [6 Ideas for Making Lovely Homemade Cards ...](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

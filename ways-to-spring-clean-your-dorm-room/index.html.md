@@ -44,16 +44,16 @@ Dorm rooms are small so it is easy for them to get cluttered and messy. When we 
 
 ## Related Posts
 
-- [smart bathroom storage ideas](https://diy.allwomenstalk.com/super-simple-bathroom-organization-ideas/)
-- [how to organize a swap party](https://fashion.allwomenstalk.com/tips-for-organising-a-clothes-swap-party/)
 - [why to clean makeup brushes](https://makeup.allwomenstalk.com/reasons-to-clean-your-makeup-brushes/)
+- [how to organize a swap party](https://fashion.allwomenstalk.com/tips-for-organising-a-clothes-swap-party/)
 - [used for wd40](https://diy.allwomenstalk.com/uses-for-wd40-that-proves-its-magic-in-a-can/)
-- [moving address labels](https://diy.allwomenstalk.com/ways-to-use-self-address-labels/)
-- [name a household chores](https://parenting.allwomenstalk.com/household-chores-that-dad-does-best/)
-- [rose petals in bathtub](https://diy.allwomenstalk.com/ways-to-use-rose-petals-in-the-kitchen-and-bathroom/)
-- [dish soap ice pack](https://diy.allwomenstalk.com/neat-uses-for-dishwashing-soap-you-never-knew/)
+- [smart bathroom storage ideas](https://diy.allwomenstalk.com/super-simple-bathroom-organization-ideas/)
 - [things to have in your bathroom](https://beauty.allwomenstalk.com/bathroom-essentials-every-busy-woman-should-have/)
+- [dish soap ice pack](https://diy.allwomenstalk.com/neat-uses-for-dishwashing-soap-you-never-knew/)
+- [moving address labels](https://diy.allwomenstalk.com/ways-to-use-self-address-labels/)
+- [rose petals in bathtub](https://diy.allwomenstalk.com/ways-to-use-rose-petals-in-the-kitchen-and-bathroom/)
 - [findology](https://lifestyle.allwomenstalk.com/very-effective-tips-for-finding-misplaced-objects/)
+- [name a household chores](https://parenting.allwomenstalk.com/household-chores-that-dad-does-best/)
 - [7 Tricks to Speed up Spring Cleaning ...](https://allwomenstalk.com/7-tricks-to-speed-up-spring-cleaning/)
 - [7 Ways to Spring Clean Your Life …](https://allwomenstalk.com/ways-to-spring-clean-your-life/)
 

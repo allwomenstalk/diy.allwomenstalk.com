@@ -68,15 +68,15 @@ I hope you end up using one of these DIY sewing machine cover ideas. I admit tha
 
 ## Related Posts
 
-- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
-- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
 - [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
-- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
-- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
-- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
-- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
 - [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
+- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
+- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
 - [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
+- [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
+- [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
+- [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
+- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
 - [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
 - [7 Cool Pieces of Crochet Clothing ...](https://fashion.allwomenstalk.com/7-cool-pieces-of-crochet-clothing/)
 - [7 Fashionable Cable Knits ...](https://fashion.allwomenstalk.com/7-fashionable-cable-knits/)

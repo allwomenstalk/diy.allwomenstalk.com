@@ -278,16 +278,16 @@ Tiny creations come together quickly and are so fun to have around. Do you see a
 
 ## Related Posts
 
-- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
 - [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
-- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
-- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
-- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
 - [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
-- [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
+- [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
+- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
 - [flowers at giant](https://diy.allwomenstalk.com/delightfully-gorgeous-diy-giant-flowers/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
+- [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
+- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
+- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
 - [8 Great Toys for Your Cat You Can Make ...](https://allwomenstalk.com/8-great-toys-for-your-cat-you-can-make/)
 - [9 More Adorable Pet Crafts ...](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
 

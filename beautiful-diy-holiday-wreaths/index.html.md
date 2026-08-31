@@ -110,16 +110,16 @@ Hope you find plenty of holiday decor inspiration from these **DIY Christmas wre
 
 ## Related Posts
 
-- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
-- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
 - [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
-- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
+- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
+- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
+- [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
+- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
 - [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [11 Fantastic DIY Fall Wreaths ...](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [12 Fabulously Creative DIY Halloween Wreaths ...](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 

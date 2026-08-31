@@ -20,16 +20,16 @@ I hope you liked the video and got inspired.
 
 ## Related Posts
 
-- [shaving cream art](https://diy.allwomenstalk.com/how-to-make-shaving-cream-art/)
 - [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
+- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
+- [shaving cream art](https://diy.allwomenstalk.com/how-to-make-shaving-cream-art/)
+- [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
+- [goodie gifts](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift/)
+- [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
 - [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
 - [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
-- [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
-- [goodie gifts](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift/)
-- [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
-- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
 - [homemade mothers day cards](https://diy.allwomenstalk.com/tutorials-for-homemade-cards-for-mothers-day/)
-- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
+- [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
 - [12 Wonderful DIY Waste Baskets ...](https://lifestyle.allwomenstalk.com/wonderful-diy-waste-baskets/)
 - [11 Fantastic DIY Fall Wreaths ...](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 

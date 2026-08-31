@@ -227,16 +227,16 @@ Time to tell me now - which of these crafty ideas rocks your world?
 
 ## Related Posts
 
-- [shadow box sports memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-college-football-memorabilia-for-any-fan/)
 - [cute stationery stuff](https://lifestyle.allwomenstalk.com/cute-stationery-items-write-up-your-street/)
-- [glitter earphones meme](https://music.allwomenstalk.com/earbuds-that-make-listening-look-good/)
-- [polaroid camera 7](https://lifestyle.allwomenstalk.com/instant-cameras-that-youll-want-to-swap-your-digital-cameras-for/)
-- [how to make a fish tank](https://diy.allwomenstalk.com/everyday-items-turned-into-fish-tanks-and-aquariums/)
-- [lifestyle infographics](https://lifestyle.allwomenstalk.com/lifestyle-infographics-you-wont-know-how-you-lived-without/)
 - [phone anti dust](https://apps.allwomenstalk.com/anti-dust-plugs-for-your-devices-and-gadgets/)
-- [photo gadgets](https://lifestyle.allwomenstalk.com/gadgets-you-need-for-your-camera-bag-stat/)
-- [different size models](https://fashion.allwomenstalk.com/reasons-we-need-different-sized-models/)
+- [glitter earphones meme](https://music.allwomenstalk.com/earbuds-that-make-listening-look-good/)
+- [how to make a fish tank](https://diy.allwomenstalk.com/everyday-items-turned-into-fish-tanks-and-aquariums/)
+- [shadow box sports memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-college-football-memorabilia-for-any-fan/)
 - [presley leather recliner](https://lifestyle.allwomenstalk.com/recliners-for-your-laziest-day/)
+- [lifestyle infographics](https://lifestyle.allwomenstalk.com/lifestyle-infographics-you-wont-know-how-you-lived-without/)
+- [different size models](https://fashion.allwomenstalk.com/reasons-we-need-different-sized-models/)
+- [photo gadgets](https://lifestyle.allwomenstalk.com/gadgets-you-need-for-your-camera-bag-stat/)
+- [polaroid camera 7](https://lifestyle.allwomenstalk.com/instant-cameras-that-youll-want-to-swap-your-digital-cameras-for/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [7 Perfect Crafts for Teens ...](https://allwomenstalk.com/7-perfect-crafts-for-teens/)
 

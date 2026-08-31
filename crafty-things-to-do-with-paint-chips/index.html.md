@@ -215,15 +215,15 @@ Did you know you could do so many things with those little strips of painted car
 
 ## Related Posts
 
-- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
-- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
 - [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
-- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
-- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
-- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
+- [kitchen art printables](https://diy.allwomenstalk.com/whimsical-kitchen-chalkboard-printables-to-download-for-free/)
 - [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
-- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
+- [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
 - [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
+- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
+- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
+- [best gift for tea lovers](https://diy.allwomenstalk.com/sweet-and-lovely-diy-gifts-to-make-for-a-tea-lover/)
+- [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
 - [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)

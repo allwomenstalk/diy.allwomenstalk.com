@@ -66,16 +66,16 @@ These are fantastic recycling ideas! Keep them in mind while you try to finish t
 
 ## Related Posts
 
-- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
+- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
 - [make your own tea towels](https://diy.allwomenstalk.com/sewing-methods-to-make-your-tea-towels-look-terrific/)
-- [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
+- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
 - [skyline project](https://diy.allwomenstalk.com/spectacular-skyline-diy-projects/)
 - [watermelon craft](https://diy.allwomenstalk.com/wonderfully-fun-watermelon-craft-projects/)
-- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
-- [cool drawer handles](https://diy.allwomenstalk.com/beautiful-and-unique-drawer-pulls-and-cabinet-handles-that-you-can-diy/)
-- [west elm bentwood pendant](https://diy.allwomenstalk.com/wonderfully-cheap-and-fun-west-elm-knock-offs-you-can-make/)
+- [pillow talk placemats](https://diy.allwomenstalk.com/incredibly-awesome-things-that-you-can-make-using-place-mats/)
 - [tree ring concrete mold](https://diy.allwomenstalk.com/pour-some-concrete-into-a-mold-and-make-these-gorgeous-diy-projects-for-your-home/)
-- [air dry clay dishes](https://diy.allwomenstalk.com/gorgeous-bowls-that-you-can-make-using-air-dry-clay/)
+- [crafty clothes](https://diy.allwomenstalk.com/ways-to-get-crafty-with-clothespins/)
+- [cute bangles](https://diy.allwomenstalk.com/amazing-ways-you-can-turn-wire-into-beautiful-bangles/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [7 Amazingly Delicious Things You Can do with Marsh...](https://food.allwomenstalk.com/amazingly-delicious-things-you-can-do-with-marshmallows/)
 

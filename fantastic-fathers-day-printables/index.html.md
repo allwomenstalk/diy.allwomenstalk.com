@@ -118,16 +118,16 @@ This article was written in collaboration with editor Neecey Beresford.
 
 ## Related Posts
 
-- [simple christmas gifts for guys](https://diy.allwomenstalk.com/diy-christmas-gifts-for-men/)
-- [lists for guys](https://love.allwomenstalk.com/things-on-your-guys-wish-list/)
-- [cute gift wrapping](https://lifestyle.allwomenstalk.com/cute-gift-wrapping-ideas/)
+- [fan gift ideas for celebrities](https://celebs.allwomenstalk.com/types-of-handmade-gifts-celebs-love-giveaway/)
 - [how to get 3ss in haze piece](https://lifestyle.allwomenstalk.com/christmas-present-ideas-for-seven-types-of-mother-in-laws/)
 - [christmas gifts](https://money.allwomenstalk.com/smart-gifts-for-christmas-that-wont-break-the-bank/)
-- [pop up christmas cards diy](https://diy.allwomenstalk.com/cool-video-tutorials-for-christmas-cards/)
 - [a christmas blessing](https://lifestyle.allwomenstalk.com/ways-to-be-a-christmas-blessing/)
-- [fan gift ideas for celebrities](https://celebs.allwomenstalk.com/types-of-handmade-gifts-celebs-love-giveaway/)
+- [cute gift wrapping](https://lifestyle.allwomenstalk.com/cute-gift-wrapping-ideas/)
 - [best stores to shop for christmas](https://lifestyle.allwomenstalk.com/best-stores-for-holiday-shopping/)
 - [old time christmas gifts](https://lifestyle.allwomenstalk.com/vintage-gift-ideas-for-the-holidays/)
+- [lists for guys](https://love.allwomenstalk.com/things-on-your-guys-wish-list/)
+- [pop up christmas cards diy](https://diy.allwomenstalk.com/cool-video-tutorials-for-christmas-cards/)
+- [simple christmas gifts for guys](https://diy.allwomenstalk.com/diy-christmas-gifts-for-men/)
 - [9 Sweet Gifts to Make for Mother's Day ...](https://allwomenstalk.com/sweet-gifts-to-make-for-mothers-day/)
 - [10 Fun Father's Day Projects ...](https://allwomenstalk.com/fun-fathers-day-projects/)
 

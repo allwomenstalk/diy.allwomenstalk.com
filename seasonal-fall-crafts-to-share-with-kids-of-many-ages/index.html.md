@@ -202,16 +202,16 @@ Do you do craft projects with your children? I have tons of ideas for days when 
 
 ## Related Posts
 
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
 - [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
+- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
 - [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
-- [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 

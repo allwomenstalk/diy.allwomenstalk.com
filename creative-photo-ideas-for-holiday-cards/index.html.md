@@ -56,16 +56,16 @@ Don't be boring. Get up and create a fun holiday card that all of your family an
 
 ## Related Posts
 
+- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
 - [#JustGotJingled: Shoppers Give Back to Strangers i...](https://inspiration.allwomenstalk.com/justgotjingled-shoppers-surprise-strangers-with-gifts/)
 - [46 Funny Christmas T Shirts for Some Festive Giggl...](https://funny.allwomenstalk.com/funny-christmas-t-shirts-for-some-festive-giggles/)
+- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
 - [The Nicest Naughty Bits You'll Ever Find in Your S...](https://fashion.allwomenstalk.com/the-nicest-naughty-bits-youll-ever-find-in-your-stocking/)
+- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
 - [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
 - [Snag a Great Gift for Your Mom for under $25 ...](https://gifts.allwomenstalk.com/great-christmas-gifts-for-your-mom-under-25/)
-- [what to do when someone gives you a gift you don't...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
 - [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
-- [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
-- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
-- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
+- [what to do when someone gives you a gift you don't...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
 - [7 Fun Vacation Ideas ...](https://travel.allwomenstalk.com/fun-vacation-ideas/)
 - [7 Ways to Take Great Photos While Traveling ...](https://travel.allwomenstalk.com/ways-to-take-great-photos-while-traveling/)
 

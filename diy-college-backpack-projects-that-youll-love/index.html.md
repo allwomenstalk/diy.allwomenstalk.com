@@ -57,15 +57,15 @@ You should just have fun with this project. Let you inhibitions go and really ge
 ## Related Posts
 
 - [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
+- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
+- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
+- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
+- [new year's eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
+- [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
+- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
+- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
 - [recycled wood pallets](https://diy.allwomenstalk.com/amazing-ways-to-recycle-wood-pallets/)
 - [tye dye crafts](https://parenting.allwomenstalk.com/fun-tie-dye-crafts-your-kids-will-love/)
-- [new year's eve crafts for adults](https://parenting.allwomenstalk.com/fun-new-years-eve-crafts-kids-will-enjoy/)
-- [how to make a care package](https://diy.allwomenstalk.com/diy-steps-to-creating-a-care-package-for-someone-you-know/)
-- [couples christmas crafts](https://parenting.allwomenstalk.com/creative-christmas-crafts-for-kids-to-try/)
-- [crafts with paper bags](https://diy.allwomenstalk.com/fun-and-creative-paper-bag-crafts-for-kids/)
-- [lampshade ideas](https://diy.allwomenstalk.com/extremely-simple-diy-lampshade-ideas-to-try-today/)
-- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
-- [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
 - [7 Cute Bags for Back to School ...](https://allwomenstalk.com/7-cute-bags-for-back-to-school/)
 - [7 Great Back to School Bags ...](https://allwomenstalk.com/7-great-back-to-school-bags/)
 

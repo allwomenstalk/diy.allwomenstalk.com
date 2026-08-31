@@ -42,16 +42,16 @@ What’s your favorite DIY home décor video? Let me know in the comments, I’m
 
 ## Related Posts
 
-- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
-- [journal structure ideas](https://diy.allwomenstalk.com/ideas-for-diy-journals-diaries-smash-books-and-all-the-extras/)
-- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
-- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
 - [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
+- [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
+- [journal structure ideas](https://diy.allwomenstalk.com/ideas-for-diy-journals-diaries-smash-books-and-all-the-extras/)
+- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
+- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
+- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

@@ -56,15 +56,15 @@ You can pretty much decoupage anything. However, I'm willing to bet you need a l
 
 ## Related Posts
 
+- [unique ideas for headboards](https://diy.allwomenstalk.com/cool-diy-headboard-ideas-for-a-gorgeous-bedroom/)
 - [eclectic style home](https://diy.allwomenstalk.com/ways-to-create-an-eclectic-home/)
+- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
 - [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
 - [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
-- [inexpensive home accessories](https://lifestyle.allwomenstalk.com/places-to-find-affordable-chic-home-decor/)
-- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
-- [unique ideas for headboards](https://diy.allwomenstalk.com/cool-diy-headboard-ideas-for-a-gorgeous-bedroom/)
-- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
 - [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
-- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
+- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
+- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
+- [inexpensive home accessories](https://lifestyle.allwomenstalk.com/places-to-find-affordable-chic-home-decor/)
 - [rec room bow skins](https://diy.allwomenstalk.com/ways-to-brighten-up-your-basement-rec-room/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 - [7 Tips on Making Your Home More Colorful ...](https://allwomenstalk.com/7-tips-on-making-your-home-more-colorful/)

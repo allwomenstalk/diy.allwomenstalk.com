@@ -114,14 +114,14 @@ Oh my gosh, how pretty to wear on St. Patrick's Day!
 
 ## Related Posts
 
-- [How to Make a Designer Bouquet for under $30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
 - [valentine's day room decoration ideas for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts/)
-- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
-- [Video Guide to DIY 🥄Cookies in a Jar ...](https://diy.allwomenstalk.com/cookies-in-a-jar-recipes/)
-- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
 - [diy star wars wood projects](https://diy.allwomenstalk.com/delightful-diy-projects-inspired-by-star-wars/)
-- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
+- [How to Make a Designer Bouquet for under $30 ...](https://wedding.allwomenstalk.com/how-to-make-a-designer-bouquet-for-under-30/)
+- [Video Guide to DIY 🥄Cookies in a Jar ...](https://diy.allwomenstalk.com/cookies-in-a-jar-recipes/)
 - [Crafty Work for Everyone Who Loves to DIY ...](https://diy.allwomenstalk.com/crafty-work-for-everyone-who-loves-to-diy/)
+- [12 Creative DIY Projects to Bring Fall in Your Hom...](https://interior.allwomenstalk.com/diy-projects-to-bring-fall-into-your-home/)
+- [How to Make a Woodwick Candle for Crafty Girls ...](https://diy.allwomenstalk.com/how-to-make-a-woodwick-candle/)
+- [The Simplest DIY Business Card Maker in the World ...](https://money.allwomenstalk.com/diy-business-card-maker/)
 - [Video Guide for How to Make a DIY Pamper Me Jar .....](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-jar/)
 - [15 Crafts to Make and Sell for Quick Money ...](https://diy.allwomenstalk.com/craft-projects-to-make-and-sell/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)

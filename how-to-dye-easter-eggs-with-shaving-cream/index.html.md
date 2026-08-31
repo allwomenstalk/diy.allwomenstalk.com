@@ -28,16 +28,16 @@ Happy Easter.
 
 ## Related Posts
 
-- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
-- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
-- [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
-- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
 - [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
 - [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
+- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
+- [How to Make Your Own Paper ...](https://diy.allwomenstalk.com/how-to-make-your-own-paper/)
+- [6 Spring Crafts for Everyone ...](https://diy.allwomenstalk.com/six-spring-crafts-for-everyone/)
+- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
+- [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [7 Things You Should Know about Dyeing Your Hair .....](https://hair.allwomenstalk.com/things-you-should-know-about-dyeing-your-hair/)
 - [7 Tips to Dye Your Hair Darker ...](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)
 

@@ -61,16 +61,16 @@ NEXT
 
 ## Related Posts
 
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
 - [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
-- [spring/summer fashion trends 2023](https://allwomenstalk.com/spring-summer-fashion-trends/)
-- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
-- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
 - [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
 - [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
+- [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [spring/summer fashion trends 2023](https://allwomenstalk.com/spring-summer-fashion-trends/)
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
+- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
 - [Celebrating Christmas with the Spotted Olive ...](https://lifestyle.allwomenstalk.com/celebrating-christmas-with-the-spotted-olive/)
 - [Christmas is Pink This Year ...](https://allwomenstalk.com/christmas-is-pink-this-year/)
 

@@ -146,16 +146,16 @@ So, what have you got on your needles?
 
 ## Related Posts
 
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
 - [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
-- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
 - [craftsy](https://diy.allwomenstalk.com/crafting-hacks-to-up-your-craftsy-game/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
+- [dua lipa body pillow](https://diy.allwomenstalk.com/diy-unique-and-quirky-cushions-to-make-for-your-home/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [pottery barn puff](https://diy.allwomenstalk.com/gorgeous-pottery-barn-inspired-diy-projects-that-are-easy-to-do/)
 - [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
 - [9 More Adorable Pet Crafts ...](https://lifestyle.allwomenstalk.com/more-adorable-pet-crafts/)
 - [12 Sweet DIY Snowflake Craft Projects ...](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 

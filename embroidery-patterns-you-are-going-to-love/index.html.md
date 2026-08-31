@@ -228,16 +228,16 @@ Do you see a design here you'd like to copy? Please feel free to share your best
 
 ## Related Posts
 
+- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
+- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
 - [diy tennis ball costume](https://diy.allwomenstalk.com/terrific-diy-ideas-to-recycle-tennis-balls/)
+- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
+- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
+- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
 - [printable cross stitch pattern](https://diy.allwomenstalk.com/outstanding-cross-stitch-patterns-to-inspire-your-next-project/)
 - [what are the paint sample cards called](https://diy.allwomenstalk.com/crafty-things-to-do-with-paint-chips/)
-- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
-- [needles at the ready](https://diy.allwomenstalk.com/got-your-needles-ready-knit-or-crochet-projects-for-this-month/)
 - [what are ping pong balls made of](https://diy.allwomenstalk.com/positively-fantastic-ping-pong-ball-crafts/)
-- [solo cup fence art](https://diy.allwomenstalk.com/fun-valentines-day-crafts-you-can-use-to-show-your-love/)
-- [baking tools organizer](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-organize-your-baking-supplies/)
-- [what to stuff a pincushion with](https://diy.allwomenstalk.com/adorable-pincushions-you-can-make-yourself/)
-- [how to sew a sewing machine cover](https://diy.allwomenstalk.com/beautiful-covers-to-sew-for-your-sewing-machine/)
+- [dorm whiteboard ideas](https://diy.allwomenstalk.com/cute-diy-projects-for-your-dorm-room/)
 - [8 Pretty Patchwork Pieces ...](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
 - [10 Lovely Lace Fashion DIY Projects ...](https://fashion.allwomenstalk.com/lovely-lace-fashion-diy-projects/)
 

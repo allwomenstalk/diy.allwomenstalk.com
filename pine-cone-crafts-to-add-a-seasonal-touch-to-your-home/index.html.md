@@ -249,16 +249,16 @@ I'm all enthused now. Who's going pine cone collecting this weekend then?
 
 ## Related Posts
 
-- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
+- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
 - [styrofoam christmas tree craft ideas](https://diy.allwomenstalk.com/diy-christmas-trees-of-all-sorts/)
 - [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
-- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
-- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
 - [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
 - [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
 - [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
+- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [7 DIY Centerpieces for Your Home ...](https://lifestyle.allwomenstalk.com/diy-centerpieces-for-your-home/)
 

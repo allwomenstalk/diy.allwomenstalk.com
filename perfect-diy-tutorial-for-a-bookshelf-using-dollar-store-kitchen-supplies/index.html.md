@@ -24,16 +24,16 @@ I hope you found the video useful and inspiring!
 
 ## Related Posts
 
-- [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
+- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
+- [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
+- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
 - [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
 - [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
+- [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
 - [goodie gifts](https://diy.allwomenstalk.com/diy-coffee-cup-goodie-gift/)
-- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
 - [homemade mothers day cards](https://diy.allwomenstalk.com/tutorials-for-homemade-cards-for-mothers-day/)
 - [shaving cream art](https://diy.allwomenstalk.com/how-to-make-shaving-cream-art/)
 - [easter door wreaths](https://diy.allwomenstalk.com/umbrella-door-wreaths-are-the-cute-easter-decor-you-need/)
-- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
-- [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 - [8 Awesome DIY Pot Racks ...](https://lifestyle.allwomenstalk.com/awesome-diy-pot-racks/)
 

@@ -29,16 +29,16 @@ Have fun!
 
 ## Related Posts
 
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
-- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
-- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
-- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
 - [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
 - [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
-- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
+- [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
 - [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
 - [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
+- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
 - [15 Gorgeous Spring Wreath Ideas ...](https://lifestyle.allwomenstalk.com/gorgeous-spring-wreath-ideas/)
 - [10 Adorable DIY Summer Flip Flops ...](https://lifestyle.allwomenstalk.com/adorable-diy-summer-flip-flops/)
 

@@ -61,16 +61,16 @@ Were you shocked to find out that Coca-Cola can be used for more than just drink
 
 ## Related Posts
 
-- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
 - [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
-- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
 - [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
-- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
 - [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
 - [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
-- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
+- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
+- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
 - [7 Surprising Uses for Lemon ...](https://lifestyle.allwomenstalk.com/surprising-uses-for-lemon/)
 - [7 Interesting Uses for Coffee ...](https://allwomenstalk.com/7-interesting-uses-for-coffee/)
 

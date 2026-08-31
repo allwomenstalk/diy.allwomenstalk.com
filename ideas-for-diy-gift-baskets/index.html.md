@@ -86,16 +86,16 @@ Good luck!
 
 ## Related Posts
 
-- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
-- [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
-- [lydia senn youtube](https://diy.allwomenstalk.com/video-guide-to-low-cost-christmas-gifts-made-with-love/)
-- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
-- [special gift for kids](https://parenting.allwomenstalk.com/great-gift-ideas-for-kids/)
-- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
 - [how to have a more meaningful christmas](https://lifestyle.allwomenstalk.com/how-to-make-your-christmas-gifts-more-meaningful/)
+- [things to get your crush for christmas](https://love.allwomenstalk.com/stellar-tips-for-the-perfect-christmas-gift-for-your-crush/)
 - [best hostess gifts for thanksgiving](https://lifestyle.allwomenstalk.com/thanksgiving-gifts-to-give-your-hostess/)
-- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
 - [pen pal programs elderly uk](https://lifestyle.allwomenstalk.com/seriously-great-ways-to-give-back-this-christmas-in-the-uk/)
+- [special gift for kids](https://parenting.allwomenstalk.com/great-gift-ideas-for-kids/)
+- [cookie gift idea](https://food.allwomenstalk.com/christmas-cookie-gift-ideas/)
+- [thrift store christmas gifts](https://lifestyle.allwomenstalk.com/genius-thrift-store-gift-ideas-for-nice-but-cheap-presents/)
+- [gift basket business cards](https://diy.allwomenstalk.com/everything-you-need-to-know-about-gift-baskets/)
+- [lydia senn youtube](https://diy.allwomenstalk.com/video-guide-to-low-cost-christmas-gifts-made-with-love/)
+- [12 awesome christmas traditions from around the wo...](https://lifestyle.allwomenstalk.com/christmas-traditions-from-around-the-world-to-inspire-you-to-start-your-own/)
 - [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [8 Unbelievably Delectable Homemade Christmas Gift ...](https://lifestyle.allwomenstalk.com/unbelievably-delectable-homemade-christmas-gift-ideas/)
 

@@ -80,16 +80,16 @@ After a long and cold winter, Easter and the signs of spring that are associated
 
 ## Related Posts
 
-- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [dollar tree easter bunny wreath](https://diy.allwomenstalk.com/diy-easter-wreaths/)
 - [simple diy closet organizer](https://diy.allwomenstalk.com/awesome-diy-closet-organizers/)
 - [muddy room ideas](https://diy.allwomenstalk.com/genius-diy-mud-room-or-entryway-projects/)
-- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
-- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
-- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
-- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
-- [diy pin cushions](https://diy.allwomenstalk.com/cute-diy-pin-cushions-to-make/)
 - [mothers day ideas diy](https://diy.allwomenstalk.com/diy-mothers-day-gifts/)
+- [best craft books](https://books.allwomenstalk.com/cute-craft-books/)
+- [dresser decorating ideas](https://diy.allwomenstalk.com/delightfully-chic-diy-dresser-makeovers/)
+- [window box planters ideas](https://diy.allwomenstalk.com/beautiful-diy-window-box-planters/)
+- [diy mosaic walkway](https://diy.allwomenstalk.com/wonderful-diy-walkways-and-garden-paths/)
+- [how to make homemade gift tags](https://diy.allwomenstalk.com/steps-to-making-a-cute-diy-cut-out-gift-tag/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 - [7 Pretty Scrapbooking Embellishments for Easter .....](https://allwomenstalk.com/pretty-scrapbooking-embellishments-for-easter/)
 

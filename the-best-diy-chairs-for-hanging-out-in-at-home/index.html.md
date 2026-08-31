@@ -122,16 +122,16 @@ Source: [updated: Weekly Wanderings – Pallet](http://ww25.sherylsalisburyphoto
 
 ## Related Posts
 
-- [summer home decor](https://lifestyle.allwomenstalk.com/home-decor-ideas-to-give-your-home-some-summer-style/)
-- [origami cute ideas](https://diy.allwomenstalk.com/adorable-origami-designs-to-decorate-your-room-with/)
-- [styling full length mirror](https://diy.allwomenstalk.com/beautiful-full-length-mirrors-that-you-can-diy-for-your-home/)
-- [hanging chair under loft bed](https://lifestyle.allwomenstalk.com/summer-break-is-the-perfect-time-to-put-together-your-dream-dorm-room/)
-- [decorations for memorial day party](https://diy.allwomenstalk.com/heres-how-to-decorate-for-your-memorial-day-party-this-year/)
-- [girl bedroom desk ideas](https://diy.allwomenstalk.com/inspiring-work-tables-for-the-artistic-soul/)
-- [unique trays](https://diy.allwomenstalk.com/unique-and-beautiful-trays-to-make-for-your-home/)
-- [union jack home decor](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-infuse-your-home-with-union-jack-decor/)
 - [nautical railing ideas](https://diy.allwomenstalk.com/amazing-nautical-decorating-ideas-you-can-use-anywhere-you-live/)
+- [unique trays](https://diy.allwomenstalk.com/unique-and-beautiful-trays-to-make-for-your-home/)
+- [summer home decor](https://lifestyle.allwomenstalk.com/home-decor-ideas-to-give-your-home-some-summer-style/)
+- [girl bedroom desk ideas](https://diy.allwomenstalk.com/inspiring-work-tables-for-the-artistic-soul/)
+- [decorations for memorial day party](https://diy.allwomenstalk.com/heres-how-to-decorate-for-your-memorial-day-party-this-year/)
+- [hanging chair under loft bed](https://lifestyle.allwomenstalk.com/summer-break-is-the-perfect-time-to-put-together-your-dream-dorm-room/)
+- [origami cute ideas](https://diy.allwomenstalk.com/adorable-origami-designs-to-decorate-your-room-with/)
 - [how to revamp your room](https://diy.allwomenstalk.com/how-to-completely-revamp-your-room-for-under-50/)
+- [styling full length mirror](https://diy.allwomenstalk.com/beautiful-full-length-mirrors-that-you-can-diy-for-your-home/)
+- [union jack home decor](https://diy.allwomenstalk.com/fantastic-and-crafty-ways-to-infuse-your-home-with-union-jack-decor/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [7 DIY Home Decor Projects ...](https://allwomenstalk.com/7-diy-home-decor-projects/)
 

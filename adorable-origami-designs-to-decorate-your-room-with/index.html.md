@@ -42,16 +42,16 @@ Origami will impress your little cousins, but it'll impress your coworkers, too.
 
 ## Related Posts
 
+- [how to revamp your room](https://diy.allwomenstalk.com/how-to-completely-revamp-your-room-for-under-50/)
 - [girl bedroom desk ideas](https://diy.allwomenstalk.com/inspiring-work-tables-for-the-artistic-soul/)
-- [what to do with flowers](https://gardening.allwomenstalk.com/heres-how-to-enjoy-fresh-flowers-and-plants-on-all-your-windowsills/)
-- [styling full length mirror](https://diy.allwomenstalk.com/beautiful-full-length-mirrors-that-you-can-diy-for-your-home/)
-- [bed risers kmart](https://teen.allwomenstalk.com/this-is-all-the-inspiration-you-need-for-a-fabulous-dorm-room/)
-- [renovate yourself](https://diy.allwomenstalk.com/easy-updates-you-can-make-to-your-home/)
-- [paris color riche le stylo smoky eye avant garde a...](https://makeup.allwomenstalk.com/perfect-pastels-eyepopping-ideas/)
 - [flea market to fabulous](https://diy.allwomenstalk.com/reasons-why-you-should-be-shopping-at-the-flea-market/)
+- [bed risers kmart](https://teen.allwomenstalk.com/this-is-all-the-inspiration-you-need-for-a-fabulous-dorm-room/)
 - [window planter indoor](https://diy.allwomenstalk.com/here-are-some-fabulous-planters-for-your-windowsills-or-balcony/)
 - [hanging chair under loft bed](https://lifestyle.allwomenstalk.com/summer-break-is-the-perfect-time-to-put-together-your-dream-dorm-room/)
-- [how to revamp your room](https://diy.allwomenstalk.com/how-to-completely-revamp-your-room-for-under-50/)
+- [styling full length mirror](https://diy.allwomenstalk.com/beautiful-full-length-mirrors-that-you-can-diy-for-your-home/)
+- [renovate yourself](https://diy.allwomenstalk.com/easy-updates-you-can-make-to-your-home/)
+- [paris color riche le stylo smoky eye avant garde a...](https://makeup.allwomenstalk.com/perfect-pastels-eyepopping-ideas/)
+- [what to do with flowers](https://gardening.allwomenstalk.com/heres-how-to-enjoy-fresh-flowers-and-plants-on-all-your-windowsills/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Quick and Easy Home Decoration Ideas ...](https://allwomenstalk.com/7-quick-and-easy-home-decoration-ideas/)
 

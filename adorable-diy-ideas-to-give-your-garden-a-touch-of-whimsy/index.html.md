@@ -68,16 +68,16 @@ I do not have a green thumb. However, these DIY whimsical garden ideas are somew
 
 ## Related Posts
 
+- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
 - [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
+- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
+- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
+- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
+- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
 - [mid century modern hairpin legs](https://diy.allwomenstalk.com/gorgeous-mid-century-modern-style-furniture-you-can-make-using-hairpin-legs/)
 - [jar minion](https://diy.allwomenstalk.com/turn-up-the-cute-factor-in-your-kids-room-with-these-fun-minion-diy-projects/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
-- [coolest crafts](https://diy.allwomenstalk.com/of-the-best-pinterest-crafts-youve-ever-seen/)
 - [diy feather crafts](https://diy.allwomenstalk.com/create-something-whimsical-and-bohemian-with-one-of-these-diy-feather-crafts/)
-- [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
-- [what to make with wood scraps](https://diy.allwomenstalk.com/save-those-wood-scraps-and-make-these-beautiful-things-for-the-home/)
-- [how to make marbled clay](https://diy.allwomenstalk.com/combine-multi-colored-clay-and-make-these-gorgeous-marbled-diy-accessories/)
-- [how to make concrete table top](https://diy.allwomenstalk.com/beautifully-clever-concrete-furniture-that-you-can-make/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [5 Cool Outdoor Accessories for Your Garden ...](https://gardening.allwomenstalk.com/5-cool-outdoor-accessories-for-your-garden/)
 

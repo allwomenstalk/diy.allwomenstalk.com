@@ -68,16 +68,16 @@ What’s your favorite tip to make a home more cozy? I’m sure we all have our 
 
 ## Related Posts
 
-- [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
-- [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
-- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
-- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
 - [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
-- [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
-- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
-- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
 - [redecorate bathroom](https://diy.allwomenstalk.com/steps-to-redecorating-your-bathroom-for-under-100-total/)
+- [furniture decoupage ideas](https://diy.allwomenstalk.com/cute-decoupage-ideas-that-will-brighten-your-home/)
+- [unique planters](https://gardening.allwomenstalk.com/unique-planters-to-perk-up-any-dreary-space/)
 - [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
+- [learn how to decorate](https://diy.allwomenstalk.com/tips-to-use-when-decorating-your-home-that-anyone-can-learn/)
+- [redecorating bedroom ideas](https://diy.allwomenstalk.com/helpful-tips-to-use-when-redecorating-your-bedroom/)
+- [dorm bed accessories](https://teen.allwomenstalk.com/inviting-accessories-for-your-dorm-room/)
+- [statement furniture pieces](https://lifestyle.allwomenstalk.com/best-statement-pieces-for-your-home/)
+- [7 lamps atlanta](https://lifestyle.allwomenstalk.com/lavish-lamps-to-light-up-the-home/)
 - [9 Home Ideas That Will Solve Your Storage Woes ...](https://allwomenstalk.com/best-home-storage-ideas/)
 - [7 Ways to Make Your House a Home ...](https://allwomenstalk.com/7-ways-to-make-your-house-a-home/)
 

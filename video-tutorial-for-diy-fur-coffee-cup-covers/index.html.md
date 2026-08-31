@@ -35,16 +35,16 @@ Thank you for watching!
 
 ## Related Posts
 
-- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
-- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
 - [water bottles dollar tree](https://diy.allwomenstalk.com/dollar-store-diy-water-bottle-gifts-that-are-cheap-cute/)
-- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
 - [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
-- [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
-- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
-- [koolaid lips](https://beauty.allwomenstalk.com/easy-diy-lip-balm-made-out-of-kool-aid/)
 - [rachhloves green juice](https://diy.allwomenstalk.com/unique-diy-gifts-for-christmas-from-the-dollar-store/)
+- [fall tree diy](https://diy.allwomenstalk.com/how-to-do-a-fall-tree-diy-decor-in-your-home/)
+- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
+- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
+- [wedding flower pots](https://diy.allwomenstalk.com/video-guide-for-diy-miniature-flower-pots/)
 - [homemade christmas jar gifts](https://diy.allwomenstalk.com/simply-genius-diy-christmas-jar-gifts/)
+- [koolaid lips](https://beauty.allwomenstalk.com/easy-diy-lip-balm-made-out-of-kool-aid/)
+- [over the door stocking hanger](https://diy.allwomenstalk.com/festive-floral-christmas-stocking-door-hanger-tutorial/)
 - [7 Video Tutorials on Making Hats ...](https://hair.allwomenstalk.com/video-tutorials-on-making-hats/)
 - [9 Fun Mug Makeovers ...](https://lifestyle.allwomenstalk.com/fun-mug-makeovers/)
 

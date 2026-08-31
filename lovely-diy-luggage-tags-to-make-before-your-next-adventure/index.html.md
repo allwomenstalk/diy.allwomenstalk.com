@@ -56,16 +56,16 @@ I don't know about you, but these DIY luggage tags are making me wish I was goin
 
 ## Related Posts
 
-- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
-- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
-- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
-- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
-- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
 - [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
-- [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
+- [diy industrial floor lamp](https://diy.allwomenstalk.com/chic-diy-industrial-lamps-to-make-for-your-home/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
 - [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
+- [cool hexagon designs](https://diy.allwomenstalk.com/trendy-and-chic-diy-hexagon-craft-projects-for-the-home/)
+- [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
+- [leather accessories diy](https://diy.allwomenstalk.com/fabulous-diy-leather-accessories-you-will-want-to-make/)
 - [reindeer head cardboard](https://diy.allwomenstalk.com/diy-faux-taxidermy-craft-projects-that-are-far-from-creepy/)
+- [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
+- [embellishments scrapbook](https://diy.allwomenstalk.com/unusual-embellishments-to-use-on-your-scrapbook-pages/)
 - [7 Tips for Traveling Light ...](https://travel.allwomenstalk.com/7-tips-for-traveling-light/)
 - [7 Items to Keep in Your Hand Luggage ...](https://travel.allwomenstalk.com/items-to-keep-in-your-hand-luggage/)
 

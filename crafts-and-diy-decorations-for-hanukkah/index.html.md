@@ -214,16 +214,16 @@ Are you ready to get crafting in time for Hanukkah?
 
 ## Related Posts
 
-- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
-- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
+- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
 - [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
 - [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
-- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
-- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
-- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
-- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
 - [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
+- [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
+- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
+- [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
+- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
+- [art made out of magazines](https://diy.allwomenstalk.com/crafty-ways-to-use-old-magazines/)
+- [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
 - [7 Pretty Hanukkah Decorations ...](https://allwomenstalk.com/7-pretty-hanukkah-decorations/)
 - [8 Fabulous DIY Party Decoration Ideas ...](https://lifestyle.allwomenstalk.com/fabulous-diy-party-decoration-ideas/)
 

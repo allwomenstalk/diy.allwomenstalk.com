@@ -292,16 +292,16 @@ There are so many creative ways to craft initials and so many items you can pers
 
 ## Related Posts
 
-- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
-- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
 - [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
-- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
 - [popsicle stick turkey craft](https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/)
-- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
-- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
-- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
 - [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
+- [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
+- [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
+- [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
+- [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
+- [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
+- [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 - [8 Winter Crafts for Kids ...](https://allwomenstalk.com/8-winter-crafts-for-kids/)
 

@@ -262,15 +262,15 @@ Aren't people clever coming up with these great ideas? I've already got my tree 
 
 ## Related Posts
 
-- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
-- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
 - [dollar tree glass bottle](https://diy.allwomenstalk.com/amazing-transformations-of-dollar-store-items/)
-- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
-- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
 - [tension rod shoe rack diy](https://shoes.allwomenstalk.com/delightful-diy-projects-and-hacks-for-shoes/)
+- [hanukkah diy crafts](https://diy.allwomenstalk.com/crafts-and-diy-decorations-for-hanukkah/)
 - [winter mason jar crafts](https://diy.allwomenstalk.com/really-cool-things-to-do-with-mason-jars-this-winter/)
 - [snowman out of tomato cage](https://diy.allwomenstalk.com/snowman-crafts-that-dont-need-snow/)
+- [coolcrafts](https://diy.allwomenstalk.com/suddenly-cool-crafts-youll-want-to-learn-now/)
+- [alternative for christmas tree](https://diy.allwomenstalk.com/very-cool-very-trendy-very-creative-alternative-christmas-trees/)
 - [quilted potholders patterns](https://diy.allwomenstalk.com/diy-pot-holders-to-brighten-up-your-kitchen/)
+- [clark rubber pool noodles](https://diy.allwomenstalk.com/ingenious-ways-to-use-your-noodle-your-pool-noodle-that-is/)
 - [homemade coasters](https://diy.allwomenstalk.com/diy-coasters-that-will-give-you-the-crafting-bug/)
 - [13 Adorably Charming Christmas Gifts for Girls ...](https://lifestyle.allwomenstalk.com/adorably-charming-christmas-gifts-for-girls/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)

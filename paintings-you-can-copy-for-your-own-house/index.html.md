@@ -220,15 +220,15 @@ Are you inspired to start painting right now? I am totally ready to nurture my i
 
 ## Related Posts
 
-- [diy chandelier kit](https://diy.allwomenstalk.com/diy-chandeliers-to-light-up-your-life/)
-- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
-- [covered patio furniture ideas](https://diy.allwomenstalk.com/wait-til-you-see-these-awesome-patio-furniture-ideas/)
-- [upcycled entertainment center ideas](https://diy.allwomenstalk.com/upcycled-furniture-projects-to-try-time-for-trash-picking/)
-- [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
-- [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
 - [book shelf design wall](https://books.allwomenstalk.com/quirky-and-fun-bookshelves-for-your-house/)
+- [covered patio furniture ideas](https://diy.allwomenstalk.com/wait-til-you-see-these-awesome-patio-furniture-ideas/)
+- [aneboda drawers](https://diy.allwomenstalk.com/chest-of-drawer-makeovers-wait-til-you-see-these-brilliant-transformations/)
+- [upcycled entertainment center ideas](https://diy.allwomenstalk.com/upcycled-furniture-projects-to-try-time-for-trash-picking/)
 - [room color inspo](https://diy.allwomenstalk.com/need-color-inspo-these-room-palettes-will-help/)
+- [diy chandelier kit](https://diy.allwomenstalk.com/diy-chandeliers-to-light-up-your-life/)
+- [best primer for liquid foundation](https://makeup.allwomenstalk.com/foundations-with-primer-for-a-perfect-finish/)
 - [marquee letter lights diy](https://diy.allwomenstalk.com/beautiful-marquee-lights-to-make/)
+- [mon chéri cottage style](https://diy.allwomenstalk.com/oh-la-la-french-style-inspiration-for-your-home/)
 - [comfortable swings](https://diy.allwomenstalk.com/relaxing-porch-swings-for-your-relaxing-pleasure/)
 - [7 Vintage Style Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/vintage-style-decorations-for-your-home/)
 - [8 Inspiring Decorations for Your Home ...](https://lifestyle.allwomenstalk.com/inspiring-decorations-for-your-home/)

@@ -70,16 +70,16 @@ I cannot guarantee that these fishing craft projects will make summer come soone
 
 ## Related Posts
 
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
-- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
 - [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
 - [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
+- [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
 - [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
+- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
 - [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
 - [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Perfect Crafts for Teens ...](https://allwomenstalk.com/7-perfect-crafts-for-teens/)
 

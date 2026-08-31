@@ -180,15 +180,15 @@ Which one of these crafts is your favorite? I hope you have a really good time c
 
 ## Related Posts
 
-- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [cat jack-o'-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
 - [frida kahlo custome](https://parenting.allwomenstalk.com/epic-halloween-costumes-for-your-kids/)
-- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
 - [bookworm halloween costume](https://lifestyle.allwomenstalk.com/ideas-for-literary-halloween-costumes/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
+- [cat jack-o'-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [decorate your pumpkin](https://diy.allwomenstalk.com/awesome-no-carve-ways-to-decorate-your-pumpkin-for-halloween/)
+- [halloween coffee art](https://food.allwomenstalk.com/this-baristas-spooky-latte-art-is-perfect-for-the-halloween-season/)
+- [halloween lip](https://beauty.allwomenstalk.com/fantastically-creepy-halloween-lip-art-to-recreate-this-year/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
 - [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Halloween Crafts to do with Your Child ...](https://allwomenstalk.com/7-halloween-crafts-to-do-with-your-child/)

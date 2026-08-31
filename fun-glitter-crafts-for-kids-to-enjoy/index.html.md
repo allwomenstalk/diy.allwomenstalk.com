@@ -54,15 +54,15 @@ What are some glitter crafts for kids that you’ll be tackling this weekend?
 
 ## Related Posts
 
-- [7 Creative Ombre Craft Projects to Try ...](https://diy.allwomenstalk.com/creative-ombre-craft-projects-to-try/)
-- [cool art for teens](https://diy.allwomenstalk.com/awesome-diy-decor-ideas-for-teens/)
-- [7 Adorable Valentine's Day Crafts Your Kids Will L...](https://diy.allwomenstalk.com/adorable-valentines-day-crafts-your-kids-will-love/)
-- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
-- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
 - [baby easter crafts](https://diy.allwomenstalk.com/simple-easter-crafts-to-do-with-your-kids/)
+- [7 Adorable Valentine's Day Crafts Your Kids Will L...](https://diy.allwomenstalk.com/adorable-valentines-day-crafts-your-kids-will-love/)
+- [7 Creative Easter Egg Projects the Artsy Girl Need...](https://diy.allwomenstalk.com/creative-easter-egg-projects/)
+- [7 Creative Ombre Craft Projects to Try ...](https://diy.allwomenstalk.com/creative-ombre-craft-projects-to-try/)
 - [loreal color le stylo eye unforgettable lilac](https://diy.allwomenstalk.com/cool-diy-projects-to-make-with-a-rope/)
-- [7 Different Stitches You Can Use While Knitting .....](https://diy.allwomenstalk.com/different-stitches-you-can-use-while-knitting/)
 - [7 Last-Minute DIY Valentine Banners That Are Quick...](https://diy.allwomenstalk.com/last-minute-diy-valentine-banners-that-are-quick-and-easy-to-make/)
+- [cool art for teens](https://diy.allwomenstalk.com/awesome-diy-decor-ideas-for-teens/)
+- [how to tuft a headboard](https://diy.allwomenstalk.com/diy-tips-on-how-to-make-a-tufted-headboard/)
+- [7 Different Stitches You Can Use While Knitting .....](https://diy.allwomenstalk.com/different-stitches-you-can-use-while-knitting/)
 - [7 Totally Cool Things You Can Find on Pinterest .....](https://diy.allwomenstalk.com/totally-cool-things-you-can-find-on-pinterest/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Perfect Crafts for Teens ...](https://allwomenstalk.com/7-perfect-crafts-for-teens/)

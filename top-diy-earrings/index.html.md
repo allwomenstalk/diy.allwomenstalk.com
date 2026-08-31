@@ -62,14 +62,14 @@ Did you like my list of DIY earrings? Which ones do you plan on doing this weeke
 
 ## Related Posts
 
-- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
 - [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
 - [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
 - [10 Creative DIY Jewelry Tutorials to Check out ...](https://jewelry.allwomenstalk.com/creative-diy-jewelry-tutorials-to-check-out/)

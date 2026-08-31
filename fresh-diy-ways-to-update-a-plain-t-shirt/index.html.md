@@ -56,16 +56,16 @@ These are just a few ways that you could update a basic tee. A quick Internet se
 
 ## Related Posts
 
-- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
-- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
 - [diy fabric baskets](https://diy.allwomenstalk.com/diy-fabric-baskets-for-keeping-your-home-beautifully-organized/)
-- [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
-- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
-- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
-- [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)
-- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
-- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
 - [toys from cardboard](https://diy.allwomenstalk.com/incredibly-cool-toys-you-can-make-using-cardboard/)
+- [black tape project diy](https://diy.allwomenstalk.com/diy-duct-tape-projects-you-should-try-now/)
+- [mother daughter activites](https://parenting.allwomenstalk.com/awesome-mother-and-daughter-projects-to-start-today/)
+- [pinterest diys](https://diy.allwomenstalk.com/pretty-pink-pinterest-diys/)
+- [diyeverywhere.com gardening](https://diy.allwomenstalk.com/awesome-diy-planters-that-will-breathe-life-into-your-home/)
+- [thanksgiving day crafts for kids](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
+- [make your own boyfriend game](https://love.allwomenstalk.com/crafty-games-to-create-for-your-man/)
+- [how to make your backpack look cute](https://diy.allwomenstalk.com/diy-college-backpack-projects-that-youll-love/)
+- [utterly magical](https://diy.allwomenstalk.com/miniature-faerie-crafts-that-are-utterly-magical/)
 - [7 Ways to Dress up Your Jeans ...](https://allwomenstalk.com/7-ways-to-dress-up-your-jeans/)
 - [7 DIY Clothing Ideas ...](https://allwomenstalk.com/diy-clothing-ideas/)
 

@@ -90,14 +90,14 @@ If you have other fun and fabulous ideas for making** DIY Halloween lanterns and
 
 ## Related Posts
 
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
-- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
-- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
+- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
+- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
 - [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 - [9 Great Halloween Decorations ...](https://allwomenstalk.com/9-great-halloween-decorations/)

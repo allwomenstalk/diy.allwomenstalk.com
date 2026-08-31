@@ -76,15 +76,15 @@ Hope you end up making something from this list of **handmade crowns**! Go ahead
 
 ## Related Posts
 
-- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 - [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
 - [7 Sparkly Tiaras ...](https://jewelry.allwomenstalk.com/sparkly-tiaras/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)

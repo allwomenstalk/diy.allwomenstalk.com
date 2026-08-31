@@ -56,16 +56,16 @@ Do you love glitter? What will you do with your leftovers?
 
 ## Related Posts
 
-- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
-- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
-- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
-- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
-- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
+- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
+- [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
 - [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
+- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
+- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
+- [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
+- [do it yourself gifts for boyfriend](https://diy.allwomenstalk.com/creative-diy-gifts-for-your-boyfriend/)
 - [7 Best Uses for Chalkboard Paint ...](https://lifestyle.allwomenstalk.com/best-uses-for-chalkboard-paint/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

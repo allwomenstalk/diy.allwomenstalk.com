@@ -224,14 +224,14 @@ Source: [Creative DIY stuff - Everydaytalks.com](https://goo.gl/2UONHu)
 
 ## Related Posts
 
+- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
+- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
+- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
 - [dating buttons by shank](https://diy.allwomenstalk.com/delightful-ways-to-make-use-of-buttons-in-making-diy-jewelry/)
 - [emoji for projects](https://diy.allwomenstalk.com/emoji-diy-projects-to-express-all-your-crafty-feels/)
 - [leather hanging planters](https://diy.allwomenstalk.com/beautifully-unique-methods-for-making-diy-hanging-planters/)
-- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
-- [things to make out of sticks](https://diy.allwomenstalk.com/awesome-diy-projects-using-twigs-and-branches/)
-- [craft ideas using wooden clothes pegs](https://diy.allwomenstalk.com/absolutely-cute-and-fun-things-to-do-with-wooden-clothespins/)
 - [tin design](https://diy.allwomenstalk.com/crafty-ways-to-upcycle-beautiful-vintage-tins/)
-- [how to make small books](https://diy.allwomenstalk.com/insanely-adorable-diy-miniature-books-and-notebooks/)
+- [earbud holder diy](https://diy.allwomenstalk.com/buh-bye-tangled-mess-organize-your-earbuds-with-these-diy-projects/)
 - [gold leaf art ideas](https://diy.allwomenstalk.com/gold-leaf-diys-that-bring-the-bling-to-your-life/)
 - [things to do with doilies](https://diy.allwomenstalk.com/beautifully-clever-ways-to-craft-with-vintage-doilies/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)

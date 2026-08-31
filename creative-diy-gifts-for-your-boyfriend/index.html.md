@@ -63,16 +63,16 @@ What are some DIY gifts you have made for your boyfriend or husband? Would you m
 
 ## Related Posts
 
-- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
-- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
-- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
-- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
-- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
 - [how to make mod podge](https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/)
-- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
-- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
 - [make a throw](https://diy.allwomenstalk.com/beautiful-diy-throws-for-you-to-make/)
+- [jar craft](https://diy.allwomenstalk.com/creative-mason-jar-diy-ideas-for-teens/)
 - [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [valentine ideas for kids](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
+- [crafts with canvases](https://diy.allwomenstalk.com/creative-diy-canvas-art-projects-to-try/)
+- [projects with old books](https://diy.allwomenstalk.com/amazing-projects-to-make-from-old-books/)
+- [yv craft supplies](https://diy.allwomenstalk.com/cool-ways-to-organize-your-craft-supplies/)
+- [super easy sewing projects](https://diy.allwomenstalk.com/unbelievably-easy-beginners-sewing-projects-youll-love-to-try/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [6 Unique Gift Ideas for Your Partner ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-partner/)
 

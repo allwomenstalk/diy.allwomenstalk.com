@@ -69,15 +69,15 @@ I love the DIY denim recycling projects for making baskets and bowls. How about 
 ## Related Posts
 
 - [leather scrap ideas](https://diy.allwomenstalk.com/got-scrap-leather-lying-around-whip-up-these-easy-diy-projects/)
-- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
-- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
-- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
 - [washi tape decor ideas](https://diy.allwomenstalk.com/ways-to-decorate-with-washi-tape/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
 - [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
+- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
 - [legos cool](https://diy.allwomenstalk.com/cool-ways-to-use-legos/)
 - [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Things to do with Your Old Jeans ...](https://fashion.allwomenstalk.com/things-to-do-with-your-old-jeans/)
 

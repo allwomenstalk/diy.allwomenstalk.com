@@ -84,16 +84,16 @@ What a fantastic set of craft inspiration! Would you be making something from th
 
 ## Related Posts
 
-- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
 - [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
-- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
 - [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [making jewelry out of clay](https://diy.allwomenstalk.com/diy-fimo-clay-jewelry-making-projects/)
+- [good silver project](https://diy.allwomenstalk.com/stunning-silver-diy-projects/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [9 Fun and Easy Easter Projects ...](https://allwomenstalk.com/10-fun-and-easy-easter-projects/)
 

@@ -68,16 +68,16 @@ Now you're all set for Halloween, fun outfit-of-the-days, a kiddie party, and pe
 
 ## Related Posts
 
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
+- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
+- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
 - [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
 - [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
-- [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
-- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
 - [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
-- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

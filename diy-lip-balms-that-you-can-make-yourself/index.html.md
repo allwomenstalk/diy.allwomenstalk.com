@@ -92,16 +92,16 @@ Go ahead and discard your old store-bought tubes or plastic tubs. Grab some bees
 
 ## Related Posts
 
-- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
-- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
-- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
-- [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
-- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
-- [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
-- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
-- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
 - [what shade of lipstick should i wear](https://makeup.allwomenstalk.com/which-lipstick-shade-should-you-use/)
+- [sephora smashbox matte lipstick](https://makeup.allwomenstalk.com/get-your-pucker-on-with-these-matte-lipstick-shades-for-summer/)
+- [glossiest lips](https://makeup.allwomenstalk.com/these-are-the-glossiest-lip-glosses-for-summer/)
+- [loreal paris color riche smoky eye spark](https://makeup.allwomenstalk.com/how-to-look-sexy-in-sheer-lipstick/)
+- [lipstick colors pink](https://makeup.allwomenstalk.com/hot-ways-to-wear-pink-lipstick-now/)
 - [bright pink lipstick](https://makeup.allwomenstalk.com/pop-one-of-these-is-your-new-favorite-bubble-gum-pink-lipstick/)
+- [loreal riche le eye always pearly pink](https://makeup.allwomenstalk.com/pink-lip-looks-from-date-nights-to-school-days/)
+- [how to store lipstick in hot weather](https://makeup.allwomenstalk.com/here-is-how-to-keep-your-lipstick-in-place-all-summer-long/)
+- [thin lips girl personality](https://beauty.allwomenstalk.com/why-having-thin-lips-is-actually-hot/)
+- [how to make lip scub](https://diy.allwomenstalk.com/incredible-lips-scrubs-that-you-can-make/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [10 Best Lip Balms for Winter ...](https://allwomenstalk.com/10-best-lip-balms-for-winter/)
 

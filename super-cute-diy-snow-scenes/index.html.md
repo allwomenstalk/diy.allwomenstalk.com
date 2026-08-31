@@ -74,16 +74,16 @@ I think I have died and gone to kawaii heaven. Aren't these **DIY winter scenes*
 
 ## Related Posts
 
+- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
+- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
+- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
+- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
+- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
 - [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [cute hats](https://diy.allwomenstalk.com/cute-and-chic-diy-hats-and-caps-to-make/)
-- [valentines decorations diy](https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/)
-- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
-- [thanksgiving diy wreath](https://diy.allwomenstalk.com/beautiful-diy-thanksgiving-wreaths/)
-- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
-- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
-- [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [diy owl](https://diy.allwomenstalk.com/diy-owl-crafts-to-make/)
+- [diy candle projects](https://diy.allwomenstalk.com/gorgeous-diy-holiday-candle-projects/)
+- [how to make candle holders](https://diy.allwomenstalk.com/beautiful-diy-votive-candle-holders/)
 - [8 Garden Decorating Ideas for the Holidays ...](https://gardening.allwomenstalk.com/garden-decorating-ideas-for-the-holidays/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

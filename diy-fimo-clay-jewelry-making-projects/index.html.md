@@ -48,16 +48,16 @@ Top Image Source: _beadingdaily.com_
 
 ## Related Posts
 
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
 - [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
 - [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [snowflake diy decorations](https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [7 Pieces of Jewelry You Can Make on Your Own ...](https://jewelry.allwomenstalk.com/pieces-of-jewelry-you-can-make-on-your-own/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 

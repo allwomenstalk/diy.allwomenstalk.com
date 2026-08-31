@@ -20,16 +20,16 @@ I hope you found the video interesting!
 
 ## Related Posts
 
-- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
-- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
-- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
 - [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
-- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
 - [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
-- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
-- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
 - [candy cane costume diy](https://diy.allwomenstalk.com/cristina-ferrares-diy-candy-cane-vase/)
 - [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
+- [candy basket diy](https://diy.allwomenstalk.com/diy-candy-bouquet/)
+- [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
+- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
+- [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
+- [unique soup bowls](https://diy.allwomenstalk.com/a-souper-diy/)
+- [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
 - [11 Cute Craft Projects Using Cupcake Liners ...](https://lifestyle.allwomenstalk.com/cute-craft-projects-using-cupcake-liners/)
 - [10 Adorable DIY Paper Ornaments ...](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 

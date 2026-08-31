@@ -171,16 +171,16 @@ Which one will you send out this year?
 
 ## Related Posts
 
-- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
 - [teenagers trick or treating](https://lifestyle.allwomenstalk.com/alternatives-to-trick-or-treating-for-teens/)
-- [cute halloween face paint ideas](https://makeup.allwomenstalk.com/face-painting-ideas-that-will-take-your-costume-to-a-whole-new-level/)
-- [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
-- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
-- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
-- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
-- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
 - [halloween victoria's secret](https://lifestyle.allwomenstalk.com/sexy-victoria-secret-inspired-halloween-costumes/)
+- [dollar tree witch hat wreath](https://diy.allwomenstalk.com/halloween-wreaths-to-decorate-your-door/)
+- [cute halloween face paint ideas](https://makeup.allwomenstalk.com/face-painting-ideas-that-will-take-your-costume-to-a-whole-new-level/)
+- [friday 13th prank](https://lifestyle.allwomenstalk.com/halloween-pranks-thatll-make-you-howl-with-laughter/)
+- [crush halloween costume](https://love.allwomenstalk.com/how-to-handle-a-halloween-party-with-your-crush/)
+- [halloween crazy hair ideas](https://hair.allwomenstalk.com/hair-ideas-you-can-only-get-away-with-on-halloween/)
 - [decoration halloween cupcake](https://food.allwomenstalk.com/the-spookiest-way-to-decorate-your-halloween-cupcakes/)
+- [costumes in your closet](https://fashion.allwomenstalk.com/make-these-halloween-costumes-with-items-you-already-have-in-your-closet/)
+- [funny costumes group](https://lifestyle.allwomenstalk.com/the-most-ridiculous-group-costumes-for-you-and-your-squad/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 - [Awesome Invitations and a Little Inspiration ...](https://allwomenstalk.com/awesome-invitations-and-a-little-inspiration/)
 

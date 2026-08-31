@@ -94,16 +94,16 @@ This article was written in collaboration with editor Jennifer Knightstep.
 
 ## Related Posts
 
-- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
 - [10 Fabulous DIY Fashion Ideas ...](https://fashion.allwomenstalk.com/fabulous-diy-fashion-ideas/)
-- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
-- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
-- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
-- [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
-- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
 - [Valentine Project #3: Diane Clothespin](https://allwomenstalk.com/valentine-project-3-diane-clothespin/)
-- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
 - [site:allwomenstalk.com](https://allwomenstalk.com/stitch-and-craft/)
+- [6 Adorable Handmade Crocheted Hats for Kids ...](https://fashion.allwomenstalk.com/adorable-handmade-crocheted-hats-for-kids/)
+- [unique homemade christmas ornaments](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
+- [jeffrey campbell patchwork boots](https://fashion.allwomenstalk.com/pretty-patchwork-pieces/)
+- [bargain scrapbook supplies](https://allwomenstalk.com/frugal-scrapbooking/)
+- [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
+- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room-the-mad-cropper/)
+- [Make a Craft Room ...](https://allwomenstalk.com/make-a-craft-room/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 

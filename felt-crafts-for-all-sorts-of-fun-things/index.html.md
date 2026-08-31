@@ -345,16 +345,16 @@ So, are you tempted to try your hand at any of these felt crafts?
 
 ## Related Posts
 
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
-- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
-- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
-- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

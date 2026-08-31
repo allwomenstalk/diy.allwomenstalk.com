@@ -48,16 +48,16 @@ Make a cute curtain tieback using a fork. Drill a hole about an inch in from the
 
 ## Related Posts
 
-- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
-- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
-- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
-- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
-- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
-- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
-- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
-- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
-- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
 - [precious couture](https://parenting.allwomenstalk.com/giveaway-contest-handmade-knit-baby-hat-by-kids-precious-couture/)
+- [simply shawna etsy store](https://lifestyle.allwomenstalk.com/things-to-learn-about-etsy-shop-red-marionette/)
+- [uses for bobby pins](https://hair.allwomenstalk.com/things-you-can-do-with-bobby-pins/)
+- [homemade card idea](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
+- [july craft ideas](https://lifestyle.allwomenstalk.com/fun-and-easy-diy-4th-of-july-craft-projects/)
+- [7 Tutorials on Making DIY Hair Accessories ...](https://hair.allwomenstalk.com/tutorials-on-making-diy-hair-accessories/)
+- [craft to learn](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
+- [cheap diy wedding centerpieces](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
+- [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)
+- [christmas giveaway banner](https://lifestyle.allwomenstalk.com/giveaway-contest-handmade-holiday-banner/)
 - [6 Crafty Ideas to Share with the Kids ...](https://lifestyle.allwomenstalk.com/crafty-ideas-to-share-with-the-kids/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 

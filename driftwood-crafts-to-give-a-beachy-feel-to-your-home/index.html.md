@@ -240,16 +240,16 @@ Are you a beachcomber? What do you like to collect? I think I might start on sea
 
 ## Related Posts
 
-- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
-- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
 - [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
+- [fabric glue for curtains](https://diy.allwomenstalk.com/no-sew-curtains-that-you-can-make-for-your-home/)
 - [bathroom shower curtain design ideas](https://lifestyle.allwomenstalk.com/fantastic-shower-curtains-to-spice-up-your-bathroom/)
+- [cute storage](https://diy.allwomenstalk.com/clever-and-cute-storage-solutions-for-a-kids-room/)
+- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
+- [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
+- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
 - [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
 - [tea towel display ideas](https://food.allwomenstalk.com/adorable-tea-towels-to-make-your-kitchen-stand-out/)
-- [cute storage](https://diy.allwomenstalk.com/clever-and-cute-storage-solutions-for-a-kids-room/)
-- [fabric glue for curtains](https://diy.allwomenstalk.com/no-sew-curtains-that-you-can-make-for-your-home/)
-- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
-- [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
 - [10 Pretty Pieces to Bring the Beach into Your Home...](https://allwomenstalk.com/10-pretty-pieces-to-bring-the-beach-into-your-home/)
 - [8 Beach-Themed Projects for the Home ...](https://allwomenstalk.com/beach-themed-projects-for-the-home/)
 

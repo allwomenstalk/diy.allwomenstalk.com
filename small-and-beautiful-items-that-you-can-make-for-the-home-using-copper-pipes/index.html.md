@@ -71,15 +71,15 @@ I think I want to try the lamp or sconce idea from this list of DIY copper pipe 
 ## Related Posts
 
 - [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
 - [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
+- [diy moon](https://diy.allwomenstalk.com/gorgeous-moon-themed-diy-projects/)
+- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
 - [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
 - [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
-- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
 - [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
-- [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
+- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
 - [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
+- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
 - [8 Beautiful Vases for Your Home ...](https://allwomenstalk.com/8-beautiful-vases-for-your-home/)
 - [10 Pretty Details to Add to Your Home ...](https://allwomenstalk.com/10-pretty-details-to-add-to-your-home/)
 

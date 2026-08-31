@@ -18,15 +18,15 @@ Whether you are planning ahead for Christmas or are going to be running a bit la
 
 ## Related Posts
 
+- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
 - [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
+- [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
 - [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
 - [jar of encouragement](https://diy.allwomenstalk.com/diy-encouragement-jars/)
-- [garbage bag wreath instructions](https://diy.allwomenstalk.com/diy-seasonal-wreaths-made-from-trash-bags/)
 - [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
-- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
-- [how to wrap wine bottle with tea towel](https://diy.allwomenstalk.com/how-to-gift-wrap-a-bottle-with-a-tea-towel/)
 - [diy tree bookshelf](https://diy.allwomenstalk.com/perfect-diy-tutorial-for-a-bookshelf-using-dollar-store-kitchen-supplies/)
+- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
 - [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
 - [11 Cute Candy Cane Christmas Crafts ...](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
 - [9 Cute DIY Gift Jars to Make Your Loved Ones ...](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)

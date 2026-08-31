@@ -30,16 +30,16 @@ I hope you found this wreath tutorial to be ... Cute!
 
 ## Related Posts
 
-- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
 - [DIY Weekend- Mike & Chris Hoodie ...](https://allwomenstalk.com/diy-weekend-mike-chris-hoodie/)
-- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
-- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
-- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
-- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
-- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
 - [making easter baskets](https://diy.allwomenstalk.com/how-to-make-easter-gift-baskets/)
+- [8 Christmas Craft Creations: Delightful DIY Gifts ...](https://gifts.allwomenstalk.com/kid-crafts-for-christmas-gifts/)
+- [Frugal Scrapbooking](https://allwomenstalk.com/frugal-scrapbooking-the-mad-cropper/)
 - [DIY Invitations...](https://allwomenstalk.com/diy-invitations/)
+- [diy woodworking christmas gifts](https://diy.allwomenstalk.com/diy-wooden-christmas-gifts/)
 - [Catchy Christmas Crafts: Delightful DIY Gifts & De...](https://gifts.allwomenstalk.com/arts-and-crafts-christmas-gifts/)
+- [best camp crafts](https://parenting.allwomenstalk.com/maplewood-country-day-camps-best-crafts-for-kids/)
+- [Putting It Together - Florals for Amy ...](https://allwomenstalk.com/putting-it-together-florals-for-amy/)
+- [christmas projects for adults](https://diy.allwomenstalk.com/christmas-crafts-for-adults/)
 - [10 Prettiest Easter Decor Items ...](https://allwomenstalk.com/10-prettiest-easter-decor-items/)
 - [15 Gorgeous Spring Wreath Ideas ...](https://lifestyle.allwomenstalk.com/gorgeous-spring-wreath-ideas/)
 

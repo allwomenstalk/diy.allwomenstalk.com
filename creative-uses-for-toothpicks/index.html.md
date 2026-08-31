@@ -42,16 +42,16 @@ Who knew toothpicks had so many uses? And let me tell you – there are plenty m
 
 ## Related Posts
 
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
 - [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
 - [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
-- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
-- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
 - [diy yard games for adults](https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/)
+- [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
+- [debi's design diary youtube](https://diy.allwomenstalk.com/crafty-youtube-channels-you-should-follow/)
+- [homemade gift jars](https://diy.allwomenstalk.com/cute-diy-gift-jars-to-make-your-loved-ones/)
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 - [7 Ways to Use Milk Cartons ...](https://allwomenstalk.com/7-ways-to-use-milk-cartons/)
 

@@ -132,16 +132,16 @@ From $26.00 at [shop.nordstrom.com](http://shop.nordstrom.com?ref=allwomenstalk.
 
 ## Related Posts
 
-- [harry potter lamp shades](https://teen.allwomenstalk.com/things-you-need-for-a-harry-potter-bedroom/)
-- [boho chic room decor](https://diy.allwomenstalk.com/boho-chic-decor-ideas/)
-- [office cube accessories](https://diy.allwomenstalk.com/easy-ways-to-pimp-up-your-office-space/)
-- [fancy dorms](https://lifestyle.allwomenstalk.com/the-most-luxurious-dorms-in-the-world/)
-- [my homier home](https://diy.allwomenstalk.com/ways-to-make-your-dorm-room-homier/)
-- [home decor black friday deals](https://lifestyle.allwomenstalk.com/best-black-friday-deals-on-home-decor/)
-- [boys bedroom idea](https://diy.allwomenstalk.com/boys-bedroom-ideas/)
-- [how to make your bedroom your sanctuary](https://diy.allwomenstalk.com/the-best-tips-to-create-a-sanctuary-in-your-bedroom/)
-- [adairs christmas trees](https://lifestyle.allwomenstalk.com/ways-to-make-your-home-festive-for-the-holidays/)
 - [rose gold bedroom accessories](https://diy.allwomenstalk.com/rose-gold-decor-ideas/)
+- [fancy dorms](https://lifestyle.allwomenstalk.com/the-most-luxurious-dorms-in-the-world/)
+- [home decor black friday deals](https://lifestyle.allwomenstalk.com/best-black-friday-deals-on-home-decor/)
+- [how to make your bedroom your sanctuary](https://diy.allwomenstalk.com/the-best-tips-to-create-a-sanctuary-in-your-bedroom/)
+- [office cube accessories](https://diy.allwomenstalk.com/easy-ways-to-pimp-up-your-office-space/)
+- [boys bedroom idea](https://diy.allwomenstalk.com/boys-bedroom-ideas/)
+- [my homier home](https://diy.allwomenstalk.com/ways-to-make-your-dorm-room-homier/)
+- [harry potter lamp shades](https://teen.allwomenstalk.com/things-you-need-for-a-harry-potter-bedroom/)
+- [adairs christmas trees](https://lifestyle.allwomenstalk.com/ways-to-make-your-home-festive-for-the-holidays/)
+- [boho chic room decor](https://diy.allwomenstalk.com/boho-chic-decor-ideas/)
 - [7 Pretty Knick Knacks to Spice up a Bland Living R...](https://fashion.allwomenstalk.com/7-pretty-knick-knacks-to-spice-up-a-bland-living-room/)
 - [7 Pretty Lamps for Your Home ...](https://allwomenstalk.com/7-pretty-lamps-for-your-home/)
 

@@ -76,16 +76,16 @@ Ready to channel your inner Thumbelina? Make these DIY giant flowers and "plant"
 
 ## Related Posts
 
-- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
-- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
-- [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
-- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
+- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
 - [how to make a paper rose without glue](https://diy.allwomenstalk.com/so-many-pretties-lets-all-make-these-paper-flowers-right-now/)
 - [altoids box crafts](https://diy.allwomenstalk.com/oh-wow-look-at-all-the-things-you-can-make-with-altoids-tins/)
-- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
-- [sewing machine covers in shape of a caravan](https://diy.allwomenstalk.com/fun-and-fancy-sewing-machine-covers/)
+- [best cork tiles](https://diy.allwomenstalk.com/crafts-using-cork-tiles/)
+- [cute bookmark diy](https://diy.allwomenstalk.com/save-my-page-cute-diy-bookmarks-to-make-use/)
 - [horseshoe heart art](https://diy.allwomenstalk.com/horseshoe-crafts-to-try-your-luck-with/)
-- [quirky coffee cups](https://lifestyle.allwomenstalk.com/quirky-coffee-mugs-to-make-you-smile/)
+- [what to do with old crochet tablecloths](https://diy.allwomenstalk.com/youll-be-charmed-when-you-see-what-you-can-make-with-doilies/)
+- [what can you do with mod podge](https://diy.allwomenstalk.com/crafts-to-show-your-love-for-mod-podge/)
+- [diy tire furniture](https://diy.allwomenstalk.com/some-of-the-best-repurpose-projects-i-have-seen-things-to-do-with-old-tires/)
 - [7 Beautifully Charming DIY Wedding Centerpieces .....](https://wedding.allwomenstalk.com/beautifully-charming-diy-wedding-centerpieces/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 

@@ -110,16 +110,16 @@ Hope you will be able to create some cute things from this list of **DIY felt or
 
 ## Related Posts
 
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
 - [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
 - [7 Ideas for Homemade Christmas Ornaments Everyone ...](https://lifestyle.allwomenstalk.com/ideas-for-homemade-christmas-ornaments-everyone-will-be-complementing-on/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

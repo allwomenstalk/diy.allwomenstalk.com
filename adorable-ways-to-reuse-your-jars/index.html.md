@@ -56,16 +56,16 @@ Do you save or recycle your jars? Any other ideas to add to the list?
 
 ## Related Posts
 
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
-- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
-- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
-- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
-- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
-- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
 - [decorating stockings for christmas](https://diy.allwomenstalk.com/diy-stockings-thatll-spread-some-cheer/)
+- [invisible zipper hack](https://diy.allwomenstalk.com/sewing-hacks-you-need-in-your-life/)
+- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
+- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
+- [pretty patterns easy](https://diy.allwomenstalk.com/spend-snowy-days-knitting-with-these-pretty-patterns/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [snowman canvas painting ideas](https://diy.allwomenstalk.com/these-snowman-crafts-will-keep-you-busy-all-winter-break/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
+- [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
+- [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
 - [7 Ways to Re-use Plastic Bottles ...](https://allwomenstalk.com/7-ways-to-re-use-plastic-bottles/)
 - [10 Cute and Creative Ways to Repurpose Altoid Tins...](https://lifestyle.allwomenstalk.com/cute-and-creative-ways-to-repurpose-altoid-tins/)
 

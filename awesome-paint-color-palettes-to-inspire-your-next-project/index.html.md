@@ -143,16 +143,16 @@ How often do you switch up the paint on your walls? I hate painting, but I alway
 
 ## Related Posts
 
+- [glam furniture](https://diy.allwomenstalk.com/easy-ways-to-glam-up-cheap-furniture/)
+- [sewing room inspo](https://diy.allwomenstalk.com/outstanding-sewing-room-ideas-for-your-space/)
 - [paint color combinations](https://diy.allwomenstalk.com/surprising-paint-color-combinations-that-look-fantastic-in-any-room/)
-- [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
+- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
+- [how to make london shades](https://diy.allwomenstalk.com/great-window-treatments-for-your-redecorating-project/)
 - [dorm fall decor](https://diy.allwomenstalk.com/adorable-fall-decorations-for-your-dorm/)
 - [unique place settings](https://food.allwomenstalk.com/really-cool-place-settings-for-any-occasion/)
-- [sewing room inspo](https://diy.allwomenstalk.com/outstanding-sewing-room-ideas-for-your-space/)
-- [leaf placemats ikea](https://diy.allwomenstalk.com/fantastic-ways-to-decorate-with-fall-leaves/)
-- [glam furniture](https://diy.allwomenstalk.com/easy-ways-to-glam-up-cheap-furniture/)
 - [wallpaper examples](https://diy.allwomenstalk.com/great-examples-of-wallpaper-for-any-room-in-your-house/)
-- [how to make london shades](https://diy.allwomenstalk.com/great-window-treatments-for-your-redecorating-project/)
-- [pretty little touches](https://diy.allwomenstalk.com/little-touches-to-make-your-home-more-welcoming/)
+- [leaf placemats ikea](https://diy.allwomenstalk.com/fantastic-ways-to-decorate-with-fall-leaves/)
+- [storage chest ideas](https://diy.allwomenstalk.com/vintage-storage-ideas-to-add-a-unique-touch-to-your-home/)
 - [7 Absolutely Beautiful Decorating Inspirations ...](https://allwomenstalk.com/7-absolutely-beautiful-decorating-inspirations/)
 - [7 Cute Room Ideas You Will Love ...](https://allwomenstalk.com/7-cute-room-ideas-you-will-love/)
 

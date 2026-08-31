@@ -54,16 +54,16 @@ I can’t wait to get started on a few of these amazing paper bag crafts. Which 
 
 ## Related Posts
 
-- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
-- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
-- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
-- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
+- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
 - [what to do with scraps of yarn](https://diy.allwomenstalk.com/ace-projects-to-use-up-scraps-of-wool/)
 - [popsicle stick crafts preschool](https://diy.allwomenstalk.com/great-popsicle-crafts-kids-can-make/)
-- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
-- [rock crafts for kids](https://parenting.allwomenstalk.com/cool-and-creative-rock-crafts-for-kids/)
+- [rainbow loom bracelet designs](https://diy.allwomenstalk.com/fun-rainbow-loom-bracelets-to-make/)
+- [upcycled christmas gifts](https://diy.allwomenstalk.com/fun-ways-to-upcycle-christmas-cards/)
+- [different ways to express creativity](https://inspiration.allwomenstalk.com/awesome-ways-to-express-your-artistic-side/)
+- [what can glitter be used for](https://diy.allwomenstalk.com/fantastic-ways-to-use-leftover-glitter/)
 - [duct tape creations](https://diy.allwomenstalk.com/awesome-duct-tape-crafts-to-try-today/)
-- [crafts with twigs](https://diy.allwomenstalk.com/fun-and-incredibly-crafty-things-that-you-can-make-using-twigs/)
+- [embroidered bracelet diy](https://diy.allwomenstalk.com/absolutely-darling-diy-embroidered-jewelry-to-make/)
 - [7 Great Halloween Crafts for Kids ...](https://allwomenstalk.com/7-great-halloween-crafts-for-kids/)
 - [7 Cool Uses for Plastic Bags ...](https://allwomenstalk.com/7-cool-uses-for-plastic-bags/)
 

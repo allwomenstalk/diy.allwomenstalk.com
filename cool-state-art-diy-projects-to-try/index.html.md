@@ -56,15 +56,15 @@ So there you have it, some of my favorite State art DIY projects. Which one is y
 
 ## Related Posts
 
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
 - [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
-- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
 - [diy easter bags](https://diy.allwomenstalk.com/absolutely-adorable-easter-bags-and-baskets-to-make-this-spring/)
-- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
-- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
 - [woodland book ends](https://diy.allwomenstalk.com/cute-woodland-diy-craft-ideas/)
+- [easter chick ideas](https://diy.allwomenstalk.com/wildly-cute-diy-easter-chick-crafts/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
 - [easter wreaths to make](https://diy.allwomenstalk.com/gorgeous-easter-wreaths-to-diy-for-your-door-this-spring/)
+- [things to make with toothpicks](https://diy.allwomenstalk.com/creative-uses-for-toothpicks/)
+- [ombre paper mobile](https://diy.allwomenstalk.com/fun-embroidery-hoop-art-crafts/)
+- [diy projects with yarn](https://diy.allwomenstalk.com/things-you-can-make-with-yarn/)
 - [industrial shelf ideas](https://diy.allwomenstalk.com/awesome-industrial-diy-projects-to-try/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)

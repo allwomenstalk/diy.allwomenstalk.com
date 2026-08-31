@@ -62,16 +62,16 @@ There are several patterns here that will be perfect for my 1-year old niece. Ho
 
 ## Related Posts
 
-- [8 Beautiful Benches You Can Make Yourself ...](https://diy.allwomenstalk.com/beautiful-benches-you-can-make-yourself/)
-- [Super Fun Holiday Crafts for when It's Too Cold to...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
-- [7 Absolutely Fun Faux Cactus DIY Projects for Your...](https://diy.allwomenstalk.com/absolutely-fun-faux-cactus-diy-projects-for-your-home/)
-- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
-- [naztazia waffle stitch](https://diy.allwomenstalk.com/crocheting-videos-for-girls-who-want-to-be-creative/)
 - [Stunning Watercolor DIY's for Girls Who Want to Pa...](https://diy.allwomenstalk.com/delightful-diy-watercolor-projects-that-are-not-wall-art/)
 - [Top Your Holiday Tree with These 21 DIY Stars ...](https://diy.allwomenstalk.com/top-your-holiday-tree-with-these-diy-stars/)
 - [These DIY Ideas Will Make Your Beach-Themed Party ...](https://diy.allwomenstalk.com/these-diy-ideas-will-make-your-beach-themed-party-a-blast/)
-- [Turn Your "Ugly" Christmas Sweater into an Adorabl...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
+- [8 Beautiful Benches You Can Make Yourself ...](https://diy.allwomenstalk.com/beautiful-benches-you-can-make-yourself/)
 - [Amp up Your Style Game with These DIY Wrap Bracele...](https://diy.allwomenstalk.com/amp-up-your-style-game-with-these-diy-wrap-bracelets/)
+- [19 IPhone Cases You Can Actually Make Yourself ...](https://diy.allwomenstalk.com/iphone-cases-you-can-actually-make-yourself/)
+- [7 Absolutely Fun Faux Cactus DIY Projects for Your...](https://diy.allwomenstalk.com/absolutely-fun-faux-cactus-diy-projects-for-your-home/)
+- [Turn Your "Ugly" Christmas Sweater into an Adorabl...](https://fashion.allwomenstalk.com/turn-your-ugly-christmas-sweater-into-an-adorable-one/)
+- [naztazia waffle stitch](https://diy.allwomenstalk.com/crocheting-videos-for-girls-who-want-to-be-creative/)
+- [Super Fun Holiday Crafts for when It's Too Cold to...](https://diy.allwomenstalk.com/super-fun-holiday-crafts-for-when-its-too-cold-to-leave-the-house/)
 - [7 Fashionable Cable Knits ...](https://fashion.allwomenstalk.com/7-fashionable-cable-knits/)
 - [7 Fuzzy Winter Knits ...](https://fashion.allwomenstalk.com/fuzzy-winter-knits/)
 

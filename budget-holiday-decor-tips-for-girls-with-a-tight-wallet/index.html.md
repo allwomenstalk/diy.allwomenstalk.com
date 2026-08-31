@@ -155,15 +155,15 @@ What's your favorite way to decorate for the holidays? Will you be using any of 
 
 ## Related Posts
 
-- [glam yourself](https://lifestyle.allwomenstalk.com/ways-to-treat-yourself-without-breaking-the-bank/)
-- [budget pamper](https://beauty.allwomenstalk.com/budget-friendly-ways-to-pamper-yourself-at-home/)
 - [how to save up money for a phone](https://money.allwomenstalk.com/how-to-save-big-money-on-your-cell-phone-bill/)
+- [budget pamper](https://beauty.allwomenstalk.com/budget-friendly-ways-to-pamper-yourself-at-home/)
+- [smart spending habits](https://money.allwomenstalk.com/ways-to-be-smart-about-spending/)
 - [ulta online store](https://makeup.allwomenstalk.com/genius-tips-to-save-you-money-when-shopping-at-ulta/)
 - [reasons to thrift](https://money.allwomenstalk.com/reasons-to-shop-at-thrift-stores/)
-- [thrifting hacks](https://money.allwomenstalk.com/shopping-hacks/)
-- [smart spending habits](https://money.allwomenstalk.com/ways-to-be-smart-about-spending/)
 - [jewelry savings](https://jewelry.allwomenstalk.com/tips-to-save-money-on-jewelry/)
+- [thrifting hacks](https://money.allwomenstalk.com/shopping-hacks/)
 - [cheaper alternatives to diamonds](https://jewelry.allwomenstalk.com/what-is-the-best-alternative-to-diamonds/)
+- [glam yourself](https://lifestyle.allwomenstalk.com/ways-to-treat-yourself-without-breaking-the-bank/)
 - [how to break spending habits](https://money.allwomenstalk.com/easy-ways-to-break-bad-spending-habits/)
 - [5 Tips on Decorating Your Garden for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-your-garden-for-the-holidays/)
 - [5 Tips on Decorating for the Holidays ...](https://gardening.allwomenstalk.com/5-tips-on-decorating-for-the-holidays/)

@@ -142,13 +142,13 @@ Do you keep your sewing machine covered? It's a good idea, but I admit that I do
 ## Related Posts
 
 - [felt pin cushion](https://diy.allwomenstalk.com/stuck-for-places-to-put-your-pins-try-these-diy-pincushions/)
-- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
+- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
 - [diy sailboat craft](https://diy.allwomenstalk.com/adorable-sailboat-craft-projects-that-you-can-make/)
 - [simple lantern centerpieces](https://diy.allwomenstalk.com/insanely-beautiful-succulent-centerpieces-to-make/)
-- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
-- [butterfly memorial tattoo](https://diy.allwomenstalk.com/fun-diy-temporary-tattoo-ideas/)
 - [easter blook](https://diy.allwomenstalk.com/dozens-of-easter-eggs-and-not-a-bit-of-chocolate-in-sight/)
+- [diy fleece dog toys](https://diy.allwomenstalk.com/easy-and-cheap-toys-to-make-for-your-dogs/)
 - [diy bookbag](https://diy.allwomenstalk.com/stylishly-cute-diy-backpacks-that-you-can-make-yourself/)
+- [build your own headboard](https://diy.allwomenstalk.com/dreamy-diy-headboards-you-can-make-by-bedtime/)
 - [fringe shirt diy](https://diy.allwomenstalk.com/dazzling-diy-fringe-accessories-to-try-your-hand-at/)
 - [diy birds nest craft](https://diy.allwomenstalk.com/absolutely-adorable-birds-nest-craft-projects-you-have-to-make/)
 - [9 Cute Purses with an Edge ...](https://bags.allwomenstalk.com/cute-purses-with-an-edge/)

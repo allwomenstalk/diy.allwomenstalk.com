@@ -73,16 +73,16 @@ I hope you find a hobby you like! Have fun and do it frequently...you deserve it
 
 ## Related Posts
 
-- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
-- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
-- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
-- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
-- [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
-- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
-- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
 - [cheap diy gifts](https://diy.allwomenstalk.com/simple-diy-gift-idea/)
-- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [hamper pamper](https://diy.allwomenstalk.com/how-to-make-a-diy-pamper-hamper/)
+- [cup music tutorial](https://diy.allwomenstalk.com/video-tutorial-for-diy-fur-coffee-cup-covers/)
+- [wiltshire egg timer](https://lifestyle.allwomenstalk.com/matryoshka-kitchenware-items/)
+- [how to make flip flop](https://diy.allwomenstalk.com/how-to-make-a-wreath-using-flip-flops/)
 - [best vanity organizer](https://diy.allwomenstalk.com/video-guide-on-diy-dollar-tree-vanity-organizers/)
+- [diy umbrella wreath](https://diy.allwomenstalk.com/how-to-make-a-floral-umbrella-door-wreath/)
+- [poundland wreath hanger](https://diy.allwomenstalk.com/diy-flower-stocking/)
+- [bath and body works gift card holder](https://diy.allwomenstalk.com/video-guide-for-diy-coffee-cup-gift-card-holders/)
+- [lollipop sayings](https://diy.allwomenstalk.com/how-to-make-a-lollipop-bouquet/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

@@ -172,16 +172,16 @@ If you love lavender, roses, patchouli, almond oil, or any other fragrance, you 
 
 ## Related Posts
 
-- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
-- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
-- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
-- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
+- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
 - [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
 - [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
-- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
 - [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [how to deal with a bad tattoo](https://beauty.allwomenstalk.com/ways-to-get-rid-of-a-bad-tattoo/)
+- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
 - [baking soda itchy scalp](https://skincare.allwomenstalk.com/helpful-home-remedies-for-an-itchy-scalp/)
-- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
+- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
+- [vaseline eyeshadow](https://beauty.allwomenstalk.com/uses-of-vaseline/)
+- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
 - [7 Steps to Make Your Own Dry Shampoo ...](https://hair.allwomenstalk.com/steps-to-make-your-own-dry-shampoo/)
 - [7 Home-Made Hair Treatments ...](https://hair.allwomenstalk.com/home-made-hair-treatments/)
 

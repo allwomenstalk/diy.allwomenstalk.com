@@ -68,16 +68,16 @@ Even if the only tea lover you know is yourself, I still recommend some of these
 
 ## Related Posts
 
-- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
 - [handmade baby shoes](https://diy.allwomenstalk.com/insanely-adorable-diy-baby-shoes-you-have-to-make/)
-- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
 - [wagon ideas](https://diy.allwomenstalk.com/wonderfully-clever-ways-to-repurpose-wagons/)
-- [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
 - [easy diy floral centerpieces](https://diy.allwomenstalk.com/beautiful-and-easy-diy-floral-centerpieces/)
+- [bead lamp shade](https://diy.allwomenstalk.com/diy-lampshades-you-can-make-at-home/)
 - [cheap mardi gras beads by the case](https://lifestyle.allwomenstalk.com/cool-things-to-do-with-your-mardi-gras-beads/)
+- [mini bar stools](https://diy.allwomenstalk.com/gorgeous-diy-bar-stools/)
+- [christmas pinata ideas](https://diy.allwomenstalk.com/unique-and-diy-pinatas-for-your-next-party/)
+- [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
 - [sharpie mugs](https://diy.allwomenstalk.com/get-your-doodle-on-sharpie-crafts-to-try-today/)
 - [large silver wall clock](https://diy.allwomenstalk.com/incredibly-fantastic-diy-large-wall-clocks/)
-- [diy homemade bar](https://diy.allwomenstalk.com/marvelously-clever-diy-mini-bars/)
 - [6 Ideas for Making Lovely Homemade Cards ...](https://lifestyle.allwomenstalk.com/ideas-for-making-lovely-homemade-cards/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 

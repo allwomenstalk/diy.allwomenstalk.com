@@ -82,16 +82,16 @@ I hope that these inspire you to get crafting before heading out to the beach. G
 
 ## Related Posts
 
+- [lingerie for bigger girls](https://fashion.allwomenstalk.com/sexy-lingerie-items-for-plus-size-girls/)
+- [sexiest bra](https://fashion.allwomenstalk.com/fun-and-sexy-bras-to-make-you-feel-flirty/)
+- [very revealing swimwear](https://fashion.allwomenstalk.com/not-revealing-swimsuits-that-are-just-as-sexy/)
+- [swimsuit diy](https://diy.allwomenstalk.com/gorgeous-diy-swimwear-to-sew-2/)
+- [buying lingerie](https://fashion.allwomenstalk.com/tips-for-buying-lingerie/)
+- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
+- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
+- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
 - [best lingerie for small women](https://fashion.allwomenstalk.com/beautiful-lingerie-pieces-for-petite-women/)
 - [beach belle plus size swimwear](https://fashion.allwomenstalk.com/flattering-bathing-suits-for-plus-sized-figures/)
-- [what can you wear instead of a bra](https://health.allwomenstalk.com/best-sports-bra-alternatives/)
-- [very revealing swimwear](https://fashion.allwomenstalk.com/not-revealing-swimsuits-that-are-just-as-sexy/)
-- [sexiest bra](https://fashion.allwomenstalk.com/fun-and-sexy-bras-to-make-you-feel-flirty/)
-- [buying lingerie](https://fashion.allwomenstalk.com/tips-for-buying-lingerie/)
-- [is thongs bad to wear](https://fashion.allwomenstalk.com/reasons-to-wear-a-thong-everyday/)
-- [lingerie for bigger girls](https://fashion.allwomenstalk.com/sexy-lingerie-items-for-plus-size-girls/)
-- [swimsuit diy](https://diy.allwomenstalk.com/gorgeous-diy-swimwear-to-sew-2/)
-- [victoria secret bathing suits](https://fashion.allwomenstalk.com/victorias-secret-swimsuits-under-50/)
 - [7 Pretty Swim Suit Cover Ups ...](https://fashion.allwomenstalk.com/7-pretty-swim-suit-cover-ups/)
 - [9 Stylish Swimsuits for plus-Sized Girls ...](https://fashion.allwomenstalk.com/stylish-swimsuits-for-plus-sized-girls/)
 

@@ -66,16 +66,16 @@ Now that you’ve seen these awesome dollar store crafts, it is time to head on 
 
 ## Related Posts
 
-- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
 - [jean jacket with lace](https://diy.allwomenstalk.com/cute-lace-and-denim-diy-projects/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
-- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
+- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
+- [homemade earring ideas](https://diy.allwomenstalk.com/fabulous-diy-hoop-earrings-to-make/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
 - [decorate tape](https://lifestyle.allwomenstalk.com/creative-ways-to-decorate-with-washi-tape/)
 - [diy bathroom organizers](https://diy.allwomenstalk.com/diy-bathroom-organizers/)
+- [wooden phone stand ideas](https://diy.allwomenstalk.com/diy-phone-stands-and-docks-that-are-amazingly-clever/)
 - [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
-- [craft projects easy](https://lifestyle.allwomenstalk.com/easy-craft-projects/)
 - [7 Super Cute DIY Projects ...](https://lifestyle.allwomenstalk.com/super-cute-diy-projects/)
 - [7 Adorable Etsy Finds ...](https://allwomenstalk.com/7-adorable-etsy-finds/)
 

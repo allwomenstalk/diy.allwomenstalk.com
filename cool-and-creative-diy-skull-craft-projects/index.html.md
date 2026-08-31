@@ -92,16 +92,16 @@ Top Photo Credit: [weheartit](https://weheartit.com/entry/16146632/via/aysu)
 
 ## Related Posts
 
-- [+make a +notebook](https://lifestyle.allwomenstalk.com/more-diy-notebooks-to-make/)
-- [diy baskets for storage](https://diy.allwomenstalk.com/beautiful-diy-baskets/)
-- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/cute-diy-cardigans/)
-- [halloween owl decorations](https://diy.allwomenstalk.com/awesome-diy-halloween-owl-crafts/)
-- [easy clothing to make](https://lifestyle.allwomenstalk.com/easy-dressmaking-projects-for-your-little-girl/)
-- [how to make tights](https://fashion.allwomenstalk.com/terrific-diy-tights/)
 - [bat silhouette easy](https://diy.allwomenstalk.com/brilliant-diy-bat-halloween-crafts/)
+- [halloween owl decorations](https://diy.allwomenstalk.com/awesome-diy-halloween-owl-crafts/)
+- [diy baskets for storage](https://diy.allwomenstalk.com/beautiful-diy-baskets/)
+- [easy clothing to make](https://lifestyle.allwomenstalk.com/easy-dressmaking-projects-for-your-little-girl/)
+- [+make a +notebook](https://lifestyle.allwomenstalk.com/more-diy-notebooks-to-make/)
 - [easy halloween wreaths](https://diy.allwomenstalk.com/fabulously-creative-diy-halloween-wreaths/)
 - [centerpieces for fall](https://diy.allwomenstalk.com/gorgeous-diy-fall-centerpieces/)
+- [how to make tights](https://fashion.allwomenstalk.com/terrific-diy-tights/)
+- [homemade table runners](https://diy.allwomenstalk.com/more-beautiful-diy-table-runners-to-make/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [10 Amazing DIY Pallet Projects ...](https://lifestyle.allwomenstalk.com/amazing-diy-pallet-projects/)
 

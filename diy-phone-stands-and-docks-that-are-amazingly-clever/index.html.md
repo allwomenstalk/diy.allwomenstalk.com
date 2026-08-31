@@ -69,15 +69,15 @@ My skills (and lack of power tools) can only tackle the lovely no-sew idea from 
 ## Related Posts
 
 - [what to do with water bottles](https://diy.allwomenstalk.com/things-to-do-with-empty-water-bottles/)
-- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
-- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
-- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
 - [totoro decoration ideas](https://diy.allwomenstalk.com/totoro-diy-projects-that-are-insanely-adorable/)
-- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
-- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
-- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
-- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
 - [felt kindle sleeve](https://diy.allwomenstalk.com/lovely-diy-kindle-cases-that-will-keep-your-e-reader-safe/)
+- [cute easy yarn crafts](https://parenting.allwomenstalk.com/super-fun-yarn-crafts-for-kids/)
+- [where can i sell handmade items online](https://diy.allwomenstalk.com/websites-to-sell-handmade-goods-on/)
+- [can you recycle crayons](https://diy.allwomenstalk.com/ways-to-recycle-crayons/)
+- [what kind of paint to use on wine bottles](https://diy.allwomenstalk.com/fun-ways-to-recycle-and-craft-with-wine-bottles/)
+- [sew on name tags](https://diy.allwomenstalk.com/lovely-diy-luggage-tags-to-make-before-your-next-adventure/)
+- [doily](https://diy.allwomenstalk.com/adorable-ways-to-craft-with-doily-stencils/)
+- [diy leather ring](https://diy.allwomenstalk.com/lovely-diy-leather-rings-that-are-easy-to-make/)
 - [Top 7 Smartphones ...](https://allwomenstalk.com/top-7-smartphones/)
 - [7 Cool Phones... for Your House!](https://allwomenstalk.com/7-cool-phones-for-your-house/)
 

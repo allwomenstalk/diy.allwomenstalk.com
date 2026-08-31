@@ -56,16 +56,16 @@ These 7 steps will give you a completely redecorated bathroom for under $100. It
 
 ## Related Posts
 
-- [rec room bow skins](https://diy.allwomenstalk.com/ways-to-brighten-up-your-basement-rec-room/)
-- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
-- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
-- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
-- [eclectic style home](https://diy.allwomenstalk.com/ways-to-create-an-eclectic-home/)
 - [clever house design ideas](https://diy.allwomenstalk.com/insanely-clever-remodeling-ideas-for-your-home/)
 - [christmas lights in room](https://diy.allwomenstalk.com/ways-to-use-christmas-lights-all-year-round/)
+- [what to do with a blank wall](https://lifestyle.allwomenstalk.com/charming-ways-to-decorate-a-blank-wall-in-your-home/)
+- [orange feature wall bedroom](https://diy.allwomenstalk.com/great-colours-for-a-feature-wall/)
+- [eclectic style home](https://diy.allwomenstalk.com/ways-to-create-an-eclectic-home/)
+- [most beautiful houseplants](https://gardening.allwomenstalk.com/beautiful-houseplants-to-add-to-your-home/)
+- [rec room bow skins](https://diy.allwomenstalk.com/ways-to-brighten-up-your-basement-rec-room/)
 - [inexpensive home accessories](https://lifestyle.allwomenstalk.com/places-to-find-affordable-chic-home-decor/)
 - [unique ideas for headboards](https://diy.allwomenstalk.com/cool-diy-headboard-ideas-for-a-gorgeous-bedroom/)
-- [most beautiful houseplants](https://gardening.allwomenstalk.com/beautiful-houseplants-to-add-to-your-home/)
+- [diy coffee table with crates](https://diy.allwomenstalk.com/ways-to-create-your-own-coffee-table/)
 - [7 Decorating Ideas for a Small Bathroom ...](https://lifestyle.allwomenstalk.com/decorating-ideas-for-a-small-bathroom/)
 - [7 Ways to Change a Room for under $200 ...](https://allwomenstalk.com/7-ways-to-change-a-room-for-under-200/)
 

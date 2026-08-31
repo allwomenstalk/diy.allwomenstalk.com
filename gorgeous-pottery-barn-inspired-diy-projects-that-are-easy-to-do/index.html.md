@@ -66,16 +66,16 @@ Told you they're easy. If you don't have a lot of time, leave the furniture idea
 
 ## Related Posts
 
-- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
-- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
-- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
-- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
-- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
-- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
-- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
-- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
 - [bath bomb embed recipe](https://diy.allwomenstalk.com/bath-bombs-that-you-can-make-all-on-your-own/)
+- [how to be a flower child](https://diy.allwomenstalk.com/create-a-flower-child-party-with-these-diy-ideas/)
+- [tissue paper tulips](https://diy.allwomenstalk.com/celebrate-spring-with-these-diy-paper-flowers/)
 - [whimsical waters](https://lifestyle.allwomenstalk.com/this-whimsical-water-art-will-blow-you-away/)
+- [nautical painting ideas](https://diy.allwomenstalk.com/diy-anchor-home-decor-projects-to-give-your-space-a-whimsical-nautical-vibe/)
+- [cool ideas for pallets](https://diy.allwomenstalk.com/amazing-things-you-can-make-out-of-pallets/)
+- [death star painting](https://diy.allwomenstalk.com/death-star-diys-for-diehard-star-wars-fans/)
+- [gift ideas wood](https://diy.allwomenstalk.com/beautiful-housewarming-gifts-using-scrap-wood/)
+- [black and gold](https://diy.allwomenstalk.com/use-these-diy-ideas-to-transform-your-old-heels/)
+- [love knitting](https://lifestyle.allwomenstalk.com/knitting-infographics-all-knitting-girls-will-love/)
 - [5 Great DIY Projects to Bring Spring to Your Home ...](https://allwomenstalk.com/5-great-diy-projects-to-bring-spring-to-your-home/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 

@@ -228,16 +228,16 @@ With all these awesome ways to use feathers, you'll never look at feathers the s
 
 ## Related Posts
 
-- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
-- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
-- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
-- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
-- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
-- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
+- [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
+- [buttons for christmas crafts](https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/)
+- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [sidewalk painting ideas](https://lifestyle.allwomenstalk.com/stunning-examples-of-3d-chalk-drawings/)
+- [sanrio dog bed](https://diy.allwomenstalk.com/diy-pet-beds-for-your-furry-friends/)
+- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
+- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
+- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [5 Fantastic Crafty Ideas ...](https://allwomenstalk.com/5-fantastic-crafty-ideas/)
 

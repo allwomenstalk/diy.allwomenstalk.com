@@ -86,16 +86,16 @@ Hope you enjoyed this list of D**IY capes** to sew! Make one or two for you and 
 
 ## Related Posts
 
-- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
-- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
 - [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
+- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
+- [winter snow scene](https://diy.allwomenstalk.com/super-cute-diy-snow-scenes/)
+- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
+- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
+- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
 - [diy socks design](https://diy.allwomenstalk.com/sweet-and-adorable-diy-socks/)
 - [unique holiday wreaths](https://diy.allwomenstalk.com/beautiful-diy-holiday-wreaths/)
-- [cookie sheet advent calendar](https://diy.allwomenstalk.com/awesome-diy-advent-calendars/)
-- [thanksgiving candle centerpieces](https://allwomenstalk.com/8-amazing-thanksgiving-centerpieces/)
-- [felt turkey craft](https://diy.allwomenstalk.com/cute-diy-turkey-crafts/)
-- [winter wreaths diy](https://diy.allwomenstalk.com/wonderful-diy-winter-wreaths/)
 - [10 Beautiful Ways to Upcycle Bottle Caps ...](https://lifestyle.allwomenstalk.com/beautiful-ways-to-upcycle-bottle-caps/)
 - [13 Lovely DIY Headbands to Make ...](https://hair.allwomenstalk.com/lovely-diy-headbands-to-make/)
 

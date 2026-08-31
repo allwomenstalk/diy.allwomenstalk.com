@@ -76,16 +76,16 @@ Aren't these **DIY bell jars** fun? If you can think of other fun ways to make *
 
 ## Related Posts
 
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 - [12 Clever Milk Jug DIY Projects ...](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 

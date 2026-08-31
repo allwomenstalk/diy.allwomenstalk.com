@@ -270,16 +270,16 @@ I'm wondering now whether any of these have tempted you to add carpentry to your
 
 ## Related Posts
 
-- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
-- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
-- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
-- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
-- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
 - [vintage retro kitchen](https://lifestyle.allwomenstalk.com/retro-kitchens-you-can-copy-in-your-home/)
-- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
+- [drift wood design](https://diy.allwomenstalk.com/driftwood-crafts-to-give-a-beachy-feel-to-your-home/)
+- [peacock themed](https://lifestyle.allwomenstalk.com/awesome-peacock-theme-items-to-inspire-your-life/)
 - [extended kitchen island](https://diy.allwomenstalk.com/kitchen-islands-that-must-be-part-of-your-remodel/)
 - [mermaid house](https://lifestyle.allwomenstalk.com/magnificent-mermaid-inspired-homes/)
+- [mantle candles](https://diy.allwomenstalk.com/lovely-candle-arrangements-for-your-house/)
+- [window sun catchers](https://lifestyle.allwomenstalk.com/suncatchers-to-add-color-to-your-windows/)
 - [3 way mirror in store](https://diy.allwomenstalk.com/diy-mirrors-that-deserve-more-than-a-second-look/)
+- [spiraling up just like a rich staircase](https://lifestyle.allwomenstalk.com/awe-inspiring-staircases-youll-want-to-copy-in-your-house/)
+- [best storage for playroom](https://parenting.allwomenstalk.com/perfect-playroom-storage-ideas/)
 - [10 Beautiful Bookcases to Add to Your Home ...](https://allwomenstalk.com/10-beautiful-bookcases-to-add-to-your-home/)
 - [7 Fabulous Coffee Tables by Anthropologie ...](https://allwomenstalk.com/7-fabulous-coffee-tables-by-anthropologie/)
 

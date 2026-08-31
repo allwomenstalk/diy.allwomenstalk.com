@@ -70,15 +70,15 @@ If you’d like to have a go at some simple sewing projects, a belt is an excell
 
 ## Related Posts
 
-- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
 - [holiday garlands](https://diy.allwomenstalk.com/beautiful-diy-holiday-garlands/)
-- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
-- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
-- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
 - [making miniature christmas trees](https://diy.allwomenstalk.com/marvelous-diy-mini-christmas-trees/)
 - [www.katescreativespace.com+](https://diy.allwomenstalk.com/christmas-diy-projects-that-will-have-you-singing-deck-the-halls/)
+- [wood christmas tree designs](https://diy.allwomenstalk.com/adorable-diy-wooden-christmas-tree-ideas/)
+- [diy tulle cape](https://diy.allwomenstalk.com/cute-diy-capes-to-make/)
+- [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
 - [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
+- [candy cane christmas tree craft](https://diy.allwomenstalk.com/cute-candy-cane-christmas-crafts/)
 - [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
 - [5 Fabulous DIY Fashion Ideas...](https://allwomenstalk.com/5-fabulous-diy-fashion-ideas/)
 - [7 Easy DIY Projects for Teens ...](https://allwomenstalk.com/7-easy-diy-projects-for-teens/)

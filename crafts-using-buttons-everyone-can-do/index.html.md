@@ -3,7 +3,7 @@ title: "41 Crafts Using Buttons Everyone Can do ..."
 description: "Button Art; Tufted Upholstered Headboard with Fabric Buttons; Button Hairpins; Button Tree Painting; Framed Buttoned Letter; More ..."
 url: "https://diy.allwomenstalk.com/crafts-using-buttons-everyone-can-do/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 41 Crafts Using Buttons Everyone Can do ...
@@ -334,16 +334,16 @@ Now you know what great button crafts there are, how much longer will your stash
 
 ## Related Posts
 
-- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
-- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
-- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
-- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
-- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
-- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
-- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
-- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
+- [simple felt crafts](https://diy.allwomenstalk.com/felt-crafts-for-all-sorts-of-fun-things/)
+- [how to make liquid watercolor paint](https://diy.allwomenstalk.com/winning-water-color-crafts-to-brighten-your-day/)
+- [pretty afghans](https://diy.allwomenstalk.com/beautiful-afghans-to-inspire-your-next-project/)
+- [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
+- [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
+- [fall crafts teens](https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/)
+- [handmade mobiles](https://diy.allwomenstalk.com/diy-mobile-projects-for-nimble-fingers/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
+- [pom pom crafts ideas](https://diy.allwomenstalk.com/playful-pom-pom-crafts-for-kids-and-adults/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 - [5 Easy Sewing Projects for Beginners ...](https://allwomenstalk.com/5-easy-sewing-projects-for-beginners/)
 

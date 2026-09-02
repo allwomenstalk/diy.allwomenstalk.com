@@ -3,7 +3,7 @@ title: "7 DIY Yard Games for Plenty of Fun ..."
 description: "Bean Bag Toss; Giant Jenga; Twister; Garden Skittles; Designer Beer Pong Table; More ..."
 url: "https://diy.allwomenstalk.com/diy-yard-games-for-plenty-of-fun/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 DIY Yard Games for Plenty of Fun ...
@@ -52,16 +52,16 @@ I know that some of these DIY yard games might cost more than if you bought a re
 
 ## Related Posts
 
-- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
-- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
-- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
-- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
-- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
-- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
-- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
 - [best diy youtube channels](https://diy.allwomenstalk.com/awesome-diy-youtube-channels-to-check-out/)
-- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
+- [uses for egg shells](https://diy.allwomenstalk.com/things-to-do-with-eggshells/)
+- [uses for bubble wrap in the garden](https://diy.allwomenstalk.com/fun-but-handy-ways-to-use-bubble-wrap/)
+- [simple cute henna design](https://inspiration.allwomenstalk.com/cute-henna-designs-youll-want-to-try/)
+- [crochet bags diy](https://diy.allwomenstalk.com/utterly-adorable-diy-crochet-bags-youll-love-to-make/)
+- [crafts from pallets](https://diy.allwomenstalk.com/diy-pallet-crafts-to-spiff-up-your-entire-home/)
+- [best diy bath salt recipe](https://skincare.allwomenstalk.com/easy-peasy-diy-bath-salt-recipes/)
+- [mini knitted animals](https://diy.allwomenstalk.com/adorable-knitted-animal-toys-to-make-for-your-child/)
 - [uses of tampon](https://diy.allwomenstalk.com/delightful-uses-for-tampons/)
+- [twist tie sandwich bags](https://diy.allwomenstalk.com/practical-uses-for-twist-ties/)
 - [5 Cool Trees to Plant in Your Yard ...](https://gardening.allwomenstalk.com/5-cool-trees-to-plant-in-your-yard/)
 - [5 Fun Garden Activities for Kids ...](https://gardening.allwomenstalk.com/5-fun-garden-activities-for-kids/)
 

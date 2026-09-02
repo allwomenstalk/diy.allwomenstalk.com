@@ -3,7 +3,7 @@ title: "10 Stunning DIY Fall Garlands ..."
 description: "Apple Print; Candy Corn; Pine Cone; Felt Balls; Book Pages; More ..."
 url: "https://diy.allwomenstalk.com/stunning-diy-fall-garlands/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 10 Stunning DIY Fall Garlands ...
@@ -94,13 +94,13 @@ I hope you get to create something from this list of** DIY fall garlands**! If y
 
 - [hand made crown](https://diy.allwomenstalk.com/totally-cute-diy-crowns/)
 - [use of old cd](https://diy.allwomenstalk.com/amazing-uses-for-old-cds/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [diy trophy case](https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/)
-- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
-- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
 - [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [diy sweatshirt ideas](https://diy.allwomenstalk.com/crafty-diy-hoodie-makeovers/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [7 Pretty Fall Décor Items ...](https://allwomenstalk.com/7-pretty-fall-decor-items/)

@@ -3,7 +3,7 @@ title: "20 Festive 🦃Thanksgiving Crafts 🛠 for Your Family ..."
 description: "Homemade Vase; Thankful Pumpkin; Fingerprint Leaves; Adorable Wreath; Candy Corn Turkey; More ..."
 url: "https://diy.allwomenstalk.com/festive-thanksgiving-crafts-for-your-family/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 20 Festive 🦃Thanksgiving Crafts 🛠 for Your Family ...
@@ -153,13 +153,13 @@ Have you ever made a Thanksgiving craft that you loved? I hope these inspire you
 - [really cool legos](https://parenting.allwomenstalk.com/awesome-lego-creations-to-build-with-your-kids/)
 - [ideas for decorating pine cones](https://diy.allwomenstalk.com/pine-cone-crafts-to-add-a-seasonal-touch-to-your-home/)
 - [folding paper napkin](https://food.allwomenstalk.com/tutorials-for-how-to-fold-napkins/)
-- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
 - [itty bitty advent calendar](https://diy.allwomenstalk.com/ideas-for-your-advent-calendar-this-year/)
+- [diy fabric crafts](https://diy.allwomenstalk.com/fabric-crafts-that-youll-love-sew-much/)
 - [cute diy decorations](https://diy.allwomenstalk.com/cute-diy-christmas-decorations-you-can-make-at-home/)
 - [making table runners](https://diy.allwomenstalk.com/table-runners-you-can-make-yourself/)
 - [how to decorate wooden snowflakes](https://diy.allwomenstalk.com/snowflake-crafts-to-make-this-winter-something-to-remember/)
-- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
 - [soapstone coasters](https://diy.allwomenstalk.com/awesome-sets-of-coasters-you-can-make-at-home/)
+- [trash to treasure crafts](https://diy.allwomenstalk.com/trash-to-treasure-projects-to-transform-junk-like-you-wont-believe/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

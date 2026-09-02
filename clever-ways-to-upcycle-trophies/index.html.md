@@ -3,7 +3,7 @@ title: "What to Do with Old Trophies: 8 Clever DIY Upcycling Ideas"
 description: "Bottle Toppers; Coat Rack; Vintage Centerpieces; Paper Maché Vase; Cupcake Stand; More ..."
 url: "https://diy.allwomenstalk.com/clever-ways-to-upcycle-trophies/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # What to Do with Old Trophies: 8 Clever DIY Upcycling Ideas
@@ -89,16 +89,16 @@ I'm sure you have even more ideas for **repurposing old trophies**. If you canno
 
 ## Related Posts
 
-- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
 - [cake bell jar](https://diy.allwomenstalk.com/creative-diy-cloche-jars/)
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
 - [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
+- [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [8 Clever Uses for Plastic Bags ...](https://allwomenstalk.com/8-clever-uses-for-plastic-bags/)
 - [8 Ways to Revamp Old Furniture ...](https://allwomenstalk.com/8-ways-to-revamp-old-furniture/)
 

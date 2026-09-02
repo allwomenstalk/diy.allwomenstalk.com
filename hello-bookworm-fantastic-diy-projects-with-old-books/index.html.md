@@ -3,7 +3,7 @@ title: "Hello, Bookworm! 48 Fantastic DIY Projects with Old Books ..."
 description: "Storage Bin; Charging Station; Sketchbook Pages; Zipper Clutch; Envelope Book; More ..."
 url: "https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Hello, Bookworm! 48 Fantastic DIY Projects with Old Books ...
@@ -286,16 +286,16 @@ Via [At the Pink of Perfection: ...](http://www.atthepinkofperfection.com/2012/0
 
 ## Related Posts
 
-- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
-- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
-- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
-- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
-- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
+- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
+- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 - [7 Alternative Uses for Hardback Books ...](https://allwomenstalk.com/alternative-uses-for-hardback-books/)
 

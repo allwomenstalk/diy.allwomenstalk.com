@@ -3,7 +3,7 @@ title: "9 Incredible DIY Valentine's Day Crafts You Can Make in under an Hour ..
 description: "Heart Shaped Wall Art; Cork Heart Decor; Candy Flower Vase; Painted Mason Jars; Lovers in a Tree Wall Art ‌; More ..."
 url: "https://diy.allwomenstalk.com/incredible-diy-valentines-day-decorations/"
 category: "diy"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 9 Incredible DIY Valentine's Day Crafts You Can Make in under an Hour ...
@@ -82,14 +82,14 @@ This article was written in collaboration with editor Eliza Martinez
 
 - [present toppers christmas](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)
 - [diy favour boxes](https://diy.allwomenstalk.com/delightful-diy-gift-boxes/)
+- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
+- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
+- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
 - [wood floor painting ideas](https://diy.allwomenstalk.com/fantastic-diy-painted-floor-ideas/)
 - [valentines banners](https://diy.allwomenstalk.com/delightful-diy-valentines-day-banners/)
-- [diy glitter nails](https://diy.allwomenstalk.com/glitter-diy-projects-to-add-sparkle-to-your-life/)
-- [gloves diy](https://diy.allwomenstalk.com/gorgeous-diy-gloves/)
-- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [fox themed gifts](https://diy.allwomenstalk.com/fabulously-cute-fox-diy-projects/)
-- [ideas for crazy sock day at school](https://diy.allwomenstalk.com/insanely-adorable-diy-sock-toys/)
 - [collar necklace diy](https://jewelry.allwomenstalk.com/video-tutorials-for-diy-collar-necklaces/)
+- [craft of elephant](https://diy.allwomenstalk.com/enchanting-diy-elephant-craft-projects/)
 - [7 Easy and Affordable Christmas Crafts to Make ...](https://lifestyle.allwomenstalk.com/easy-and-affordable-christmas-crafts-to-make/)
 - [19 Creative Ways to Celebrate Valentine's Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 

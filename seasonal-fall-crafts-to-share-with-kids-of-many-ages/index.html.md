@@ -3,7 +3,7 @@ title: "28 Seasonal Fall Crafts to Share with Kids of Many Ages ..."
 description: "Ears of Corn; Leaf Outlines; Friendly Scarecrow; Repurposed Items; Monogram Fall Wreath; More ..."
 url: "https://diy.allwomenstalk.com/seasonal-fall-crafts-to-share-with-kids-of-many-ages/"
 category: "diy"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 28 Seasonal Fall Crafts to Share with Kids of Many Ages ...
@@ -202,14 +202,14 @@ Do you do craft projects with your children? I have tons of ideas for days when 
 
 ## Related Posts
 
+- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
 - [36 wreaths](https://diy.allwomenstalk.com/outstanding-fall-wreaths-you-can-make-yourself/)
-- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
-- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [unique trinket box](https://diy.allwomenstalk.com/diy-trinket-boxes-to-keep-your-bling-organized/)
 - [create your own bunting online free](https://diy.allwomenstalk.com/diy-banners-and-buntings-for-all-occasions/)
-- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 - [how to make flowers out of ribbon](https://diy.allwomenstalk.com/ribbon-crafts-from-lengths-and-scraps/)
-- [crayon art projects](https://diy.allwomenstalk.com/vibrant-examples-of-crayon-art/)
+- [old wine bottle ideas](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
+- [paint wine bottle](https://diy.allwomenstalk.com/super-cool-wine-bottle-crafts-that-arent-that-hard-to-make/)
+- [diy fall candles](https://diy.allwomenstalk.com/easy-to-make-fall-candles-for-your-home/)
 - [coin purse craft](https://diy.allwomenstalk.com/diy-coin-purses-that-make-a-fun-project-anytime/)
 - [unique towel bar](https://diy.allwomenstalk.com/unique-towel-holders-you-can-make-yourself/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)

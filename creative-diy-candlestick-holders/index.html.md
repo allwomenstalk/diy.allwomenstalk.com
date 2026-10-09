@@ -3,7 +3,7 @@ title: "10 Creative DIY Candlestick Holders ..."
 description: "Spray Paint; Birch Logs; Wood Block; Trinkets; Lampshade Base; More ..."
 url: "https://diy.allwomenstalk.com/creative-diy-candlestick-holders/"
 category: "diy"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 10 Creative DIY Candlestick Holders ...
@@ -94,16 +94,16 @@ Aren't these **DIY candlestick holders** lovely? The fact that they are cheap to
 
 ## Related Posts
 
-- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 - [10 Christmas Tree Decoration Ideas ...](https://allwomenstalk.com/10-christmas-tree-decoration-ideas/)
 

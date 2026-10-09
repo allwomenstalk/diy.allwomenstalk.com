@@ -3,7 +3,7 @@ title: "21 Totally Cool Ways to Use Legos besides the Obvious ..."
 description: "Monogram; LEGO Heart Necklace; LEGO \"taxidermy\"; LEGO Stud Earrings; LEGO Gummies; More ..."
 url: "https://diy.allwomenstalk.com/cool-ways-to-use-legos/"
 category: "diy"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 21 Totally Cool Ways to Use Legos besides the Obvious ...
@@ -97,15 +97,15 @@ Do you love LEGOs? If so, then I've got some fab, fun ways you can use your buil
 ## Related Posts
 
 - [how to make old sweater look new](https://diy.allwomenstalk.com/easy-and-fabulous-way-to-recycle-old-sweaters/)
-- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
-- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
-- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
-- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
 - [letters design ideas](https://diy.allwomenstalk.com/youll-love-these-diy-projects-using-letters/)
-- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [unusual keepsake meaning](https://parenting.allwomenstalk.com/unique-tips-for-creating-a-keepsake-box/)
+- [mason jar snowman light](https://diy.allwomenstalk.com/you-cant-do-christmas-crafts-without-mason-jars/)
+- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
+- [turkey wreath ideas](https://diy.allwomenstalk.com/challenge-yourself-to-create-these-thanksgiving-themed-wreaths/)
 - [copper pipe diy planter](https://diy.allwomenstalk.com/small-and-beautiful-items-that-you-can-make-for-the-home-using-copper-pipes/)
 - [diy bulletin board](https://diy.allwomenstalk.com/really-cool-bulletin-boards-you-can-set-up-yourself/)
-- [old jars](https://diy.allwomenstalk.com/adorable-ways-to-reuse-your-jars/)
+- [what to do with leftover baby food](https://diy.allwomenstalk.com/amazing-ways-to-reuse-leftover-baby-jars/)
+- [the ultimate gingerbread house](https://parenting.allwomenstalk.com/how-to-create-the-ultimate-gingerbread-house/)
 - [7 Creative Things to do with Your Child's Artwork ...](https://parenting.allwomenstalk.com/7-creative-things-to-do-with-your-childs-artwork/)
 - [7 Trendy Crafts to Try ...](https://allwomenstalk.com/7-trendy-crafts-to-try/)
 

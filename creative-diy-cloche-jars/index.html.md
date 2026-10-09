@@ -3,7 +3,7 @@ title: "8 Creative DIY Cloche Jars ..."
 description: "Wire; Flat Marbles; Mini Display Domes; Knob; Rope; More ..."
 url: "https://diy.allwomenstalk.com/creative-diy-cloche-jars/"
 category: "diy"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 8 Creative DIY Cloche Jars ...
@@ -76,16 +76,16 @@ Aren't these **DIY bell jars** fun? If you can think of other fun ways to make *
 
 ## Related Posts
 
-- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
-- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
-- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
-- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
 - [diy dip dye](https://diy.allwomenstalk.com/cool-diy-dip-dye-craft-projects/)
 - [new york themed room decor](https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/)
-- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
 - [decorate a canopy bed](https://diy.allwomenstalk.com/gorgeous-diy-canopy-beds/)
+- [how to make a homemade notebook](https://lifestyle.allwomenstalk.com/creative-and-cute-diy-notebooks/)
+- [wood pumpkin diy](https://diy.allwomenstalk.com/creatively-unique-diy-pumpkin-craft-projects/)
+- [diy frosted glass window](https://diy.allwomenstalk.com/gorgeous-diy-frosted-glass-projects/)
+- [diy candle holder](https://diy.allwomenstalk.com/creative-diy-candlestick-holders/)
+- [halloween lanterns diy](https://diy.allwomenstalk.com/beautiful-diy-halloween-lanterns-and-luminaries/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [jeenie weenie husband](https://shoes.allwomenstalk.com/fab-diy-shoe-tutorials/)
 - [8 Fun Paper Doily DIY Projects ...](https://lifestyle.allwomenstalk.com/fun-paper-doily-diy-projects/)
 - [12 Clever Milk Jug DIY Projects ...](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 

@@ -3,7 +3,7 @@ title: "10 Wonderful Glittered Halloween Crafts ..."
 description: "Pumpkins; Framed Skulls; Hurricanes; Fun Frames; Art; More ..."
 url: "https://diy.allwomenstalk.com/wonderful-glittered-halloween-crafts/"
 category: "diy"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # 10 Wonderful Glittered Halloween Crafts ...
@@ -95,15 +95,15 @@ Got other fabulous **glittered Halloween craft projects**? We'd love to hear the
 ## Related Posts
 
 - [diy outdoor tombstones](https://diy.allwomenstalk.com/awesome-diy-tombstones-for-halloween/)
+- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
+- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
+- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
+- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
+- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
+- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
+- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
 - [kid from monsters inc](https://parenting.allwomenstalk.com/cute-ways-to-throw-a-monsters-inc-party-for-your-kid/)
 - [cool comic character ideas](https://lifestyle.allwomenstalk.com/characters-to-cosplay-at-comic-con-this-year/)
-- [halloween decorations with pumpkins](https://lifestyle.allwomenstalk.com/unique-ways-to-decorate-pumpkins-this-halloween/)
-- [diy headgear](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
-- [tall horror movie characters](https://diy.allwomenstalk.com/scary-characters-to-dress-up-as-for-halloween-this-year/)
-- [skull painting ideas](https://diy.allwomenstalk.com/diy-sugar-skull-crafts-you-can-do-for-halloween/)
-- [funny hat ideas to make](https://diy.allwomenstalk.com/cute-and-creative-diy-party-hats/)
-- [tinker bell inspired outfit](https://fashion.allwomenstalk.com/disney-inspired-outfits/)
-- [costumes homemade](https://parenting.allwomenstalk.com/unique-homemade-halloween-costumes-for-kids/)
 - [8 Amazing Fall Craft Ideas ...](https://lifestyle.allwomenstalk.com/amazing-fall-craft-ideas/)
 - [10 Cute Craft Gift Ideas ...](https://fashion.allwomenstalk.com/cute-craft-gift-ideas/)
 

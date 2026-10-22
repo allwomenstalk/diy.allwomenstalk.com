@@ -3,7 +3,7 @@ title: "7 Amazing Mod Podge Craft Ideas for Kids ..."
 description: "Mod Podge Furniture; Canvas Shoe DIY; Mod Podge Hat; Mod Podge Bookmark; Mod Podge Sunglasses; More ..."
 url: "https://diy.allwomenstalk.com/amazing-mod-podge-craft-ideas-for-kids/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 7 Amazing Mod Podge Craft Ideas for Kids ...
@@ -52,14 +52,14 @@ What are some fun mod podge craft ideas for kids that you’ve made recently?
 
 ## Related Posts
 
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
-- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
-- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
 - [geometric craft ideas](https://interior.allwomenstalk.com/funky-geometric-diy-craft-projects-to-try/)
-- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [leather key fob diy](https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [movie themed craft](https://diy.allwomenstalk.com/fun-craft-projects-for-a-lovely-movie-night/)
+- [scarves](https://fashion.allwomenstalk.com/awesome-things-to-do-with-a-scarf/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
 - [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
 - [duct tape ring](https://diy.allwomenstalk.com/creative-duct-tape-crafts-for-kids-to-try/)
 - [8 Free Craft Items for Kids ...](https://parenting.allwomenstalk.com/8-free-craft-items-for-kids/)

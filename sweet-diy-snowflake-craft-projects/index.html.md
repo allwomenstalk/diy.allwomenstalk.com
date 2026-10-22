@@ -3,7 +3,7 @@ title: "12 Sweet DIY Snowflake Craft Projects ..."
 description: "Shade; Buttoned; Glittery; Craft Sticks; Felt Stocking; More ..."
 url: "https://diy.allwomenstalk.com/sweet-diy-snowflake-craft-projects/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 12 Sweet DIY Snowflake Craft Projects ...
@@ -104,16 +104,16 @@ Got other fun **DIY snowflake ideas**? We'd love to hear them! I bet you can thi
 
 ## Related Posts
 
-- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
-- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
 - [cute homemade earrings](https://diy.allwomenstalk.com/top-diy-earrings/)
-- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
-- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
 - [how to make a fabric belt for a dress](https://diy.allwomenstalk.com/fabulous-diy-belt-projects-to-undertake/)
-- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
-- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
-- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
 - [diy glitter boots](https://diy.allwomenstalk.com/beautiful-diy-boots/)
+- [how to make monster sock puppets](https://diy.allwomenstalk.com/super-adorable-diy-puppets/)
+- [diy felt xmas ornaments](https://diy.allwomenstalk.com/festive-diy-felt-ornaments/)
+- [diy booths](https://diy.allwomenstalk.com/festive-and-fun-diy-photo-booths/)
+- [diy paper ornaments template](https://diy.allwomenstalk.com/adorable-diy-paper-ornaments/)
+- [greeting card display](https://diy.allwomenstalk.com/darling-diy-holiday-greeting-card-holders/)
+- [thanksgiving centerpieces](https://diy.allwomenstalk.com/amazing-diy-centerpieces-for-thanksgiving/)
+- [decorating with paper flowers](https://diy.allwomenstalk.com/pretty-diy-paper-flowers/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 - [11 DIY Christmas Gift Ideas ...](https://allwomenstalk.com/7-diy-christmas-gift-ideas/)
 

@@ -3,7 +3,7 @@ title: "10 Awesome NYC-Inspired DIY Projects ..."
 description: "Skyline Shelving; Railing Pillow; Skyline Necklace; New York, New York Art; NYC Subway Dresser; More ..."
 url: "https://diy.allwomenstalk.com/awesome-nyc-inspired-diy-projects/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 10 Awesome NYC\-Inspired DIY Projects ...
@@ -88,16 +88,16 @@ Aren't these **New York-inpsired DIYs** fun? What will you be making from this l
 
 ## Related Posts
 
-- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
-- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
-- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
-- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
-- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
-- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
-- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
-- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
 - [homemade table runner](https://diy.allwomenstalk.com/gorgeous-diy-table-runners/)
 - [how to make mouse pads](https://lifestyle.allwomenstalk.com/easy-diy-mouse-pads/)
+- [felt craft projects](https://diy.allwomenstalk.com/fantastic-felt-ball-craft-projects/)
+- [hot air balloon with paper](https://diy.allwomenstalk.com/incredibly-adorable-hot-air-balloon-craft-projects/)
+- [hoodie picture ideas](https://diy.allwomenstalk.com/fantastic-diy-hoodie-craft-projects/)
+- [aztec art projects](https://diy.allwomenstalk.com/amazing-aztec-inspired-craft-projects/)
+- [crafts to do with your boyfriend](https://diy.allwomenstalk.com/cute-and-creative-confetti-crafts/)
+- [ecouterre](https://diy.allwomenstalk.com/utterly-impressive-diy-projects-to-make-a-bag/)
+- [bleach print](https://diy.allwomenstalk.com/brilliant-diy-bleach-printing-projects/)
+- [diy autumn wreaths](https://diy.allwomenstalk.com/fantastic-diy-fall-wreaths/)
 - [8 Fantastic DIY Projects by a Beautiful Mess ...](https://lifestyle.allwomenstalk.com/fantastic-diy-projects-by-a-beautiful-mess/)
 - [10 Great Travel DIY Projects ...](https://travel.allwomenstalk.com/great-travel-diy-projects/)
 

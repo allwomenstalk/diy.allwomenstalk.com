@@ -3,7 +3,7 @@ title: "Pineapple Christmas Trees : the Most Unexpected Trend of 2017 ..."
 description: "Star of Wonder, Star of Night, Pineapple Tree Shining Bright; Perfect for the Office/your Cubicle/desk; Go Big or Go Home; Pineapple Centrepiece; The Cherry on the Cake - Strike That - Pineapple; More ..."
 url: "https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # Pineapple Christmas Trees : the Most Unexpected Trend of 2017 ...
@@ -61,15 +61,15 @@ NEXT
 
 ## Related Posts
 
+- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
 - [10 Favorite Trends from the 90's We All Loved ...](https://fashion.allwomenstalk.com/favorite-90s-fashion-trends/)
+- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
+- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
+- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
+- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
 - [2019 travel trends](https://travel.allwomenstalk.com/top-travel-trends-for/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
-- [11 Hottest Food Trends for 2018 ...](https://food.allwomenstalk.com/hottest-food-trends-for_/)
-- [guide to 2018 wellness trends](https://fitness.allwomenstalk.com/fitness-trends-taking-over/)
-- [summer menu trends](https://food.allwomenstalk.com/food-trends-for-summer/)
-- [emerald makeup looks](https://makeup.allwomenstalk.com/make-up-trends-for-fall/)
-- [makeup looks 2019](https://makeup.allwomenstalk.com/hottest-makeup-trends-for/)
 - [spring/summer fashion trends 2023](https://allwomenstalk.com/spring-summer-fashion-trends/)
 - [Celebrating Christmas with the Spotted Olive ...](https://lifestyle.allwomenstalk.com/celebrating-christmas-with-the-spotted-olive/)
 - [Christmas is Pink This Year ...](https://allwomenstalk.com/christmas-is-pink-this-year/)

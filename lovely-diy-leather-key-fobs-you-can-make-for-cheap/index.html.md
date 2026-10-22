@@ -3,7 +3,7 @@ title: "8 Chic DIY Leather Key Fobs You Can Make on a Budget"
 description: "Stamped Names; Mustache; Tassel; Fun Shapes; Neon; More ..."
 url: "https://diy.allwomenstalk.com/lovely-diy-leather-key-fobs-you-can-make-for-cheap/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 8 Chic DIY Leather Key Fobs You Can Make on a Budget
@@ -94,16 +94,16 @@ Will you be making some of these handmade leather key fobs? Don't forget to show
 
 ## Related Posts
 
-- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
-- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
-- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
-- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
-- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
-- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
-- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
-- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
-- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
 - [craft articles](https://diy.allwomenstalk.com/out-of-this-world-solar-system-craft-projects/)
+- [craft fishing](https://diy.allwomenstalk.com/fishing-and-fish-themed-craft-projects-for-the-home-and-for-your-kids/)
+- [nrg arena tickets](https://diy.allwomenstalk.com/cute-ways-to-display-old-concert-tickets/)
+- [diy animal headband](https://diy.allwomenstalk.com/fun-and-fashionable-diy-animal-ears-that-you-should-make/)
+- [diy table for beginners](https://diy.allwomenstalk.com/wonderful-beginners-woodworking-projects-by-ana-white/)
+- [beautiful art ideas](https://diy.allwomenstalk.com/beautiful-diy-pallet-wall-art-ideas/)
+- [sting art slab](https://diy.allwomenstalk.com/cool-state-art-diy-projects-to-try/)
+- [olaf styrofoam](https://diy.allwomenstalk.com/adorable-and-funny-olaf-diy-projects-for-a-frozen-inspired-party/)
+- [adorable mugs](https://lifestyle.allwomenstalk.com/cute-mugs-to-make-your-monday-morning-happy/)
+- [mug diy ideas](https://diy.allwomenstalk.com/fun-ideas-for-a-diy-sharpie-mug/)
 - [7 Ways to Make Cheap Gifts Look Chic ...](https://allwomenstalk.com/7-ways-to-make-cheap-gifts-look-chic/)
 - [9 Gorgeous DIY Watches to Make ...](https://jewelry.allwomenstalk.com/gorgeous-diy-watches-to-make/)
 

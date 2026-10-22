@@ -3,7 +3,7 @@ title: "DIY Birdhouses That'll Attract Feathered Friends ..."
 description: "Cork Birdhouse; Rustic Birdhouse; Flea Market Bird House Post; Totally Colorful; Pebbles and a Roof Made of Pennies; More ..."
 url: "https://diy.allwomenstalk.com/diy-birdhouses-thatll-attract-feathered-friends/"
 category: "diy"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # DIY Birdhouses That'll Attract Feathered Friends ...
@@ -229,15 +229,15 @@ Which one do you love best?
 ## Related Posts
 
 - [thumbprint craft](https://parenting.allwomenstalk.com/fun-fingerprint-crafts-to-do-with-kids-yours-or-not/)
-- [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
 - [coffee filter peonies](https://diy.allwomenstalk.com/diy-peony-projects-for-women-who-love-floral/)
+- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
+- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
+- [pillows dollar general](https://diy.allwomenstalk.com/cute-cool-and-comfy-pillows-to-diy/)
+- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [crafty christmas ornaments](https://diy.allwomenstalk.com/diy-christmas-ornaments-for-the-crafty-girl/)
 - [diy plush](https://diy.allwomenstalk.com/simple-plushies-you-can-start-making-today/)
-- [adult rosie the riveter halloween costume](https://diy.allwomenstalk.com/cute-halloween-costumes-that-are-easy-to-put-together/)
-- [easter centerpieces diy](https://diy.allwomenstalk.com/creative-diy-easter-centerpieces-you-and-your-guests-will-love/)
 - [widlflower cases](https://diy.allwomenstalk.com/fun-diys-to-bring-color-to-your-life/)
 - [marni grinch sweater](https://diy.allwomenstalk.com/diy-your-own-chic-holiday-sweater/)
-- [failed highlights hair](https://hair.allwomenstalk.com/fab-diy-fixes-for-when-your-dye-job-goes-awry/)
 - [5 Flowers That Will Attract Hummingbirds ...](https://gardening.allwomenstalk.com/5-flowers-that-will-attract-hummingbirds/)
 - [5 Tips on the Perfect Birdfeeder ...](https://gardening.allwomenstalk.com/5-tips-on-the-perfect-birdfeeder/)
 

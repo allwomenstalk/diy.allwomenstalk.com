@@ -3,7 +3,7 @@ title: "Here's How to Make Something Fabulous out of the Sea Glass You Collected
 description: "How to Drill Sea Glass for a Pendant; A Sea Glass Counter Top is Unique; Add an Aqua Sea Glass Bracelet to Your Wardrobe; Fun Summer Beach Glass Sun Catcher for Your Patio; Save Sand from Vacation to Make a Framed Heart with Sea Glass; More ..."
 url: "https://diy.allwomenstalk.com/heres-how-to-make-something-fabulous-out-of-the-sea-glass-you-collected-on-your-beach-vacay/"
 category: "diy"
-last_updated: "2026-10-22"
+last_updated: "2026-10-28"
 ---
 
 # Here's How to Make Something Fabulous out of the Sea Glass You Collected on Your Beach Vacay ...
@@ -14,13 +14,13 @@ Beach vacations are all about collecting shells and sea glass. But what to do wi
 
 ![How to Drill Sea Glass for a Pendant](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/m6/hj/ldho9rj7557b43c8497eb230240044_250x320.jpg)
 
-Source: [Sea Glass Jewelry by Ecstasea](http://ecstasea-at-etsy.blogspot.com/2009/02/drilling-glass.html)
+Source: [Sea Glass Jewelry by Ecstasea](https://web.archive.org/web/20260214225930/http://ecstasea-at-etsy.blogspot.com/2009/02/drilling-glass.html)
 
 ## 2. A Sea Glass Counter Top is Unique
 
 ![A Sea Glass Counter Top is Unique](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ym/hb/n2s1fhjq557b43c88ca37752094721_550x825.jpg)
 
-Source: [Simply Irresistible...Designs!: Recycled Glass for](http://simplyirresistibledesigns.blogspot.com/2011/06/recycled-glass-for-countertops.html)
+Source: [Simply Irresistible...Designs!: Recycled Glass for](https://web.archive.org/web/20260211011514/http://simplyirresistibledesigns.blogspot.com/2011/06/recycled-glass-for-countertops.html)
 
 ## 3. Add an Aqua Sea Glass Bracelet to Your Wardrobe
 
@@ -102,7 +102,7 @@ Source: [Coastal Decor, Beach, Nautical Decor](https://www.completely-coastal.co
 
 ![Put This Beach Sea Glass Mosaic Block Light in Your Bedroom](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/md/gs/nwemjlsr557b43ccb146f605792585_300x297.jpg)
 
-Source: [Craftdown 2010 Week 2 –](http://survey-smiles.com/)
+Related project: [DIY Lighted Glass Block](https://myenchantingfloridalife.com/2019/03/29/diy-lighted-glass-block/)
 
 ## 17. Fill a Glass Christmas Tree Ornament
 
@@ -114,7 +114,7 @@ Source: [SEA GLASS CHRISTMAS Ornament, beach](http://www.etsy.com?ref=allwomenst
 
 ![This Sea Glass Tree is Really Fun](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/mc/g0/dd804saf557b43cd6cafb725196337_600x983.jpg)
 
-Source: [You choose: Make a Seashell](https://goo.gl/UItfjr)
+Related project: [Seashell Topiary Craft](https://www.beachcombingmagazine.com/blogs/news/seashell-topiary-craft)
 
 ## 19. DIY Photo Transfer
 
@@ -144,7 +144,7 @@ Source: [Sea Glass Crafts - Red](https://www.redtedart.com/sea-glass-crafts//)
 
 ![A Sea Glass Wreath Ornament is so Pretty](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ux/a9/w21dpfyf557b43ce9ccee875391880_391x590.jpg)
 
-Source: [Sea Glass Wreath - All](https://goo.gl/up9WSe)
+Related project: [Coastal Wreath Tutorial](https://www.thepaintedhinge.com/crafting-a-coastal-wreath-a-complete-tutorial/)
 
 ## 24. Build a Family Tree of Green Sea Glass Birds
 
@@ -156,7 +156,7 @@ Source: [Unavailable Listing on Etsy](http://www.etsy.com?ref=allwomenstalk.com)
 
 ![Cover a Mirror](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/jz/oj/otsycst7557b43cf21243955283781_320x298.jpg)
 
-Source: [beachstring: COOL CRAFT, "Seashell Mirror/Picture](http://beachstring.blogspot.com/2011/01/cool-craft-seashell-mirrorpicture-frame.html)
+Source: [beachstring: COOL CRAFT, "Seashell Mirror/Picture](https://web.archive.org/web/20231123023839/https://beachstring.blogspot.com/2011/01/cool-craft-seashell-mirrorpicture-frame.html)
 
 ## 26. Do This Beach Mason Jar Lantern Craft
 
@@ -174,7 +174,7 @@ Source: [Sea Glass Lariat Necklace](http://www.etsy.com?ref=allwomenstalk.com)
 
 ![Put Together a Cute Turtle Friend](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/xq/pk/rtbsf8zi557b43cfb30d9630110688_300x223.jpg)
 
-Source: [Sea Glass Turtle Mosaic](http://marizmilton.blogspot.com/2010/03/sea-glass-turtle-mosaic.html)
+Source: [Sea Glass Turtle Mosaic](https://web.archive.org/web/20231126212659/https://marizmilton.blogspot.com/2010/03/sea-glass-turtle-mosaic.html)
 
 ## 29. Hang Some Tiny Birdhouses
 
@@ -186,7 +186,7 @@ Source: [Sharon Nowlan original art with](https://www.etsy.com?ref=allwomenstalk
 
 ![Create a Serving Tray](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/z5/bv/f4vy1aar557b43d089ca8675618796_563x1372.jpg)
 
-Source: [Projects for Decorating Serving Trays](http://designanddiymagazine.com/projects-for-decorating-serving-trays/)
+Related project: [Sea Glass Mosaic Tray](https://www.artsyfartsymama.com/2024/05/sea-glass-mosaic-tray.html)
 
 ## 31. Make This Sea Glass Mosaic Table Top
 
@@ -224,13 +224,13 @@ Are you dreaming of making one of these? Where did you collect all your sea glas
 - [3d camera perler beads](https://diy.allwomenstalk.com/perler-beads-diy-you-are-going-to-love/)
 - [memo boards for girls](https://diy.allwomenstalk.com/delightfully-unique-memo-boards-that-you-can-make-for-cheap/)
 - [fairy garden names](https://diy.allwomenstalk.com/amazingly-magical-diy-fairy-gardens-you-have-to-make/)
-- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
 - [make a tent](https://diy.allwomenstalk.com/adorable-diy-tents-to-make-for-your-kids-this-summer/)
-- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
-- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [place mat ideas](https://diy.allwomenstalk.com/gorgeous-place-mats-to-diy-for-your-summer-party/)
+- [polka dot face paint](https://diy.allwomenstalk.com/absolutely-adorable-polka-dot-diy-ideas-for-the-home/)
 - [adorable home garden ideas](https://diy.allwomenstalk.com/adorable-diy-ideas-to-give-your-garden-a-touch-of-whimsy/)
 - [flower wine stoppers](https://diy.allwomenstalk.com/diy-bottle-stoppers-for-all-kinds-of-party-hosts-and-parties/)
+- [shallow glass bowl](https://diy.allwomenstalk.com/mind-blowing-bowls-you-can-make-yourself/)
+- [evil eye cover up](https://diy.allwomenstalk.com/cute-and-trendy-evil-eye-design-craft-projects/)
 - [9 Charming Craft Projects for a Beach Holiday ...](https://lifestyle.allwomenstalk.com/charming-craft-projects-for-a-beach-holiday/)
 - [UpCycle Old Wine Bottles for Creative Home Decor ....](https://diy.allwomenstalk.com/creative-ways-to-reuse-wine-bottles/)
 
